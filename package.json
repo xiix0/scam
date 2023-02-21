@@ -17,5 +17,8 @@
   "bugs": {
     "url": "https://github.com/euyixiyue/scam/issues"
   },
-  "homepage": "https://github.com/euyixiyue/scam#readme"
+  "homepage": "https://github.com/euyixiyue/scam#readme",
+  "dependencies": {
+    "hello": "^0.3.2"
+  }
 }
