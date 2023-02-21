@@ -1,0 +1,28 @@
+name: Update IP address and check stats
+
+on:
+  schedule:
+    - cron: '*/30 * * * *' # run every 30 minutes
+  workflow_dispatch:
+
+jobs:
+  update-ip:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout code
+        uses: actions/checkout@v2
+
+      - name: Update IP address and check stats
+        run: |
+          echo Current IP: $(curl -s https://ip8.com/ip) > README.md
+          sudo apt install fortune
+          fortune > README.md
+
+      - name: Commit and push changes
+        run: |
+          git config --local user.email "action@github.com"
+          git config --local user.name "GitHub Action"
+          git pull
+          git add README.md
+          git commit -m "Update IP address"
+          git push
