@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+Give him an evasive answer.
