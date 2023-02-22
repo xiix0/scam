@@ -1,1 +1,1 @@
-Do not overtax your powers.
+Someone is speaking well of you.
