@@ -1,3 +1,1 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+Learn to pause -- or nothing worthwhile can catch up to you.
