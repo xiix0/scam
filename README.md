@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+Change your thoughts and you change your world.
