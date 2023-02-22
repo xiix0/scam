@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+Stay away from flying saucers today.
