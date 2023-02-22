@@ -1,2 +1,2 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
