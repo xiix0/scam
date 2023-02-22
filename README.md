@@ -1,2 +1,1 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+You too can wear a nose mitten.
