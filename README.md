@@ -1,1 +1,3 @@
-Write yourself a threatening letter and pen a defiant reply.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
+		-- Mark Twain
