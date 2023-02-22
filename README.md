@@ -1,2 +1,2 @@
-If you tell the truth you don't have to remember anything.
-		-- Mark Twain
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
