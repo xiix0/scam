@@ -1,1 +1,2 @@
-You definitely intend to start living sometime soon.
+Conscience doth make cowards of us all.
+		-- Shakespeare
