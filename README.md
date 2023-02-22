@@ -1,2 +1,2 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
