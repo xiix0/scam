@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+Write yourself a threatening letter and pen a defiant reply.
