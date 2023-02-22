@@ -1,1 +1,3 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
