@@ -1,1 +1,2 @@
-You have Egyptian flu: you're going to be a mummy.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
