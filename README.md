@@ -1,1 +1,1 @@
-Think twice before speaking, but don't say "think think click click".
+You definitely intend to start living sometime soon.
