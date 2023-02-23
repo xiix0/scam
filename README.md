@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+Live in a world of your own, but always welcome visitors.
