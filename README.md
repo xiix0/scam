@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+You're almost as happy as you think you are.
