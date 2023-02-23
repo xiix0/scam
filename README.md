@@ -1,1 +1,3 @@
-Long life is in store for you.
+Questionable day.
+
+Ask somebody something.
