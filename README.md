@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Try the Moo Shu Pork.  It is especially good today.
