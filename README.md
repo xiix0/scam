@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
