@@ -1,1 +1,2 @@
-You're almost as happy as you think you are.
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
