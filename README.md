@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Excellent day for putting Slinkies on an escalator.
