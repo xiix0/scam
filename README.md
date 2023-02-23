@@ -1,2 +1,1 @@
-"... all the modern inconveniences ..."
-		-- Mark Twain
+Just to have it is enough.
