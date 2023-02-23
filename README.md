@@ -1,2 +1,1 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+Future looks spotty.  You will spill soup in late evening.
