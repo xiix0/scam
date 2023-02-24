@@ -1,3 +1,3 @@
-Q:	How many Oregonians does it take to screw in a light bulb?
-A:	Three.  One to screw in the light bulb and two to fend off all those
-	Californians trying to share the experience.
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
