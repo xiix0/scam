@@ -1,1 +1,1 @@
-You're definitely on their list.  The question to ask next is what list it is.
+You seek to shield those you love and you like the role of the provider.
