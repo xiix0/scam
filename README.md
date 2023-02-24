@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+Living your life is a task so difficult, it has never been attempted before.
