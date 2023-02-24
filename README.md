@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
