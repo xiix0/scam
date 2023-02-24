@@ -1,2 +1,2 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
