@@ -1,3 +1,2 @@
-I don't know half of you half as well as I should like; and I like less
-than half of you half as well as you deserve.
-		-- J. R. R. Tolkien
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
