@@ -1,1 +1,1 @@
-You will be honored for contributing your time and skill to a worthy cause.
+You're definitely on their list.  The question to ask next is what list it is.
