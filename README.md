@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You never hesitate to tackle the most difficult problems.
