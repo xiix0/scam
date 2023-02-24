@@ -1,1 +1,3 @@
-You never hesitate to tackle the most difficult problems.
+My only love sprung from my only hate!
+Too early seen unknown, and known too late!
+		-- William Shakespeare, "Romeo and Juliet"
