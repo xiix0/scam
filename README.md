@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Let me put it this way: today is going to be a learning experience.
