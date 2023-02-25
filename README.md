@@ -1,2 +1,1 @@
-question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+Your boss climbed the corporate ladder, wrong by wrong.
