@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+Tonight's the night: Sleep in a eucalyptus tree.
