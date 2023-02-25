@@ -1,1 +1,2 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
