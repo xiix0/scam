@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Let me put it this way: today is going to be a learning experience.
