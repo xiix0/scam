@@ -1,2 +1,2 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+The first thing we do, let's kill all the lawyers.
+		-- Wm. Shakespeare, "Henry VI", Part IV
