@@ -1,1 +1,3 @@
-Let me put it this way: today is going to be a learning experience.
+My only love sprung from my only hate!
+Too early seen unknown, and known too late!
+		-- William Shakespeare, "Romeo and Juliet"
