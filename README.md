@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
