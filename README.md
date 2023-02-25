@@ -1,3 +1,3 @@
-Q:	What do you call the money you pay to the government when
-	you ride into the country on the back of an elephant?
-A:	A howdah duty.
+Training is everything.  The peach was once a bitter almond; cauliflower is
+nothing but cabbage with a college education.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
