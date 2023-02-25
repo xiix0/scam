@@ -1,6 +1,3 @@
-Q:	How do you shoot a blue elephant?
-A:	With a blue-elephant gun.
-
-Q:	How do you shoot a pink elephant?
-A:	Twist its trunk until it turns blue, then shoot it with
-	a blue-elephant gun.
+Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
+that think they are truffles.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
