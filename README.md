@@ -1,1 +1,2 @@
-You will inherit millions of dollars.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
