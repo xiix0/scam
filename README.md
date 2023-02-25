@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+Your love life will be happy and harmonious.
