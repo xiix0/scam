@@ -1,2 +1,1 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+Of course you have a purpose -- to find a purpose.
