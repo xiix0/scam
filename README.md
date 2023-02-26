@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
