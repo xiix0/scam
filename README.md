@@ -1,2 +1,2 @@
-Water, taken in moderation cannot hurt anybody.
+Nothing so needs reforming as other people's habits.
 		-- Mark Twain
