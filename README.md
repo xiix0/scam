@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+Chicken Little only has to be right once.
