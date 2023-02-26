@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+You can create your own opportunities this week.  Blackmail a senior executive.
