@@ -1,4 +1,3 @@
-In Marseilles they make half the toilet soap we consume in America, but
-the Marseillaise only have a vague theoretical idea of its use, which they
-have obtained from books of travel.
-		-- Mark Twain
+Writing is easy; all you do is sit staring at the blank sheet of paper until
+drops of blood form on your forehead.
+		-- Gene Fowler
