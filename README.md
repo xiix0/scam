@@ -1,2 +1,1 @@
-Q:	Why did the WASP cross the road?
-A:	To get to the middle.
+You have an unusual equipment for success.  Be sure to use it properly.
