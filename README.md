@@ -1,3 +1,2 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
