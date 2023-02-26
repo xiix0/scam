@@ -1,2 +1,2 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
