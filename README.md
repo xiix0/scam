@@ -1,1 +1,2 @@
-You shall be rewarded for a dastardly deed.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
