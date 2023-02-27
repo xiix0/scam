@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+You have an unusual understanding of the problems of human relationships.
