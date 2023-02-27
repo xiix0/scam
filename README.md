@@ -1,6 +1,14 @@
-In the plot, people came to the land; the land loved them; they worked and
-struggled and had lots of children.  There was a Frenchman who talked funny
-and a greenhorn from England who was a fancy-pants but when it came to the
-crunch he was all courage.  Those novels would make you retch.
-		-- Canadian novelist Robertson Davies, on the generic Canadian
-		   novel.
+Q:	What's the contour integral around Western Europe?
+A:	Zero, because all the Poles are in Eastern Europe!
+
+Addendum: Actually, there ARE some Poles in Western Europe, but they
+	are removable!
+
+Q:	An English mathematician (I forgot who) was asked by his
+	very religious colleague: Do you believe in one God?
+A:	Yes, up to isomorphism!
+
+Q:	What is a compact city?
+A:	It's a city that can be guarded by finitely many near-sighted
+	policemen!
+		-- Peter Lax
