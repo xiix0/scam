@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+You shall be rewarded for a dastardly deed.
