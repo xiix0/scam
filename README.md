@@ -1,1 +1,1 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+People are beginning to notice you.  Try dressing before you leave the house.
