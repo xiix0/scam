@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+Increased knowledge will help you now.  Have mate's phone bugged.
