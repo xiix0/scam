@@ -1,2 +1,1 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+You're not my type.  For that matter, you're not even my species!!!
