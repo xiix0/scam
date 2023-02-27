@@ -1,1 +1,1 @@
-You will be audited by the Internal Revenue Service.
+You will be run over by a beer truck.
