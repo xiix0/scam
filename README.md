@@ -1,2 +1,1 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Love is in the offing.  Be affectionate to one who adores you.
