@@ -1,1 +1,2 @@
-Your nature demands love and your happiness depends on it.
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
