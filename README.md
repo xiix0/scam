@@ -1,1 +1,2 @@
-Hope that the day after you die is a nice day.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
