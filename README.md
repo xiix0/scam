@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+An avocado-tone refrigerator would look good on your resume.
