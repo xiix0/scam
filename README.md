@@ -1,1 +1,2 @@
-Your aim is high and to the right.
+I'll burn my books.
+		-- Christopher Marlowe
