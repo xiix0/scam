@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Q:	Do you know what the death rate around here is?
+A:	One per person.
