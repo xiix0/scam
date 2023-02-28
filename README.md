@@ -1,1 +1,2 @@
-Among the lucky, you are the chosen one.
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
