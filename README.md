@@ -1,1 +1,1 @@
-Never give an inch!
+Artistic ventures highlighted.  Rob a museum.
