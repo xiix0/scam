@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You look like a million dollars.  All green and wrinkled.
