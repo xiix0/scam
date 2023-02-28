@@ -1,3 +1,2 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
