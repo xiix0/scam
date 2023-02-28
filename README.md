@@ -1,2 +1,2 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
