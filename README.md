@@ -1,2 +1,2 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+You are destined to become the commandant of the fighting men of the
+department of transportation.
