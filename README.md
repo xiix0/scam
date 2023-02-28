@@ -1,2 +1,1 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+Don't plan any hasty moves.  You'll be evicted soon anyway.
