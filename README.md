@@ -1,1 +1,1 @@
-You are capable of planning your future.
+Avoid reality at all costs.
