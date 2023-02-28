@@ -1,1 +1,2 @@
-You will overcome the attacks of jealous associates.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
