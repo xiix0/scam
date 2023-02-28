@@ -1,2 +1,1 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+Your own qualities will help prevent your advancement in the world.
