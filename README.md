@@ -1,1 +1,2 @@
-Avoid reality at all costs.
+What I tell you three times is true.
+		-- Lewis Carroll
