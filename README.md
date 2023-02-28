@@ -1,2 +1,1 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+A tall, dark stranger will have more fun than you.
