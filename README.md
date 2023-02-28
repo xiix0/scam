@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
