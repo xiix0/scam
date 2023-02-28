@@ -1,2 +1,1 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+Future looks spotty.  You will spill soup in late evening.
