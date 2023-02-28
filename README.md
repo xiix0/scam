@@ -1,1 +1,3 @@
-You never know how many friends you have until you rent a house on the beach.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
