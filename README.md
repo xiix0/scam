@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+He is now rising from affluence to poverty.
+		-- Mark Twain
