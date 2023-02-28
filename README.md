@@ -1,1 +1,1 @@
-Future looks spotty.  You will spill soup in late evening.
+Abandon the search for Truth; settle for a good fantasy.
