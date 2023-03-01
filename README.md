@@ -1,1 +1,2 @@
-You single-handedly fought your way into this hopeless mess.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
