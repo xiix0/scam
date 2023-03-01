@@ -1,3 +1,3 @@
-Grief can take care of itself; but to get the full value of a joy you must
-have somebody to divide it with.
-		-- Mark Twain
+Your manuscript is both good and original, but the part that is good is not
+original and the part that is original is not good.
+		-- Samuel Johnson
