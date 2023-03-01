@@ -1,1 +1,2 @@
-You're ugly and your mother dresses you funny.
+No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
+		-- Sherlock Holmes
