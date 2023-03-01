@@ -1,2 +1,2 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
