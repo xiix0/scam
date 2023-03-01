@@ -1,2 +1,2 @@
-Patch griefs with proverbs.
-		-- William Shakespeare, "Much Ado About Nothing"
+When in doubt, tell the truth.
+		-- Mark Twain
