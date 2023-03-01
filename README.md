@@ -1,1 +1,5 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Q:	What do you call a blind pre-historic animal?
+A:	Diyathinkhesaurus.
+
+Q:	What do you call a blind pre-historic animal with a dog?
+A:	Diyathinkhesaurus Rex.
