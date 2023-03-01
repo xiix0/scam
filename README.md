@@ -1,1 +1,1 @@
-You will outgrow your usefulness.
+You single-handedly fought your way into this hopeless mess.
