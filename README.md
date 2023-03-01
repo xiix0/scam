@@ -1,3 +1,1 @@
-You may my glories and my state dispose,
-But not my griefs; still am I king of those.
-		-- William Shakespeare, "Richard II"
+A gift of a flower will soon be made to you.
