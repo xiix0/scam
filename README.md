@@ -1,1 +1,2 @@
-You have had a long-term stimulation relative to business.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
