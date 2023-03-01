@@ -1,2 +1,2 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
