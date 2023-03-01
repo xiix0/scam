@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
