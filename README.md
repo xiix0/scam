@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
