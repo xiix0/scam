@@ -1,2 +1,2 @@
-Q:	How many supply-siders does it take to change a light bulb?
-A:	None.  The darkness will cause the light bulb to change by itself.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
