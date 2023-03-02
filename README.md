@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+You'd like to do it instantaneously, but that's too slow.
