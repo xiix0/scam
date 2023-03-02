@@ -1,2 +1,2 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+Your goose is cooked.
+(Your current chick is burned up too!)
