@@ -1,1 +1,1 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+Your lover will never wish to leave you.
