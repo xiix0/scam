@@ -1,2 +1,3 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+My only love sprung from my only hate!
+Too early seen unknown, and known too late!
+		-- William Shakespeare, "Romeo and Juliet"
