@@ -1,7 +1,6 @@
-I reverently believe that the maker who made us all  makes everything in New
-England, but the weather.  I don't know who makes that, but I think it must be
-raw apprentices in the weather-clerks factory who experiment and learn how, in
-New England, for board and clothes, and then are promoted to make weather for
-countries that require a good article, and will take their custom elsewhere
-if they don't get it.
-		-- Mark Twain
+There are three infallible ways of pleasing an author, and the three form a
+rising scale of compliment: 1, to tell him you have read one of his books; 2,
+to tell him you have read all of his books; 3, to ask him to let you read the
+manuscript of his forthcoming book.  No. 1 admits you to his respect; No. 2
+admits you to his admiration; No. 3 carries you clear into his heart.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
