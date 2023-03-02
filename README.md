@@ -1,2 +1,1 @@
-question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+Good day for a change of scene.  Repaper the bedroom wall.
