@@ -1,2 +1,2 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+Q:	Are we not men?
+A:	We are Vaxen.
