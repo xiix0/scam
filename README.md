@@ -1,1 +1,1 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+That secret you've been guarding, isn't.
