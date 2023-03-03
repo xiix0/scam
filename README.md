@@ -1,2 +1,2 @@
-This night methinks is but the daylight sick.
-		-- William Shakespeare, "The Merchant of Venice"
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
