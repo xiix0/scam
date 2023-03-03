@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+You will hear good news from one you thought unfriendly to you.
