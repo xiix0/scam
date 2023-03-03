@@ -1,2 +1,1 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+Chicken Little only has to be right once.
