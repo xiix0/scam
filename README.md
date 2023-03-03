@@ -1,1 +1,2 @@
-You have a strong appeal for members of the opposite sex.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
