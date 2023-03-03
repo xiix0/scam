@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+You are a bundle of energy, always on the go.
