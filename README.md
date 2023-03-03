@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+Today is the tomorrow you worried about yesterday.
