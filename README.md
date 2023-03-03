@@ -1,1 +1,2 @@
-Today is the tomorrow you worried about yesterday.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
