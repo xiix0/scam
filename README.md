@@ -1,1 +1,2 @@
-An exotic journey in downtown Newark is in your future.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
