@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
