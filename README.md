@@ -1,1 +1,2 @@
-You plan things that you do not even attempt because of your extreme caution.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
