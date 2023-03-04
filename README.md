@@ -1,2 +1,2 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
