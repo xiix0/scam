@@ -1,1 +1,3 @@
-Love is in the offing.  Be affectionate to one who adores you.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
