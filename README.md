@@ -1,2 +1,1 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+You're almost as happy as you think you are.
