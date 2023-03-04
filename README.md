@@ -1,1 +1,1 @@
-Of course you have a purpose -- to find a purpose.
+Artistic ventures highlighted.  Rob a museum.
