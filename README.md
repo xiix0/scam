@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+Today is the first day of the rest of your life.
