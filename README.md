@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+Your lover will never wish to leave you.
