@@ -1,2 +1,1 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+You never hesitate to tackle the most difficult problems.
