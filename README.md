@@ -1,3 +1,1 @@
-Q:	What do you call the money you pay to the government when
-	you ride into the country on the back of an elephant?
-A:	A howdah duty.
+You are a very redundant person, that's what kind of person you are.
