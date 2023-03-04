@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Today is the last day of your life so far.
