@@ -1,2 +1,2 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
