@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+Your nature demands love and your happiness depends on it.
