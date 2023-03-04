@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+Your fly might be open (but don't check it just now).
