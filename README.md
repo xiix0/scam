@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
