@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+You will be given a post of trust and responsibility.
