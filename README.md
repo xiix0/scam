@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+Give your very best today.  Heaven knows it's little enough.
