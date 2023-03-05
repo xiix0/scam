@@ -1,2 +1,3 @@
-Q:	What do you have when you have a lawyer buried up to his neck in sand?
-A:	Not enough sand.
+Q:	Why do the police always travel in threes?
+A:	One to do the reading, one to do the writing, and the other keeps
+	an eye on the two intellectuals.
