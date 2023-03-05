@@ -1,2 +1,1 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+Your mode of life will be changed for the better because of good news soon.
