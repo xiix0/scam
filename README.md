@@ -1,2 +1,2 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
