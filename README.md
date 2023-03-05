@@ -1,2 +1,2 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+Your goose is cooked.
+(Your current chick is burned up too!)
