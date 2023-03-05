@@ -1,2 +1,3 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
