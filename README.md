@@ -1,2 +1,3 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
+		-- Mark Twain
