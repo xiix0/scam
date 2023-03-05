@@ -1,2 +1,1 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+You will be awarded the Nobel Peace Prize... posthumously.
