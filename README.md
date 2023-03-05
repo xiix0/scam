@@ -1,1 +1,3 @@
-Try to have as good a life as you can under the circumstances.
+Someone is speaking well of you.
+
+How unusual!
