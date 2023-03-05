@@ -1,2 +1,2 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+The Public is merely a multiplied "me."
+		-- Mark Twain
