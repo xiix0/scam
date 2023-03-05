@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Your love life will be... interesting.
