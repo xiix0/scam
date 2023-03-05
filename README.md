@@ -1,2 +1,2 @@
-Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
-A:	Trustworthy.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
