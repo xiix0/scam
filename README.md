@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
