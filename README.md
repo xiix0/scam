@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+Bank error in your favor.  Collect $200.
