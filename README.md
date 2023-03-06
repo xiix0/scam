@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+Today is the first day of the rest of the mess.
