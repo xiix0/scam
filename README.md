@@ -1,2 +1,1 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+Someone whom you reject today, will reject you tomorrow.
