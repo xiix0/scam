@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
