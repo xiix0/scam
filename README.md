@@ -1,1 +1,4 @@
-In the stairway of life, you'd best take the elevator.
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
