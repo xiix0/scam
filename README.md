@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
