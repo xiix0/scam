@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
