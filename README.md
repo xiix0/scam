@@ -1,3 +1,1 @@
-You may my glories and my state dispose,
-But not my griefs; still am I king of those.
-		-- William Shakespeare, "Richard II"
+You'd like to do it instantaneously, but that's too slow.
