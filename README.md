@@ -1,1 +1,1 @@
-You will be honored for contributing your time and skill to a worthy cause.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
