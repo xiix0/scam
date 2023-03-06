@@ -1,5 +1,5 @@
-October 12, the Discovery.
+Q:	How many surrealists does it take to change a light bulb?
+A:	Two, one to hold the giraffe, and the other to fill the bathtub
+	with brightly colored machine tools.
 
-It was wonderful to find America, but it would have been more wonderful to miss
-it.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+	[Surrealist jokes just aren't my cup of fur.  Ed.]
