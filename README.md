@@ -1,3 +1,2 @@
-Hain't we got all the fools in town on our side?  And hain't that a big
-enough majority in any town?
-		-- Mark Twain, "Huckleberry Finn"
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
