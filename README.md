@@ -1,2 +1,2 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
