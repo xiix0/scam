@@ -1,1 +1,2 @@
-You have a deep interest in all that is artistic.
+The Public is merely a multiplied "me."
+		-- Mark Twain
