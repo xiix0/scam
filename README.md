@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+Your business will assume vast proportions.
