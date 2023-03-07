@@ -1,2 +1,2 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
