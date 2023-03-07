@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
