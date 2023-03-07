@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+Everything will be just tickety-boo today.
