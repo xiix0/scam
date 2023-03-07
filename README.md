@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Beware of a tall blond man with one black shoe.
