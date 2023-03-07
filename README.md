@@ -1,1 +1,1 @@
-You will remember something that you should not have forgotten.
+Among the lucky, you are the chosen one.
