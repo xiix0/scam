@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+Good news from afar can bring you a welcome visitor.
