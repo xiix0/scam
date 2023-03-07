@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+You have an ability to sense and know higher truth.
