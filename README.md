@@ -1,2 +1,1 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+Alimony and bribes will engage a large share of your wealth.
