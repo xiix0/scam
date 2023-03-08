@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
