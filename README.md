@@ -1,1 +1,2 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
