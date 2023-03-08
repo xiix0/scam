@@ -1,2 +1,1 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+Increased knowledge will help you now.  Have mate's phone bugged.
