@@ -1,3 +1,3 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+The only way to keep your health is to eat what you don't want, drink what
+you don't like, and do what you'd rather not.
+		-- Mark Twain
