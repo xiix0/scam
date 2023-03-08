@@ -1,1 +1,2 @@
-You're ugly and your mother dresses you funny.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
