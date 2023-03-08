@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
