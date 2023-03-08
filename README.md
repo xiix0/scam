@@ -1,1 +1,2 @@
-Accent on helpful side of your nature.  Drain the moat.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
