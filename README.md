@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
