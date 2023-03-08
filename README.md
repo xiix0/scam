@@ -1,2 +1,2 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
