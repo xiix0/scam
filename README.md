@@ -1,2 +1,2 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
