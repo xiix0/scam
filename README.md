@@ -1,2 +1,2 @@
-The first thing we do, let's kill all the lawyers.
-		-- Wm. Shakespeare, "Henry VI", Part IV
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
