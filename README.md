@@ -1,1 +1,1 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+You attempt things that you do not even plan because of your extreme stupidity.
