@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
