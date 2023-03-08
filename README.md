@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+Beauty and harmony are as necessary to you as the very breath of life.
