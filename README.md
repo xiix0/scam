@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+Are you ever going to do the dishes?  Or will you change your major to biology?
