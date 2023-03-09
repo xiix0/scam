@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+You may be recognized soon.  Hide.
