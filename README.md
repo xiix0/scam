@@ -1,1 +1,1 @@
-Never reveal your best argument.
+You will have good luck and overcome many hardships.
