@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+Go to a movie tonight.  Darkness becomes you.
