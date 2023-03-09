@@ -1,1 +1,2 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Q:	How many IBM 370's does it take to execute a job?
+A:	Four, three to hold it down, and one to rip its head off.
