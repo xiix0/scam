@@ -1,4 +1,3 @@
-	You will remember, Watson, how the dreadful business of the
-Abernetty family was first brought to my notice by the depth which the
-parsley had sunk into the butter upon a hot day.
-		-- Sherlock Holmes
+It is so very hard to be an
+on-your-own-take-care-of-yourself-because-there-is-no-one-else-to-do-it-for-you
+grown-up.
