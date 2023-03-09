@@ -1,2 +1,2 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+If you tell the truth you don't have to remember anything.
+		-- Mark Twain
