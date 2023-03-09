@@ -1,2 +1,1 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
