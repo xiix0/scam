@@ -1,2 +1,1 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+After your lover has gone you will still have PEANUT BUTTER!
