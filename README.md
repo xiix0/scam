@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+Your true value depends entirely on what you are compared with.
