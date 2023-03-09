@@ -1,3 +1,2 @@
-Perilous to all of us are the devices of an art deeper than we ourselves
-possess.
-		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
