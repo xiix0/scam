@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+Excellent day to have a rotten day.
