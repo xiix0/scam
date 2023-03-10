@@ -1,2 +1,2 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
