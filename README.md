@@ -1,1 +1,5 @@
-You two ought to be more careful--your love could drag on for years and years.
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
