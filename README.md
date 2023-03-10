@@ -1,2 +1,2 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
