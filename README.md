@@ -1,2 +1,1 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+Don't look now, but there is a multi-legged creature on your shoulder.
