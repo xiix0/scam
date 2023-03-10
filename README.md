@@ -1,3 +1,2 @@
-Someone is speaking well of you.
-
-How unusual!
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
