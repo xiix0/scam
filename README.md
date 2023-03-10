@@ -1,1 +1,2 @@
-Cold hands, no gloves.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
