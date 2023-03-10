@@ -1,2 +1,5 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+Steady movement is more important than speed, much of the time.  So long
+as there is a regular progression of stimuli to get your mental hooks
+into, there is room for lateral movement.  Once this begins, its rate is
+a matter of discretion.
+		-- Corwin, Prince of Amber
