@@ -1,2 +1,3 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+This is the first age that's paid much attention to the future, which is a
+little ironic since we may not have one.
+		-- Arthur Clarke
