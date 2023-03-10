@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+You will overcome the attacks of jealous associates.
