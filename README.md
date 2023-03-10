@@ -1,2 +1,2 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
