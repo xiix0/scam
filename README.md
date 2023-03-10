@@ -1,1 +1,1 @@
-You are so boring that when I see you my feet go to sleep.
+The time is right to make new friends.
