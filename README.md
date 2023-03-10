@@ -1,2 +1,3 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+Someone is speaking well of you.
+
+How unusual!
