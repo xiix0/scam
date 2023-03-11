@@ -1,1 +1,1 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+Q:	How do you keep a moron in suspense?
