@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+Reply hazy, ask again later.
