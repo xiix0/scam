@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+You have an unusual equipment for success.  Be sure to use it properly.
