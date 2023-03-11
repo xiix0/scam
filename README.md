@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+Keep emotionally active.  Cater to your favorite neurosis.
