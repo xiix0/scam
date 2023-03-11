@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+You have Egyptian flu: you're going to be a mummy.
