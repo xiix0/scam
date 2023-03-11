@@ -1,2 +1,1 @@
-Alas, how love can trifle with itself!
-		-- William Shakespeare, "The Two Gentlemen of Verona"
+Tomorrow will be cancelled due to lack of interest.
