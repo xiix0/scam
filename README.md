@@ -1,1 +1,3 @@
-You never hesitate to tackle the most difficult problems.
+Noise proves nothing.  Often a hen who has merely laid an egg cackles
+as if she laid an asteroid.
+		-- Mark Twain
