@@ -1,1 +1,3 @@
-You could live a better life, if you had a better mind and a better body.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
