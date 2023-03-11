@@ -1,2 +1,1 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+Go to a movie tonight.  Darkness becomes you.
