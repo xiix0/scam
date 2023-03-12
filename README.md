@@ -1,2 +1,2 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+You tread upon my patience.
+		-- William Shakespeare, "Henry IV"
