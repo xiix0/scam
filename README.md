@@ -1,2 +1,2 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
