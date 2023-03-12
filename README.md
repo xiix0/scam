@@ -1,2 +1,1 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+Your mode of life will be changed for the better because of new developments.
