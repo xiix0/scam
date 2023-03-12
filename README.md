@@ -1,2 +1,3 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
