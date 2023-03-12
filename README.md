@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
