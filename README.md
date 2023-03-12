@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of new developments.
+All generalizations are false, including this one.
+		-- Mark Twain
