@@ -1,1 +1,1 @@
-Don't get to bragging.
+Your boss climbed the corporate ladder, wrong by wrong.
