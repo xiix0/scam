@@ -1,1 +1,2 @@
-Another good night not to sleep in a eucalyptus tree.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
