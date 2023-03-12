@@ -1,2 +1,5 @@
-Q:	How many Marxists does it take to screw in a light bulb?
-A:	None:  The light bulb contains the seeds of its own revolution.
+I got a hint of things to come when I overheard my boss lamenting, 'The
+books are done and we still don't have an author! I must sign someone
+today!
+		-- Tamim Ansary, "Edutopia Magazine, Issue 2, November 2004"
+		   on the topic of school textbooks
