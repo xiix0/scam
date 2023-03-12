@@ -1,3 +1,2 @@
-Soap and education are not as sudden as a massacre, but they are more
-deadly in the long run.
-		-- Mark Twain
+I fell asleep reading a dull book, and I dreamt that I was reading on,
+so I woke up from sheer boredom.
