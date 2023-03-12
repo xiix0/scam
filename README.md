@@ -1,1 +1,1 @@
-Long life is in store for you.
+You will feel hungry again in another hour.
