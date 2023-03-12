@@ -1,1 +1,2 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
