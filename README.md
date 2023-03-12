@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+Excellent day to have a rotten day.
