@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Your object is to save the world, while still leading a pleasant life.
