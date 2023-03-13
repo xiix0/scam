@@ -1,2 +1,2 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
