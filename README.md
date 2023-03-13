@@ -1,2 +1,2 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
