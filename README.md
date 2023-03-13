@@ -1,2 +1,1 @@
-Q:	What's the difference between a duck and an elephant?
-A:	You can't get down off an elephant.
+Perfect day for scrubbing the floor and other exciting things.
