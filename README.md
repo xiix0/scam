@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+What I tell you three times is true.
+		-- Lewis Carroll
