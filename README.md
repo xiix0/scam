@@ -1,1 +1,2 @@
-Today is the tomorrow you worried about yesterday.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
