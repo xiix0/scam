@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+Avoid reality at all costs.
