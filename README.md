@@ -1,2 +1,1 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
