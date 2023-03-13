@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+Your fly might be open (but don't check it just now).
