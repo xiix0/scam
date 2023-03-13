@@ -1,2 +1,1 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Do what comes naturally.  Seethe and fume and throw a tantrum.
