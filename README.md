@@ -1,1 +1,2 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
