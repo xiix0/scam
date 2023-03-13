@@ -1,2 +1,2 @@
-What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, "The League of Frightened Men"
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
