@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Don't read any sky-writing for the next two weeks.
