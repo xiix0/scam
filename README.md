@@ -1,1 +1,1 @@
-You have many friends and very few living enemies.
+A tall, dark stranger will have more fun than you.
