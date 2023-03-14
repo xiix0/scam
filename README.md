@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
