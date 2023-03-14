@@ -1,1 +1,2 @@
-You will not be elected to public office this year.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
