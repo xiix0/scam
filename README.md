@@ -1,2 +1,1 @@
-Never laugh at live dragons.
-		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
