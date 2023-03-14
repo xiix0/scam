@@ -1,1 +1,2 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+What I tell you three times is true.
+		-- Lewis Carroll
