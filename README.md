@@ -1,2 +1,2 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
