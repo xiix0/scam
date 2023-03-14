@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+After your lover has gone you will still have PEANUT BUTTER!
