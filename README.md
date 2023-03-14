@@ -1,1 +1,1 @@
-You work very hard.  Don't try to think as well.
+You can create your own opportunities this week.  Blackmail a senior executive.
