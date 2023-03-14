@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+You shall be rewarded for a dastardly deed.
