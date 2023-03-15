@@ -1,3 +1,1 @@
-You never have to change anything you got up in the middle of the night
-to write.
-		-- Saul Bellow
+Tomorrow will be cancelled due to lack of interest.
