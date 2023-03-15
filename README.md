@@ -1,3 +1,1 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+Let me put it this way: today is going to be a learning experience.
