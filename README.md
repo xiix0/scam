@@ -1,1 +1,2 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
