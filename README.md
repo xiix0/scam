@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
