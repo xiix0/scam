@@ -1,1 +1,2 @@
-Tomorrow will be cancelled due to lack of interest.
+When in doubt, tell the truth.
+		-- Mark Twain
