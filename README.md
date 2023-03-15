@@ -1,1 +1,2 @@
-Never reveal your best argument.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
