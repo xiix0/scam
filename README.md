@@ -1,1 +1,3 @@
-You will be married within a year, and divorced within two.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
