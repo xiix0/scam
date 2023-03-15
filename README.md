@@ -1,2 +1,1 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+You prefer the company of the opposite sex, but are well liked by your own.
