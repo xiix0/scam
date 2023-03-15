@@ -1,1 +1,2 @@
-You would if you could but you can't so you won't.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
