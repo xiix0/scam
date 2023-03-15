@@ -1,1 +1,2 @@
-It was all so different before everything changed.
+Too much is just enough.
+		-- Mark Twain, on whiskey
