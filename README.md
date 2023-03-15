@@ -1,2 +1,2 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
