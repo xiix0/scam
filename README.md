@@ -1,2 +1,2 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
