@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Best of all is never to have been born.  Second best is to die soon.
