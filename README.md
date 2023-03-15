@@ -1,2 +1,2 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
