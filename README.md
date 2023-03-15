@@ -1,6 +1,5 @@
-Q:	What did Tarzan say when he saw the elephants coming over the hill?
-A:	"The elephants are coming over the hill."
-
-Q:	What did he say when saw them coming over the hill wearing
-		sunglasses?
-A:	Nothing, for he didn't recognize them.
+Q:	How many existentialists does it take to screw in a light bulb?
+A:	Two.  One to screw it in and one to observe how the light bulb
+	itself symbolizes a single incandescent beacon of subjective
+	reality in a netherworld of endless absurdity reaching out toward a
+	maudlin cosmos of nothingness.
