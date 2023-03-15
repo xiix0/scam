@@ -1,2 +1,3 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+You may my glories and my state dispose,
+But not my griefs; still am I king of those.
+		-- William Shakespeare, "Richard II"
