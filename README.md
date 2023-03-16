@@ -1,2 +1,2 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+What I tell you three times is true.
+		-- Lewis Carroll
