@@ -1,1 +1,1 @@
-You love peace.
+That secret you've been guarding, isn't.
