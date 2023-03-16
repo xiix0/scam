@@ -1,2 +1,3 @@
-Q:	How many Marxists does it take to screw in a light bulb?
-A:	None:  The light bulb contains the seeds of its own revolution.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
+A:	The Halls of Montezuma and the Shores of Tripoli.
+Q:	Name two families whose kids won't join the Marines.
