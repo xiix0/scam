@@ -1,2 +1,2 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
