@@ -1,1 +1,1 @@
-Love is in the offing.  Be affectionate to one who adores you.
+Are you ever going to do the dishes?  Or will you change your major to biology?
