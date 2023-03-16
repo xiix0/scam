@@ -1,3 +1,2 @@
-The human race is a race of cowards; and I am not only marching in that
-procession but carrying a banner.
-		-- Mark Twain
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
