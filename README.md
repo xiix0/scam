@@ -1,2 +1,3 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+He draweth out the thread of his verbosity finer than the staple of his
+argument.
+		-- William Shakespeare, "Love's Labour's Lost"
