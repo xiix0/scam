@@ -1,2 +1,2 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+The Public is merely a multiplied "me."
+		-- Mark Twain
