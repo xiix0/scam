@@ -1,2 +1,2 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
