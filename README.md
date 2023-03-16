@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+You have many friends and very few living enemies.
