@@ -1,2 +1,1 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+You will have domestic happiness and faithful friends.
