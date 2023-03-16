@@ -1,2 +1,2 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+You learn to write as if to someone else because NEXT YEAR YOU WILL BE
+"SOMEONE ELSE."
