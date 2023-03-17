@@ -1,2 +1,1 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
