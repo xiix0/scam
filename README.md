@@ -1,2 +1,2 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
