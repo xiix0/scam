@@ -1,1 +1,2 @@
-Excellent time to become a missing person.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
