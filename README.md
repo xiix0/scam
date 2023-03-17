@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
