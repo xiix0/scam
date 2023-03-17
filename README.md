@@ -1,1 +1,2 @@
-Life is to you a dashing and bold adventure.
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
