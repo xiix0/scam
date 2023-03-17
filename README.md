@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
