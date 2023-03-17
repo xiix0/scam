@@ -1,2 +1,1 @@
-The naked truth of it is, I have no shirt.
-		-- William Shakespeare, "Love's Labour's Lost"
+Many changes of mind and mood; do not hesitate too long.
