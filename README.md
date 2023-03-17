@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+You plan things that you do not even attempt because of your extreme caution.
