@@ -1,1 +1,2 @@
-You will be married within a year.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
