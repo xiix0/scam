@@ -1,1 +1,2 @@
-Your love life will be... interesting.
+The Public is merely a multiplied "me."
+		-- Mark Twain
