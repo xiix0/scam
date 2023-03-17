@@ -1,1 +1,3 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+The only way to keep your health is to eat what you don't want, drink what
+you don't like, and do what you'd rather not.
+		-- Mark Twain
