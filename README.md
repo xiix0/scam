@@ -1,1 +1,2 @@
-Are you making all this up as you go along?
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
