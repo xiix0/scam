@@ -1,2 +1,2 @@
-English literature's performing flea.
-		-- Sean O'Casey on P. G. Wodehouse
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
