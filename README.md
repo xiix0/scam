@@ -1,1 +1,3 @@
-Beware of a tall black man with one blond shoe.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
