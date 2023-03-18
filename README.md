@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Tuesday is the Wednesday of the rest of your life.
