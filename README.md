@@ -1,2 +1,1 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Time to be aggressive.  Go after a tattooed Virgo.
