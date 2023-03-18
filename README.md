@@ -1,2 +1,2 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
