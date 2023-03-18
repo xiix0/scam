@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+You're currently going through a difficult transition period called "Life."
