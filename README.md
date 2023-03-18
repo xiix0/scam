@@ -1,2 +1,1 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+In the stairway of life, you'd best take the elevator.
