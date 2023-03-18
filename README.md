@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+Snow Day -- stay home.
