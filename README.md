@@ -1,2 +1,1 @@
-This night methinks is but the daylight sick.
-		-- William Shakespeare, "The Merchant of Venice"
+You will win success in whatever calling you adopt.
