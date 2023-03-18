@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
-A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
-Q:	Who were the Democratic presidential candidates?
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
