@@ -1,1 +1,2 @@
-You have an ability to sense and know higher truth.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
