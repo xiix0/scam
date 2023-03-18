@@ -1,1 +1,2 @@
-Perfect day for scrubbing the floor and other exciting things.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
