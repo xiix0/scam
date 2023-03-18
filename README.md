@@ -1,2 +1,1 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+Fine day to work off excess energy.  Steal something heavy.
