@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+Your true value depends entirely on what you are compared with.
