@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Communicate!  It can't make things any worse.
