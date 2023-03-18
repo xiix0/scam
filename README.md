@@ -1,1 +1,2 @@
-Your reasoning powers are good, and you are a fairly good planner.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
