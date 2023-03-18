@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
