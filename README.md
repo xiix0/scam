@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
