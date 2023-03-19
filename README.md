@@ -1,1 +1,2 @@
-Exercise caution in your daily affairs.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
