@@ -1,2 +1,1 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
