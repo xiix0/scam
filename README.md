@@ -1,1 +1,2 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
