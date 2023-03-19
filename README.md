@@ -1,2 +1,2 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
