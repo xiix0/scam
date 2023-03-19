@@ -1,2 +1,2 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
