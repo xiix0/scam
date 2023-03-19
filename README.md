@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
