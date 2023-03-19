@@ -1,1 +1,1 @@
-You definitely intend to start living sometime soon.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
