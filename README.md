@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+There is a 20% chance of tomorrow.
