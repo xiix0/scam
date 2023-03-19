@@ -1,1 +1,1 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+If your life was a horse, you'd have to shoot it.
