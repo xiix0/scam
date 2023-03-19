@@ -1,1 +1,2 @@
-If your life was a horse, you'd have to shoot it.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
