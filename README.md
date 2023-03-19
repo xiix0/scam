@@ -1,2 +1,2 @@
-Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
-		-- Shakespeare
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
