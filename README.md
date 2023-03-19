@@ -1,1 +1,2 @@
-You will be surprised by a loud noise.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
