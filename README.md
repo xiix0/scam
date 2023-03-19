@@ -1,2 +1,2 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
