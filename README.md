@@ -1,2 +1,2 @@
-This night methinks is but the daylight sick.
-		-- William Shakespeare, "The Merchant of Venice"
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
