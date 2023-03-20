@@ -1,2 +1,3 @@
-He that breaks a thing to find out what it is has left the path of wisdom.
-		-- J.R.R. Tolkien
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
