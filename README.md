@@ -1,1 +1,2 @@
-Keep it short for pithy sake.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
