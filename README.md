@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
