@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
