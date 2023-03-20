@@ -1,2 +1,3 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+Reader, suppose you were an idiot.  And suppose you were a member of
+Congress.  But I repeat myself.
+		-- Mark Twain
