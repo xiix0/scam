@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+Never be led astray onto the path of virtue.
