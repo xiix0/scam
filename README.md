@@ -1,2 +1,1 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+Executive ability is prominent in your make-up.
