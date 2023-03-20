@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+Tonight's the night: Sleep in a eucalyptus tree.
