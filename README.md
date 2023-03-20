@@ -1,1 +1,1 @@
-Beware the one behind you.
+You teach best what you most need to learn.
