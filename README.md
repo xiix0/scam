@@ -1,1 +1,2 @@
-It was all so different before everything changed.
+Conscience doth make cowards of us all.
+		-- Shakespeare
