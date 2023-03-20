@@ -1,2 +1,1 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+Change your thoughts and you change your world.
