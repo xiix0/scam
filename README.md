@@ -1,1 +1,1 @@
-It may or may not be worthwhile, but it still has to be done.
+You're working under a slight handicap.  You happen to be human.
