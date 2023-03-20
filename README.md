@@ -1,1 +1,1 @@
-You will be honored for contributing your time and skill to a worthy cause.
+It may or may not be worthwhile, but it still has to be done.
