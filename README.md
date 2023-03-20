@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You will be recognized and honored as a community leader.
