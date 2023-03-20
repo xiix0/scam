@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+You are only young once, but you can stay immature indefinitely.
