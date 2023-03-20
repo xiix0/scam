@@ -1,2 +1,1 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+Good day to deal with people in high places; particularly lonely stewardesses.
