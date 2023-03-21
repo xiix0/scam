@@ -1,2 +1,2 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
