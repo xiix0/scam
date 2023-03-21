@@ -1,1 +1,2 @@
-You will live a long, healthy, happy life and make bags of money.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
