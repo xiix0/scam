@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
