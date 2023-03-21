@@ -1,3 +1,2 @@
-Someone is speaking well of you.
-
-How unusual!
+Don't Worry, Be Happy.
+		-- Meher Baba
