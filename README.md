@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+Your aim is high and to the right.
