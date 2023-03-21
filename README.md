@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+If your life was a horse, you'd have to shoot it.
