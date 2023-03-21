@@ -1,3 +1,5 @@
-Q:	Why should you always serve a Southern Carolina football man
-	soup in a plate?
-A:	'Cause if you give him a bowl, he'll throw it away.
+Q:	How does the Polish Constitution differ from the American?
+A:	Under the Polish Constitution citizens are guaranteed freedom of
+	speech, but under the United States constitution they are
+	guaranteed freedom after speech.
+		-- being told in Poland, 1987
