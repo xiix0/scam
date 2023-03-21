@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+A few hours grace before the madness begins again.
