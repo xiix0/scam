@@ -1,2 +1,2 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
