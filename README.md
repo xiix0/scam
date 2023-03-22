@@ -1,2 +1,1 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+People are beginning to notice you.  Try dressing before you leave the house.
