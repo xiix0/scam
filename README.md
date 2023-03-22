@@ -1,1 +1,1 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
