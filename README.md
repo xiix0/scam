@@ -1,1 +1,2 @@
-You will step on the night soil of many countries.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
