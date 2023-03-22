@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
