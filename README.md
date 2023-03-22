@@ -1,1 +1,3 @@
-A few hours grace before the madness begins again.
+Someone is speaking well of you.
+
+How unusual!
