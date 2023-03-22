@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+You are fighting for survival in your own sweet and gentle way.
