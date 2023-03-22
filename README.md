@@ -1,1 +1,1 @@
-Long life is in store for you.
+Try to have as good a life as you can under the circumstances.
