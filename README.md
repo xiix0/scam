@@ -1,1 +1,2 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
