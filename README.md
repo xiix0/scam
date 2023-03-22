@@ -1,1 +1,1 @@
-You will wish you hadn't.
+You will feel hungry again in another hour.
