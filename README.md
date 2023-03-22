@@ -1,1 +1,2 @@
-Just to have it is enough.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
