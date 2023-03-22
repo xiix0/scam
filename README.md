@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+Among the lucky, you are the chosen one.
