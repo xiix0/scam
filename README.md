@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+You will forget that you ever knew me.
