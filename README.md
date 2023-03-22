@@ -1,1 +1,2 @@
-You too can wear a nose mitten.
+You tread upon my patience.
+		-- William Shakespeare, "Henry IV"
