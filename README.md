@@ -1,1 +1,2 @@
-You will be divorced within a year.
+Too much is just enough.
+		-- Mark Twain, on whiskey
