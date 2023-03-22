@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
