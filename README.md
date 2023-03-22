@@ -1,1 +1,1 @@
-You dialed 5483.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
