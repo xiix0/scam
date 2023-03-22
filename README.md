@@ -1,1 +1,2 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
