@@ -1,2 +1,2 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
