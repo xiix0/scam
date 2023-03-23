@@ -1,1 +1,2 @@
-You need more time; and you probably always will.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
