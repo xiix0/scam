@@ -1,2 +1,1 @@
-There is a great discovery still to be made in Literature: that of
-paying literary men by the quantity they do NOT write.
+You are so boring that when I see you my feet go to sleep.
