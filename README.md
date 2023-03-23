@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+You have a strong desire for a home and your family interests come first.
