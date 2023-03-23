@@ -1,2 +1,3 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+A banker is a fellow who lends you his umbrella when the sun is shining
+and wants it back the minute it begins to rain.
+		-- Mark Twain
