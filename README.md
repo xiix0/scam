@@ -1,2 +1,1 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+You'll be called to a post requiring ability in handling groups of people.
