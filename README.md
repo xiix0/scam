@@ -1,2 +1,2 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Something's rotten in the state of Denmark.
+		-- Shakespeare
