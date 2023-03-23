@@ -1,2 +1,1 @@
-When angry, count four; when very angry, swear.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You will win success in whatever calling you adopt.
