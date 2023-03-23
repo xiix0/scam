@@ -1,1 +1,2 @@
-If you sow your wild oats, hope for a crop failure.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
