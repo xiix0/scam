@@ -1,1 +1,2 @@
-Is that really YOU that is reading this?
+Fine day for friends.
+So-so day for you.
