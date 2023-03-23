@@ -1,1 +1,2 @@
-You are so boring that when I see you my feet go to sleep.
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
