@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
