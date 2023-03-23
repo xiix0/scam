@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+A gift of a flower will soon be made to you.
