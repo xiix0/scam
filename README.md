@@ -1,1 +1,2 @@
-Your aims are high, and you are capable of much.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
