@@ -1,2 +1,2 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
