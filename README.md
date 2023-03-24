@@ -1,2 +1,2 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
