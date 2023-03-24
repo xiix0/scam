@@ -1,2 +1,2 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+Q:	What do you have when you have a lawyer buried up to his neck in sand?
+A:	Not enough sand.
