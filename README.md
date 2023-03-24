@@ -1,2 +1,2 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
