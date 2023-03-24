@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+You have an unusual equipment for success.  Be sure to use it properly.
