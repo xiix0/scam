@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
