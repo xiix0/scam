@@ -1,1 +1,2 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
