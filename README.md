@@ -1,1 +1,1 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+You will hear good news from one you thought unfriendly to you.
