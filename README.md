@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
