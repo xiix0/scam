@@ -1,1 +1,2 @@
-Tomorrow will be cancelled due to lack of interest.
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
