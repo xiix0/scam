@@ -1,2 +1,1 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+Be security conscious -- National defense is at stake.
