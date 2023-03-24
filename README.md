@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+Do nothing unless you must, and when you must act -- hesitate.
