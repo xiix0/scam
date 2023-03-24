@@ -1,2 +1,3 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
