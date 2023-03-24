@@ -1,2 +1,2 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
