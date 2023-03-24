@@ -1,1 +1,2 @@
-Be careful!  UGLY strikes 9 out of 10!
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
