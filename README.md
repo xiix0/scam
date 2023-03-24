@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+Be careful!  UGLY strikes 9 out of 10!
