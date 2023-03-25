@@ -1,2 +1,1 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+You're definitely on their list.  The question to ask next is what list it is.
