@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+You have a strong desire for a home and your family interests come first.
