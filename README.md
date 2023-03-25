@@ -1,2 +1,2 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
