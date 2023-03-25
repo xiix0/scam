@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+You'll feel much better once you've given up hope.
