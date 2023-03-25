@@ -1,1 +1,2 @@
-Don't you wish you had more energy... or less ambition?
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
