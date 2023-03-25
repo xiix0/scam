@@ -1,2 +1,1 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+You definitely intend to start living sometime soon.
