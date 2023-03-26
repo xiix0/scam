@@ -1,1 +1,2 @@
-Long life is in store for you.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
