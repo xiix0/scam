@@ -1,2 +1,1 @@
-Q:	Why did the WASP cross the road?
-A:	To get to the middle.
+Your depth of comprehension may tend to make you lax in worldly ways.
