@@ -1,3 +1,2 @@
-A classic is something that everyone wants to have read
-and nobody wants to read.
-		-- Mark Twain, "The Disappearance of Literature"
+Q:	What do Winnie the Pooh and John the Baptist have in common?
+A:	The same middle name.
