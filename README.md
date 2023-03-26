@@ -1,2 +1,3 @@
-Q:	What do agnostic, insomniac dyslexics do at night?
-A:	Stay awake and wonder if there's a dog.
+A classic is something that everyone wants to have read
+and nobody wants to read.
+		-- Mark Twain, "The Disappearance of Literature"
