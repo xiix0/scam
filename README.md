@@ -1,1 +1,1 @@
-You will have a long and unpleasant discussion with your supervisor.
+You will experience a strong urge to do good; but it will pass.
