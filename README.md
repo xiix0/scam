@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
