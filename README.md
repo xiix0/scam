@@ -1,2 +1,2 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
