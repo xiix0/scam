@@ -1,1 +1,2 @@
-Chicken Little only has to be right once.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
