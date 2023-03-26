@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+Avert misunderstanding by calm, poise, and balance.
