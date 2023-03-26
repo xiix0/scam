@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
