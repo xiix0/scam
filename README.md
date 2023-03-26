@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+Chicken Little only has to be right once.
