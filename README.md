@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+Write yourself a threatening letter and pen a defiant reply.
