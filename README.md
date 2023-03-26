@@ -1,2 +1,5 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
