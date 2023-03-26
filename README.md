@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+You will gain money by a fattening action.
