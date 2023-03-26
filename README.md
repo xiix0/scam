@@ -1,1 +1,2 @@
-Truth will out this morning.  (Which may really mess things up.)
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
