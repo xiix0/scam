@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
