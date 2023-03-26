@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+Long life is in store for you.
