@@ -1,4 +1,5 @@
-Q:	What's the difference between the 1950's and the 1980's?
-A:	In the 80's, a man walks into a drugstore and states loudly, "I'd
-	like some condoms," and then, leaning over the counter, whispers,
-	"and some cigarettes."
+Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
+sword wielding purple fish glued to Harley-Davidson motorcycles.
+
+Oh, and have a nice day!
+		-- Bryce Nesbitt '84
