@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+Executive ability is prominent in your make-up.
