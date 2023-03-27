@@ -1,1 +1,1 @@
-You will be successful in love.
+Your lover will never wish to leave you.
