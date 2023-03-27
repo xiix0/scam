@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+You'll feel much better once you've given up hope.
