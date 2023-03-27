@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
