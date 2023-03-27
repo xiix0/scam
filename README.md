@@ -1,2 +1,2 @@
-As to the Adjective: when in doubt, strike it out.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
