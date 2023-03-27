@@ -1,1 +1,2 @@
-It may or may not be worthwhile, but it still has to be done.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
