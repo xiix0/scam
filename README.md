@@ -1,2 +1,1 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+Go to a movie tonight.  Darkness becomes you.
