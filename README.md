@@ -1,3 +1,1 @@
-... A solemn, unsmiling, sanctimonious old iceberg who looked like he
-was waiting for a vacancy in the Trinity.
-		-- Mark Twain
+Don't look now, but there is a multi-legged creature on your shoulder.
