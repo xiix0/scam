@@ -1,2 +1,4 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
