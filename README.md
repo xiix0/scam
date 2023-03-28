@@ -1,1 +1,1 @@
-You will have a long and unpleasant discussion with your supervisor.
+Be careful!  UGLY strikes 9 out of 10!
