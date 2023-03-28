@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+You have an ability to sense and know higher truth.
