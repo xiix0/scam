@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+You don't become a failure until you're satisfied with being one.
