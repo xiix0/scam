@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
