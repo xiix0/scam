@@ -1,2 +1,2 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
