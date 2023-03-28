@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
