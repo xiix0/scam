@@ -1,1 +1,3 @@
-Life is to you a dashing and bold adventure.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
