@@ -1,1 +1,2 @@
-You're working under a slight handicap.  You happen to be human.
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
