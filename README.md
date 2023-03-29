@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+Try to get all of your posthumous medals in advance.
