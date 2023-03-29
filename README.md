@@ -1,3 +1,2 @@
-All say, "How hard it is that we have to die"--a strange complaint to come from
-the mouths of people who have had to live.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
