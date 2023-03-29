@@ -1,1 +1,2 @@
-What happened last night can happen again.
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
