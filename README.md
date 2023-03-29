@@ -1,1 +1,1 @@
-You will have a long and boring life.
+It may or may not be worthwhile, but it still has to be done.
