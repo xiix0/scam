@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+You look like a million dollars.  All green and wrinkled.
