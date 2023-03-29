@@ -1,2 +1,3 @@
-Q:	How many IBM CPU's does it take to do a logical right shift?
-A:	33.  1 to hold the bits and 32 to push the register.
+Training is everything.  The peach was once a bitter almond; cauliflower is
+nothing but cabbage with a college education.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
