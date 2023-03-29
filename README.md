@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+You are a very redundant person, that's what kind of person you are.
