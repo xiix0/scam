@@ -1,2 +1,3 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
