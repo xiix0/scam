@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
