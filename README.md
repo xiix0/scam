@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Increased knowledge will help you now.  Have mate's phone bugged.
