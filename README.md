@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+You will be the last person to buy a Chrysler.
