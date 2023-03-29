@@ -1,3 +1,1 @@
-Don't go around saying the world owes you a living.  The world owes you
-nothing.  It was here first.
-		-- Mark Twain
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
