@@ -1,1 +1,2 @@
-Try to get all of your posthumous medals in advance.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
