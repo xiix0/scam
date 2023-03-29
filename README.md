@@ -1,1 +1,1 @@
-Your step will soil many countries.
+If you can read this, you're too close.
