@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+Don't read everything you believe.
