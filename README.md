@@ -1,1 +1,2 @@
-You will meet an important person who will help you advance professionally.
+Too much is just enough.
+		-- Mark Twain, on whiskey
