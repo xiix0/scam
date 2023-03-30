@@ -1,1 +1,2 @@
-You will gain money by an illegal action.
+Big book, big bore.
+		-- Callimachus
