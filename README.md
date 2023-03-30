@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+You will meet an important person who will help you advance professionally.
