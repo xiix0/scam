@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
