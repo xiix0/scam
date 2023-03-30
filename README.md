@@ -1,2 +1,1 @@
-Troubled day for virgins over 16 who are beautiful and wealthy and live
-in eucalyptus trees.
+Tuesday After Lunch is the cosmic time of the week.
