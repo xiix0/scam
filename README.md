@@ -1,2 +1,2 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
