@@ -1,1 +1,2 @@
-You will have good luck and overcome many hardships.
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
