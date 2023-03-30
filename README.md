@@ -1,2 +1,2 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
