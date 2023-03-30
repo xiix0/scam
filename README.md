@@ -1,2 +1,1 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+Executive ability is prominent in your make-up.
