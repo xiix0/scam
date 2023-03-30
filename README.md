@@ -1,2 +1,2 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
