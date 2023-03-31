@@ -1,1 +1,2 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+The first thing we do, let's kill all the lawyers.
+		-- Wm. Shakespeare, "Henry VI", Part IV
