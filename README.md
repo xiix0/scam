@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+Expect a letter from a friend who will ask a favor of you.
