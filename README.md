@@ -1,2 +1,1 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+Go to a movie tonight.  Darkness becomes you.
