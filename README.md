@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
