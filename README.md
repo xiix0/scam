@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Learn to pause -- or nothing worthwhile can catch up to you.
