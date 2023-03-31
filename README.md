@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
