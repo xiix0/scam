@@ -1,2 +1,2 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
