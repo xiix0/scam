@@ -1,1 +1,2 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+He is now rising from affluence to poverty.
+		-- Mark Twain
