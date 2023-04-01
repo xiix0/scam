@@ -1,2 +1,3 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
