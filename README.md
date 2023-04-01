@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+You will have long and healthy life.
