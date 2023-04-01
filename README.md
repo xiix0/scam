@@ -1,1 +1,2 @@
-Your nature demands love and your happiness depends on it.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
