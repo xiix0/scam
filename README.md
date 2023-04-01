@@ -1,2 +1,2 @@
-Q:	Why do firemen wear red suspenders?
-A:	To conform with departmental regulations concerning uniform dress.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
