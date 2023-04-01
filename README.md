@@ -1,1 +1,2 @@
-You will be called upon to help a friend in trouble.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
