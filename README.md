@@ -1,1 +1,2 @@
-Your aim is high and to the right.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
