@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+After your lover has gone you will still have PEANUT BUTTER!
