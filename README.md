@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+You can create your own opportunities this week.  Blackmail a senior executive.
