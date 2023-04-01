@@ -1,1 +1,2 @@
-Perfect day for scrubbing the floor and other exciting things.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
