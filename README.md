@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+You will live to see your grandchildren.
