@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+Your aims are high, and you are capable of much.
