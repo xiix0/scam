@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+Today is the first day of the rest of your life.
