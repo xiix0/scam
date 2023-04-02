@@ -1,2 +1,1 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+Your life would be very empty if you had nothing to regret.
