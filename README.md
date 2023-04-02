@@ -1,1 +1,2 @@
-You will gain money by an illegal action.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
