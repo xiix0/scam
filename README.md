@@ -1,1 +1,1 @@
-In the stairway of life, you'd best take the elevator.
+Beauty and harmony are as necessary to you as the very breath of life.
