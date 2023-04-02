@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Good day to deal with people in high places; particularly lonely stewardesses.
