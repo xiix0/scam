@@ -1,1 +1,3 @@
-Your life would be very empty if you had nothing to regret.
+You may my glories and my state dispose,
+But not my griefs; still am I king of those.
+		-- William Shakespeare, "Richard II"
