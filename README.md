@@ -1,1 +1,4 @@
-You're not my type.  For that matter, you're not even my species!!!
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
