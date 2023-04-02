@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+Learn to pause -- or nothing worthwhile can catch up to you.
