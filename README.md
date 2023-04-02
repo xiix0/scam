@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+You are going to have a new love affair.
