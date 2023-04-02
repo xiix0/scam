@@ -1,2 +1,2 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
