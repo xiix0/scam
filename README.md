@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+Wagner's music is better than it sounds.
+		-- Mark Twain
