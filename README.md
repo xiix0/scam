@@ -1,1 +1,3 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
