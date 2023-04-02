@@ -1,2 +1,1 @@
-There is always one thing to remember: writers are always selling somebody out.
-		-- Joan Didion, "Slouching Towards Bethlehem"
+Love is in the offing.  Be affectionate to one who adores you.
