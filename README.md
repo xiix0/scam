@@ -1,1 +1,2 @@
-Is that really YOU that is reading this?
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
