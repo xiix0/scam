@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+You will probably marry after a very brief courtship.
