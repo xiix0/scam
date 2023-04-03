@@ -1,2 +1,1 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+Today is the tomorrow you worried about yesterday.
