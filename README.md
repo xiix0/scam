@@ -1,2 +1,2 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
