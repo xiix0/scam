@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+You have a strong desire for a home and your family interests come first.
