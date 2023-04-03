@@ -1,2 +1,2 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
