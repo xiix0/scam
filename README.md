@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
