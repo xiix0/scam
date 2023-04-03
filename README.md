@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
