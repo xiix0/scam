@@ -1,1 +1,2 @@
-Today is the tomorrow you worried about yesterday.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
