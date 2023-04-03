@@ -1,1 +1,2 @@
-You have a strong desire for a home and your family interests come first.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
