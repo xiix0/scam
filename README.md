@@ -1,1 +1,3 @@
-An avocado-tone refrigerator would look good on your resume.
+Questionable day.
+
+Ask somebody something.
