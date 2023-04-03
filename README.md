@@ -1,2 +1,3 @@
-When you are about to die, a wombat is better than no company at all.
-		-- Roger Zelazny, "Doorways in the Sand"
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
