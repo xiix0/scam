@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
