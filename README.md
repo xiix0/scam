@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+Hope that the day after you die is a nice day.
