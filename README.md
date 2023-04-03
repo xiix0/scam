@@ -1,1 +1,2 @@
-You will live a long, healthy, happy life and make bags of money.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
