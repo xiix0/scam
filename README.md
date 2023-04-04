@@ -1,1 +1,2 @@
-You will be honored for contributing your time and skill to a worthy cause.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
