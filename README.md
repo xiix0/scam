@@ -1,3 +1,4 @@
-This is the first age that's paid much attention to the future, which is a
-little ironic since we may not have one.
-		-- Arthur Clarke
+Swerve me?  The path to my fixed purpose is laid with iron rails,
+whereon my soul is grooved to run.  Over unsounded gorges, through
+the rifled hearts of mountains, under torrents' beds, unerringly I rush!
+		-- Captain Ahab, "Moby Dick"
