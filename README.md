@@ -1,1 +1,2 @@
-A day for firm decisions!!!!!  Or is it?
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
