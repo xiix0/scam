@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+Are you ever going to do the dishes?  Or will you change your major to biology?
