@@ -1,2 +1,2 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
