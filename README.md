@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You will be honored for contributing your time and skill to a worthy cause.
