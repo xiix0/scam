@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+All the troubles you have will pass away very quickly.
