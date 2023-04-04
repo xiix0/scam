@@ -1,1 +1,1 @@
-Day of inquiry.  You will be subpoenaed.
+You are a fluke of the universe; you have no right to be here.
