@@ -1,5 +1,4 @@
-Q:	How does the Polish Constitution differ from the American?
-A:	Under the Polish Constitution citizens are guaranteed freedom of
-	speech, but under the United States constitution they are
-	guaranteed freedom after speech.
-		-- being told in Poland, 1987
+Whoever has lived long enough to find out what life is, knows how deep a debt
+of gratitude we owe to Adam, the first great benefactor of our race.  He
+brought death into the world.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
