@@ -1,2 +1,1 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+You have the capacity to learn from mistakes.  You'll learn a lot today.
