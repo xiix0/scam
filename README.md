@@ -1,2 +1,3 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
