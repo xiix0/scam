@@ -1,1 +1,1 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+You will be held hostage by a radical group.
