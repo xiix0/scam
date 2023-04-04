@@ -1,1 +1,2 @@
-Your sister swims out to meet troop ships.
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
