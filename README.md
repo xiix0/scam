@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
