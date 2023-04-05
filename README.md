@@ -1,2 +1,1 @@
-Q:	How many college football players does it take to screw in a light bulb?
-A:	Only one, but he gets three credits for it.
+Let me put it this way: today is going to be a learning experience.
