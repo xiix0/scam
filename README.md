@@ -1,1 +1,2 @@
-You will win success in whatever calling you adopt.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
