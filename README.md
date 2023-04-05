@@ -1,2 +1,2 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
