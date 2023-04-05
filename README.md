@@ -1,3 +1,6 @@
-There is an old time toast which is golden for its beauty.
-"When you ascend the hill of prosperity may you not meet a friend."
-		-- Mark Twain
+Q:	How many journalists does it take to screw in a light bulb?
+A:	Three.  One to report it as an inspired government program to bring
+	light to the people, one to report it as a diabolical government plot
+	to deprive the poor of darkness, and one to win a Pulitzer prize for
+	reporting that Electric Company hired a light bulb-assassin to break
+	the bulb in the first place.
