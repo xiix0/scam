@@ -1,1 +1,2 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
