@@ -1,2 +1,2 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
