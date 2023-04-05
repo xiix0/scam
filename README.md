@@ -1,3 +1,2 @@
-Q:	Why does Washington have the most lawyers per capita and
-	New Jersey the most toxic waste dumps?
-A:	God gave New Jersey first choice.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
