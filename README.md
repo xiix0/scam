@@ -1,1 +1,1 @@
-Just to have it is enough.
+Courage is your greatest present need.
