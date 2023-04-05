@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+Hope that the day after you die is a nice day.
