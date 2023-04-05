@@ -1,1 +1,2 @@
-You will meet an important person who will help you advance professionally.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
