@@ -1,1 +1,2 @@
-You will be honored for contributing your time and skill to a worthy cause.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
