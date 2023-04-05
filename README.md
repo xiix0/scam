@@ -1,3 +1,3 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+Someone is speaking well of you.
+
+How unusual!
