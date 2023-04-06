@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Stay away from flying saucers today.
