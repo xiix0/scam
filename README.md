@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+Don't read any sky-writing for the next two weeks.
