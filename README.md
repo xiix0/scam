@@ -1,1 +1,3 @@
-Tomorrow, you can be anywhere.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
