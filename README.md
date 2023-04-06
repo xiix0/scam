@@ -1,3 +1,1 @@
-Q:	Why do the police always travel in threes?
-A:	One to do the reading, one to do the writing, and the other keeps
-	an eye on the two intellectuals.
+You prefer the company of the opposite sex, but are well liked by your own.
