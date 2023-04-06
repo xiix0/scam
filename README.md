@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+Tomorrow, you can be anywhere.
