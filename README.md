@@ -1,3 +1,1 @@
-Hain't we got all the fools in town on our side?  And hain't that a big
-enough majority in any town?
-		-- Mark Twain, "Huckleberry Finn"
+Don't relax!  It's only your tension that's holding you together.
