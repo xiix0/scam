@@ -1,2 +1,4 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+"I understand this is your first dead client," Sabian was saying.  The
+absurdity of the statement made me want to laugh but they don't call me
+Deadpan Allie and lie.
+		-- Pat Cadigan, "Mindplayers"
