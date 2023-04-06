@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Keep emotionally active.  Cater to your favorite neurosis.
