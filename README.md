@@ -1,3 +1,3 @@
-Reader, suppose you were an idiot.  And suppose you were a member of
-Congress.  But I repeat myself.
-		-- Mark Twain
+Q:	How many mathematicians does it take to screw in a light bulb?
+A:	One.  He gives it to six Californians, thereby reducing the problem
+	to the earlier joke.
