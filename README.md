@@ -1,2 +1,1 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
