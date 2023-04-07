@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Your object is to save the world, while still leading a pleasant life.
