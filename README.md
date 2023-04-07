@@ -1,1 +1,1 @@
-You will outgrow your usefulness.
+You are fighting for survival in your own sweet and gentle way.
