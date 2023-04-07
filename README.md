@@ -1,2 +1,2 @@
-Q:	What do you get when you cross the Godfather with an attorney?
-A:	An offer you can't understand.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
