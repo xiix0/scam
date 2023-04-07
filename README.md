@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+There was a phone call for you.
