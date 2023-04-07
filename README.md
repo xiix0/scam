@@ -1,1 +1,2 @@
-You are a bundle of energy, always on the go.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
