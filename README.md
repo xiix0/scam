@@ -1,2 +1,2 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
