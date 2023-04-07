@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
