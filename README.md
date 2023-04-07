@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You will be imprisoned for contributing your time and skill to a bank robbery.
