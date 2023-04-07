@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+You have a truly strong individuality.
