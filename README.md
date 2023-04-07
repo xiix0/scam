@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
