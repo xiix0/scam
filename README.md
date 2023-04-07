@@ -1,1 +1,2 @@
-You will be the victim of a bizarre joke.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
