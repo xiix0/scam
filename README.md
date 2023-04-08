@@ -1,1 +1,1 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+You will be aided greatly by a person whom you thought to be unimportant.
