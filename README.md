@@ -1,1 +1,2 @@
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
