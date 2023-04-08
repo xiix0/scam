@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+You are going to have a new love affair.
