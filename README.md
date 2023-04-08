@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Don't tell any big lies today.  Small ones can be just as effective.
