@@ -1,1 +1,1 @@
-You will be run over by a bus.
+Your boss is a few sandwiches short of a picnic.
