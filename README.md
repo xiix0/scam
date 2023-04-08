@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+You have an unusual equipment for success.  Be sure to use it properly.
