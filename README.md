@@ -1,5 +1,4 @@
-Steady movement is more important than speed, much of the time.  So long
-as there is a regular progression of stimuli to get your mental hooks
-into, there is room for lateral movement.  Once this begins, its rate is
-a matter of discretion.
-		-- Corwin, Prince of Amber
+O, it is excellent
+To have a giant's strength; but it is tyrannous
+To use it like a giant.
+		-- Shakespeare, "Measure for Measure", II, 2
