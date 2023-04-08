@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+Keep emotionally active.  Cater to your favorite neurosis.
