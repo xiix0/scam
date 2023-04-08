@@ -1,2 +1,1 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
