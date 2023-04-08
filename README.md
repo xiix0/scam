@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+Your sister swims out to meet troop ships.
