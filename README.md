@@ -1,2 +1,1 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+You don't become a failure until you're satisfied with being one.
