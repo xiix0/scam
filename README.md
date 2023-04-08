@@ -1,1 +1,3 @@
-Your business will assume vast proportions.
+Someone is speaking well of you.
+
+How unusual!
