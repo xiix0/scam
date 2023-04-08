@@ -1,2 +1,2 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
