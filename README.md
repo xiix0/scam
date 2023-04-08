@@ -1,2 +1,2 @@
-The fashion wears out more apparel than the man.
-		-- William Shakespeare, "Much Ado About Nothing"
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
