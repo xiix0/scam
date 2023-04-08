@@ -1,1 +1,2 @@
-A visit to a strange place will bring fresh work.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
