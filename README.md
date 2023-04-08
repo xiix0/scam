@@ -1,1 +1,3 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
