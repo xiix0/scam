@@ -1,1 +1,2 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
