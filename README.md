@@ -1,2 +1,1 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+An avocado-tone refrigerator would look good on your resume.
