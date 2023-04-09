@@ -1,2 +1,1 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+It's lucky you're going so slowly, because you're going in the wrong direction.
