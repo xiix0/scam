@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+You're at the end of the road again.
