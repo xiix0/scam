@@ -1,2 +1,2 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
