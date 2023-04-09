@@ -1,1 +1,1 @@
-Your business will assume vast proportions.
+Try the Moo Shu Pork.  It is especially good today.
