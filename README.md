@@ -1,2 +1,1 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+You have a strong desire for a home and your family interests come first.
