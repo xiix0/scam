@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
