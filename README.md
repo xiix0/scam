@@ -1,1 +1,1 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+You never know how many friends you have until you rent a house on the beach.
