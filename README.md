@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
