@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+You would if you could but you can't so you won't.
