@@ -1,1 +1,2 @@
-You will be awarded some great honor.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
