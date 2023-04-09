@@ -1,1 +1,2 @@
-You have a strong desire for a home and your family interests come first.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
