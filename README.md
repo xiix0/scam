@@ -1,2 +1,2 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
