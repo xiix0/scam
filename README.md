@@ -1,2 +1,2 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Q:	Are we not men?
+A:	We are Vaxen.
