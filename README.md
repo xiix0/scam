@@ -1,3 +1,4 @@
-It has long been an axiom of mine that the little things are infinitely
-the most important.
-		-- Sir Arthur Conan Doyle, "A Case of Identity"
+Behold, the fool saith, "Put not all thine eggs in the one basket"--which is
+but a manner of saying, "Scatter your money and your attention;" but the wise
+man saith, "Put all your eggs in the one basket and--WATCH THAT BASKET."
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
