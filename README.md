@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Your talents will be recognized and suitably rewarded.
