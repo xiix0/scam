@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
