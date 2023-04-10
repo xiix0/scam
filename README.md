@@ -1,2 +1,2 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
