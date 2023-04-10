@@ -1,2 +1,2 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
