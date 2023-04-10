@@ -1,1 +1,2 @@
-Don't you feel more like you do now than you did when you came in?
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
