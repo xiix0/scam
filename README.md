@@ -1,1 +1,2 @@
-You will step on the night soil of many countries.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
