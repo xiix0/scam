@@ -1,1 +1,2 @@
-You will never know hunger.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
