@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You have a deep appreciation of the arts and music.
