@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+You are capable of planning your future.
