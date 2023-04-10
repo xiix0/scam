@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+You will never know hunger.
