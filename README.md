@@ -1,2 +1,2 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
