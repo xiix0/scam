@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+You will be reincarnated as a toad; and you will be much happier.
