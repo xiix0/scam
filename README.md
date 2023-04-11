@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+You have Egyptian flu: you're going to be a mummy.
