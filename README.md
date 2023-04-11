@@ -1,1 +1,2 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
