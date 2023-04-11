@@ -1,1 +1,2 @@
-Don't you wish you had more energy... or less ambition?
+You will pay for your sins.  If you have already paid, please disregard
+this message.
