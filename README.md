@@ -1,1 +1,2 @@
-You look tired.
+When in doubt, tell the truth.
+		-- Mark Twain
