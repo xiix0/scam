@@ -1,2 +1,1 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+You will soon meet a person who will play an important role in your life.
