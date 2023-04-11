@@ -1,1 +1,2 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Too much is just enough.
+		-- Mark Twain, on whiskey
