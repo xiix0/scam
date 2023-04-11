@@ -1,3 +1,2 @@
-In the Spring, I have counted 136 different kinds of weather inside of
-24 hours.
-		-- Mark Twain, on New England weather
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
