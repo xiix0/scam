@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
