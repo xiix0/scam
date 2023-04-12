@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+You possess a mind not merely twisted, but actually sprained.
