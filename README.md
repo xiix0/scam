@@ -1,2 +1,2 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
