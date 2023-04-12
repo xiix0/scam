@@ -1,3 +1,1 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+You single-handedly fought your way into this hopeless mess.
