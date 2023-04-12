@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
