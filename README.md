@@ -1,1 +1,1 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+If you stand on your head, you will get footprints in your hair.
