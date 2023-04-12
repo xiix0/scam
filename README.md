@@ -1,2 +1,2 @@
-Q:	Why do mountain climbers rope themselves together?
-A:	To prevent the sensible ones from going home.
+Q:	What's the difference between a duck and an elephant?
+A:	You can't get down off an elephant.
