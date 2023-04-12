@@ -1,1 +1,2 @@
-You will have domestic happiness and faithful friends.
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
