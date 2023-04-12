@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
