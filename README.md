@@ -1,1 +1,2 @@
-You are a fluke of the universe; you have no right to be here.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
