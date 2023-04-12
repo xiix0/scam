@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Your own qualities will help prevent your advancement in the world.
