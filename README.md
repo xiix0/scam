@@ -1,2 +1,1 @@
-Q:	What's the difference between a duck and an elephant?
-A:	You can't get down off an elephant.
+You two ought to be more careful--your love could drag on for years and years.
