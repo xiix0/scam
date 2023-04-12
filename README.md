@@ -1,2 +1,2 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
