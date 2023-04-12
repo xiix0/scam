@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of new developments.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
