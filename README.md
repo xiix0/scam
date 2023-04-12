@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+Do nothing unless you must, and when you must act -- hesitate.
