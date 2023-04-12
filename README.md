@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
