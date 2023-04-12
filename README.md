@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+You're at the end of the road again.
