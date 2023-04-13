@@ -1,2 +1,1 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+Don't you wish you had more energy... or less ambition?
