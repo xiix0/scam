@@ -1,1 +1,2 @@
-Perfect day for scrubbing the floor and other exciting things.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
