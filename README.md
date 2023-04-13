@@ -1,1 +1,2 @@
-If your life was a horse, you'd have to shoot it.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
