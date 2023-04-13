@@ -1,2 +1,3 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
