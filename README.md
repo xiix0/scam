@@ -1,1 +1,2 @@
-Don't you wish you had more energy... or less ambition?
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
