@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+Today is National Existential Ennui Awareness Day.
