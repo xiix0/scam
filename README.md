@@ -1,1 +1,2 @@
-You will be run over by a beer truck.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
