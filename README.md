@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
