@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+You will give someone a piece of your mind, which you can ill afford.
