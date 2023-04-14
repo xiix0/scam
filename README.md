@@ -1,2 +1,2 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
