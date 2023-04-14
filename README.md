@@ -1,1 +1,2 @@
-Don't look back, the lemmings are gaining on you.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
