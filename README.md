@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+Keep emotionally active.  Cater to your favorite neurosis.
