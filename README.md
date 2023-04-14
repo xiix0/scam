@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Is that really YOU that is reading this?
