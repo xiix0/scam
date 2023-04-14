@@ -1,1 +1,1 @@
-You will be divorced within a year.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
