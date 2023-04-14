@@ -1,2 +1,2 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
