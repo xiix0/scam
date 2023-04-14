@@ -1,3 +1,2 @@
-If you pick up a starving dog and make him prosperous, he will not bite you.
-This is the principal difference between a dog and a man.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many Marxists does it take to screw in a light bulb?
+A:	None:  The light bulb contains the seeds of its own revolution.
