@@ -1,2 +1,2 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+After all, all he did was string together a lot of old, well-known quotations.
+		-- H. L. Mencken, on Shakespeare
