@@ -1,1 +1,3 @@
-If you stand on your head, you will get footprints in your hair.
+"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
+for you and me."
+		-- J. R. R. Tolkien
