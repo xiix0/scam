@@ -1,2 +1,2 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+Q:	What's the difference between Bell Labs and the Boy Scouts of America?
+A:	The Boy Scouts have adult supervision.
