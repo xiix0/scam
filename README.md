@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
