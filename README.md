@@ -1,2 +1,2 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
