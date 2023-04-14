@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+You will be singled out for promotion in your work.
