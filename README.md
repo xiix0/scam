@@ -1,2 +1,2 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
