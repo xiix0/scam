@@ -1,1 +1,1 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+You have an unusual equipment for success.  Be sure to use it properly.
