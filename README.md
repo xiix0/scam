@@ -1,2 +1,2 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
