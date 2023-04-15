@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+Don't go surfing in South Dakota for a while.
