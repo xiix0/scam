@@ -1,2 +1,2 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
