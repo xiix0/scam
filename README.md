@@ -1,2 +1,1 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+Ships are safe in harbor, but they were never meant to stay there.
