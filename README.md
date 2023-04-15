@@ -1,1 +1,2 @@
-Ships are safe in harbor, but they were never meant to stay there.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
