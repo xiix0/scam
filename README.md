@@ -1,2 +1,2 @@
-The fashion wears out more apparel than the man.
-		-- William Shakespeare, "Much Ado About Nothing"
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
