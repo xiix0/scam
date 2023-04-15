@@ -1,2 +1,2 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
