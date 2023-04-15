@@ -1,1 +1,2 @@
-Be cautious in your daily affairs.
+Your goose is cooked.
+(Your current chick is burned up too!)
