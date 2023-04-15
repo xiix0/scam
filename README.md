@@ -1,2 +1,2 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
