@@ -1,2 +1,2 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
