@@ -1,2 +1,2 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
