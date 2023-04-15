@@ -1,1 +1,1 @@
-You will soon forget this.
+You have a truly strong individuality.
