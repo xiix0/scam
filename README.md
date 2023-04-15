@@ -1,1 +1,2 @@
-You two ought to be more careful--your love could drag on for years and years.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
