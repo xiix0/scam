@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+What happened last night can happen again.
