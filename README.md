@@ -1,1 +1,1 @@
-Don't relax!  It's only your tension that's holding you together.
+Are you ever going to do the dishes?  Or will you change your major to biology?
