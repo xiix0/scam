@@ -1,1 +1,2 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
