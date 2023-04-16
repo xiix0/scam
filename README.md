@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+Just because the message may never be received does not mean it is
+not worth sending.
