@@ -1,1 +1,1 @@
-You'll never be the man your mother was!
+You're almost as happy as you think you are.
