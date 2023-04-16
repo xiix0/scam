@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
