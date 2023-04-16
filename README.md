@@ -1,1 +1,1 @@
-You will wish you hadn't.
+You have a strong appeal for members of the opposite sex.
