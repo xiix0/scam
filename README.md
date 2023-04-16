@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Of course you have a purpose -- to find a purpose.
