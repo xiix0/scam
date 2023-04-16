@@ -1,2 +1,1 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+A gift of a flower will soon be made to you.
