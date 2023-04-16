@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
