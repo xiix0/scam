@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+Your society will be sought by people of taste and refinement.
