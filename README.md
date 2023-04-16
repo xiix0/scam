@@ -1,2 +1,1 @@
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+Don't relax!  It's only your tension that's holding you together.
