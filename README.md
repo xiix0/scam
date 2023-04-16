@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
