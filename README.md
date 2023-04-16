@@ -1,1 +1,1 @@
-Of course you have a purpose -- to find a purpose.
+You will be held hostage by a radical group.
