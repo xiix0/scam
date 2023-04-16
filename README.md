@@ -1,2 +1,2 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
