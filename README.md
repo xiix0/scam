@@ -1,1 +1,2 @@
-You are deeply attached to your friends and acquaintances.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
