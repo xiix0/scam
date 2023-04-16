@@ -1,3 +1,2 @@
-Q:	What do you call the scratches that you get when a female
-	sheep bites you?
-A:	Ewe nicks.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
