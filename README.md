@@ -1,2 +1,3 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
+A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
+Q:	Who were the Democratic presidential candidates?
