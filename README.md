@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+It's all in the mind, ya know.
