@@ -1,1 +1,1 @@
-You will pass away very quickly.
+You have a truly strong individuality.
