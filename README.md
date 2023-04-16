@@ -1,2 +1,2 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
