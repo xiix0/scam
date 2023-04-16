@@ -1,2 +1,1 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+Write yourself a threatening letter and pen a defiant reply.
