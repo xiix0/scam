@@ -1,1 +1,2 @@
-It's all in the mind, ya know.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
