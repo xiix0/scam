@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+Change your thoughts and you change your world.
