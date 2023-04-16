@@ -1,2 +1,2 @@
-Q:	Why did the WASP cross the road?
-A:	To get to the middle.
+Q:	What is the sound of one cat napping?
+A:	Mu.
