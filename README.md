@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
