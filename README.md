@@ -1,2 +1,1 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+Do what comes naturally.  Seethe and fume and throw a tantrum.
