@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+You will gain money by an illegal action.
