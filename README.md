@@ -1,1 +1,1 @@
-Just to have it is enough.
+Abandon the search for Truth; settle for a good fantasy.
