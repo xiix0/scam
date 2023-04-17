@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+Your boss climbed the corporate ladder, wrong by wrong.
