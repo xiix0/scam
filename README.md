@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+Break into jail and claim police brutality.
