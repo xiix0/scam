@@ -1,1 +1,1 @@
-You will have a long and boring life.
+You will always have good luck in your personal affairs.
