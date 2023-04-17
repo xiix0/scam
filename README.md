@@ -1,1 +1,1 @@
-You never know how many friends you have until you rent a house on the beach.
+You have a strong desire for a home and your family interests come first.
