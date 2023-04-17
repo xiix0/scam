@@ -1,6 +1,7 @@
-There is no character, howsoever good and fine, but it can be destroyed by
-ridicule, howsoever poor and witless.  Observe the ass, for instance: his
-character is about perfect, he is the choicest spirit among all the humbler
-animals, yet see what ridicule has brought him to.  Instead of feeling
-complimented when we are called an ass, we are left in doubt.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+	My dear People.
+	My dear Bagginses and Boffins, and my dear Tooks and Brandybucks,
+and Grubbs, and Chubbs, and Burrowses, and Hornblowers, and Bolgers,
+Bracegirdles, Goodbodies, Brockhouses and Proudfoots.  Also my good
+Sackville Bagginses that I welcome back at last to Bag End.  Today is my
+one hundred and eleventh birthday: I am eleventy-one today!"
+		-- J. R. R. Tolkien
