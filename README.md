@@ -1,1 +1,2 @@
-You possess a mind not merely twisted, but actually sprained.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
