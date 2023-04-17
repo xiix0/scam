@@ -1,1 +1,2 @@
-You are going to have a new love affair.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
