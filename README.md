@@ -1,4 +1,5 @@
-Gratitude and treachery are merely the two extremities of the same procession.
-You have seen all of it that is worth staying for when the band and the gaudy
-officials have gone by.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
+sword wielding purple fish glued to Harley-Davidson motorcycles.
+
+Oh, and have a nice day!
+		-- Bryce Nesbitt '84
