@@ -1,1 +1,1 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+Accent on helpful side of your nature.  Drain the moat.
