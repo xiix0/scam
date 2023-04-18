@@ -1,1 +1,2 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
