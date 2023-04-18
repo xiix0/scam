@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Long life is in store for you.
