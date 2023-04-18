@@ -1,1 +1,1 @@
-You have no real enemies.
+Never be led astray onto the path of virtue.
