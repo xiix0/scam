@@ -1,2 +1,2 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
