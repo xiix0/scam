@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+You have a strong appeal for members of the opposite sex.
