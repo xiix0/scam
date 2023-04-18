@@ -1,1 +1,1 @@
-You're definitely on their list.  The question to ask next is what list it is.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
