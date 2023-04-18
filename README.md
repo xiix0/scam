@@ -1,2 +1,1 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+You like to form new friendships and make new acquaintances.
