@@ -1,1 +1,1 @@
-You are standing on my toes.
+Beware of low-flying butterflies.
