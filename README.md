@@ -1,1 +1,2 @@
-You will be audited by the Internal Revenue Service.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
