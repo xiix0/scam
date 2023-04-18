@@ -1,2 +1,1 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+You have the capacity to learn from mistakes.  You'll learn a lot today.
