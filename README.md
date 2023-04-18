@@ -1,1 +1,2 @@
-Make a wish, it might come true.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
