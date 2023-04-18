@@ -1,2 +1,1 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+A visit to a strange place will bring fresh work.
