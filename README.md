@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
