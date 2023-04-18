@@ -1,1 +1,1 @@
-Your boyfriend takes chocolate from strangers.
+You will not be elected to public office this year.
