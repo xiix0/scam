@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
