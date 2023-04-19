@@ -1,2 +1,3 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
