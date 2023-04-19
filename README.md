@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
