@@ -1,2 +1,1 @@
-If you learn one useless thing every day, in a single year you'll learn
-365 useless things.
+You definitely intend to start living sometime soon.
