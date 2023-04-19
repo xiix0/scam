@@ -1,1 +1,2 @@
-You will pioneer the first Martian colony.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
