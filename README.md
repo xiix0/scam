@@ -1,1 +1,1 @@
-Let me put it this way: today is going to be a learning experience.
+You will probably marry after a very brief courtship.
