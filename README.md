@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+Abandon the search for Truth; settle for a good fantasy.
