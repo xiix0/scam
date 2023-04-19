@@ -1,1 +1,2 @@
-Avert misunderstanding by calm, poise, and balance.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
