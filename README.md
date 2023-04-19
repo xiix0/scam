@@ -1,2 +1,2 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
