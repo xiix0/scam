@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Q:	What's the difference between a duck and an elephant?
+A:	You can't get down off an elephant.
