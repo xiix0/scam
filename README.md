@@ -1,2 +1,4 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+"I understand this is your first dead client," Sabian was saying.  The
+absurdity of the statement made me want to laugh but they don't call me
+Deadpan Allie and lie.
+		-- Pat Cadigan, "Mindplayers"
