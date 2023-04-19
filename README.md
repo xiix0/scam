@@ -1,2 +1,1 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+Fine day to work off excess energy.  Steal something heavy.
