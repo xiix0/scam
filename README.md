@@ -1,2 +1,1 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+Don't look now, but there is a multi-legged creature on your shoulder.
