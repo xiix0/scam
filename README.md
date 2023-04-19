@@ -1,1 +1,2 @@
-There was a phone call for you.
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
