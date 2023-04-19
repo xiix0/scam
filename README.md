@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+Good day to deal with people in high places; particularly lonely stewardesses.
