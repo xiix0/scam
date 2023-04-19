@@ -1,1 +1,2 @@
-Don't go surfing in South Dakota for a while.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
