@@ -1,1 +1,3 @@
-Abandon the search for Truth; settle for a good fantasy.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
