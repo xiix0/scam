@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+You have a strong appeal for members of the opposite sex.
