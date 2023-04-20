@@ -1,2 +1,2 @@
-You learn to write as if to someone else because NEXT YEAR YOU WILL BE
-"SOMEONE ELSE."
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
