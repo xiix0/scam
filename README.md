@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+Avoid reality at all costs.
