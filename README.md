@@ -1,3 +1,2 @@
-Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
-as intelligent as ever.
-		-- Samuel Beckett, "Endgame"
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
