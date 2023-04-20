@@ -1,2 +1,3 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
