@@ -1,1 +1,2 @@
-You will be singled out for promotion in your work.
+Q:	Are we not men?
+A:	We are Vaxen.
