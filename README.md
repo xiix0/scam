@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+You have a will that can be influenced by all with whom you come in contact.
