@@ -1,2 +1,2 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
