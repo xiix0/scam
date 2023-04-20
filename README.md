@@ -1,2 +1,1 @@
-As to the Adjective: when in doubt, strike it out.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Be careful!  UGLY strikes 9 out of 10!
