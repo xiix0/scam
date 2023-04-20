@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
