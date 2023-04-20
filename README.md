@@ -1,1 +1,2 @@
-Be careful!  UGLY strikes 9 out of 10!
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
