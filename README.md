@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+Domestic happiness and faithful friends.
