@@ -1,2 +1,2 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
