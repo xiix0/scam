@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+After your lover has gone you will still have PEANUT BUTTER!
