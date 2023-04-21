@@ -1,2 +1,3 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
