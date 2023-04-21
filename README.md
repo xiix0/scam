@@ -1,1 +1,2 @@
-You will be called upon to help a friend in trouble.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
