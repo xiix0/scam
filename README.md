@@ -1,1 +1,3 @@
-You will receive a legacy which will place you above want.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
