@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Accent on helpful side of your nature.  Drain the moat.
