@@ -1,1 +1,1 @@
-Don't feed the bats tonight.
+In the stairway of life, you'd best take the elevator.
