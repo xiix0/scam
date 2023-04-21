@@ -1,1 +1,3 @@
-You're working under a slight handicap.  You happen to be human.
+So so is good, very good, very excellent good:
+and yet it is not; it is but so so.
+		-- William Shakespeare, "As You Like It"
