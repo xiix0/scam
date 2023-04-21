@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+You will be called upon to help a friend in trouble.
