@@ -1,1 +1,2 @@
-Don't look now, but the man in the moon is laughing at you.
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
