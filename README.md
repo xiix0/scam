@@ -1,1 +1,2 @@
-You definitely intend to start living sometime soon.
+Your goose is cooked.
+(Your current chick is burned up too!)
