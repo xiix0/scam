@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+Try the Moo Shu Pork.  It is especially good today.
