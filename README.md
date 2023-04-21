@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+You will probably marry after a very brief courtship.
