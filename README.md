@@ -1,1 +1,1 @@
-Be different: conform.
+You're working under a slight handicap.  You happen to be human.
