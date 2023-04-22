@@ -1,1 +1,1 @@
-Are you a turtle?
+You are sick, twisted and perverted.  I like that in a person.
