@@ -1,1 +1,1 @@
-You now have Asian Flu.
+You'll feel much better once you've given up hope.
