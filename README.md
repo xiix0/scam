@@ -1,3 +1,2 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
