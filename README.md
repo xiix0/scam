@@ -1,1 +1,2 @@
-Today is the first day of the rest of your life.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
