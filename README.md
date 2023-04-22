@@ -1,2 +1,1 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+Don't you wish you had more energy... or less ambition?
