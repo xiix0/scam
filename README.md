@@ -1,3 +1,3 @@
-Q:	How do you play religious roulette?
-A:	You stand around in a circle and blaspheme and see who gets
-	struck by lightning first.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
