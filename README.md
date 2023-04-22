@@ -1,1 +1,2 @@
-You will have a long and unpleasant discussion with your supervisor.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
