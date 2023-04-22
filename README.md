@@ -1,1 +1,2 @@
-Beware the one behind you.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
