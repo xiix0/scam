@@ -1,1 +1,1 @@
-You will be successful in love.
+You will have a long and unpleasant discussion with your supervisor.
