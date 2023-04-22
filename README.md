@@ -1,3 +1,3 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+Q:	How many psychiatrists does it take to change a light bulb?
+A:	Only one, but it takes a long time, and the light bulb has
+	to really want to change.
