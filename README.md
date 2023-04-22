@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
