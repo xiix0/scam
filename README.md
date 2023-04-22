@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+You're definitely on their list.  The question to ask next is what list it is.
