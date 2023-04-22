@@ -1,2 +1,1 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+You look like a million dollars.  All green and wrinkled.
