@@ -1,3 +1,2 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
