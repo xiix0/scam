@@ -1,1 +1,2 @@
-Stay away from hurricanes for a while.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
