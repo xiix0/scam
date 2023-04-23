@@ -1,3 +1,2 @@
-It has long been an axiom of mine that the little things are infinitely
-the most important.
-		-- Sir Arthur Conan Doyle, "A Case of Identity"
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
