@@ -1,2 +1,1 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Try to have as good a life as you can under the circumstances.
