@@ -1,2 +1,2 @@
-There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
