@@ -1,2 +1,2 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
