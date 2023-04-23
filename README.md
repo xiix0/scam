@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
