@@ -1,1 +1,1 @@
-Give your very best today.  Heaven knows it's little enough.
+Your heart is pure, and your mind clear, and your soul devout.
