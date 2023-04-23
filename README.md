@@ -1,1 +1,2 @@
-Your love life will be... interesting.
+Wagner's music is better than it sounds.
+		-- Mark Twain
