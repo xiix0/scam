@@ -1,1 +1,1 @@
-Try to have as good a life as you can under the circumstances.
+You are as I am with You.
