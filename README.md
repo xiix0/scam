@@ -1,2 +1,2 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
