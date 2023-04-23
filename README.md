@@ -1,2 +1,3 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
