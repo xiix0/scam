@@ -1,2 +1,1 @@
-The naked truth of it is, I have no shirt.
-		-- William Shakespeare, "Love's Labour's Lost"
+You have a strong appeal for members of your own sex.
