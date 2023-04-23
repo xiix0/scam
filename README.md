@@ -1,2 +1,1 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+Tomorrow will be cancelled due to lack of interest.
