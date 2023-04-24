@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Keep emotionally active.  Cater to your favorite neurosis.
