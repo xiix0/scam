@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
