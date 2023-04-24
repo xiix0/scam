@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+You will be advanced socially, without any special effort on your part.
