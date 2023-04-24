@@ -1,6 +1,4 @@
-Q:	How do you shoot a blue elephant?
-A:	With a blue-elephant gun.
-
-Q:	How do you shoot a pink elephant?
-A:	Twist its trunk until it turns blue, then shoot it with
-	a blue-elephant gun.
+You mentioned your name as if I should recognize it, but beyond the
+obvious facts that you are a bachelor, a solicitor, a freemason, and
+an asthmatic, I know nothing whatever about you.
+		-- Sherlock Holmes, "The Norwood Builder"
