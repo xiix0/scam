@@ -1,2 +1,1 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+You will not be elected to public office this year.
