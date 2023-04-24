@@ -1,1 +1,2 @@
-You will be successful in love.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
