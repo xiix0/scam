@@ -1,1 +1,2 @@
-You will gain money by an illegal action.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
