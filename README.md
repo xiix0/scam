@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Do not overtax your powers.
