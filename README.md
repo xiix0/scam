@@ -1,3 +1,5 @@
-I don't know half of you half as well as I should like; and I like less
-than half of you half as well as you deserve.
-		-- J. R. R. Tolkien
+	"You have heard me speak of Professor Moriarty?"
+	"The famous scientific criminal, as famous among crooks as --"
+	"My blushes, Watson," Holmes murmured, in a deprecating voice.
+	"I was about to say 'as he is unknown to the public.'"
+		-- A. Conan Doyle, "The Valley of Fear"
