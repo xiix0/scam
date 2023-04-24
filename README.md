@@ -1,1 +1,2 @@
-You will feel hungry again in another hour.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
