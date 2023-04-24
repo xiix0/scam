@@ -1,2 +1,2 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
