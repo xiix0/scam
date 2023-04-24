@@ -1,1 +1,2 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
