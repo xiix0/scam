@@ -1,1 +1,2 @@
-You will be traveling and coming into a fortune.
+Q:	What do you call a half-dozen Indians with Asian flu?
+A:	Six sick Sikhs (sic).
