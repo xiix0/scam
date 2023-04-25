@@ -1,3 +1,14 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	You won't find a lawyer who can change a light bulb.  Now, if
-	you're looking for a lawyer to screw a light bulb...
+Gone With The Wind LITE(tm)
+	-- by Margaret Mitchell
+
+	A woman only likes men she can't have and the South gets trashed.
+
+Gift of the Magi LITE(tm)
+	-- by O. Henry
+
+	A husband and wife forget to register their gift preferences.
+
+The Old Man and the Sea LITE(tm)
+	-- by Ernest Hemingway
+
+	An old man goes fishing, but doesn't have much luck.
