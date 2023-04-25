@@ -1,2 +1,2 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
