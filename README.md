@@ -1,1 +1,1 @@
-Don't read everything you believe.
+Love is in the offing.  Be affectionate to one who adores you.
