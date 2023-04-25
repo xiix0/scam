@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+Fine day to work off excess energy.  Steal something heavy.
