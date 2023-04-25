@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+You two ought to be more careful--your love could drag on for years and years.
