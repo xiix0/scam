@@ -1,5 +1,2 @@
-Q:	How do you catch a unique rabbit?
-A:	Unique up on it!
-
-Q:	How do you catch a tame rabbit?
-A:	The tame way!
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
