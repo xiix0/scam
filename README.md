@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Try to have as good a life as you can under the circumstances.
