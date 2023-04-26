@@ -1,1 +1,1 @@
-Just to have it is enough.
+You love your home and want it to be beautiful.
