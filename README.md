@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+Hope that the day after you die is a nice day.
