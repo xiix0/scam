@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+Your reasoning powers are good, and you are a fairly good planner.
