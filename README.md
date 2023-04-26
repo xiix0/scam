@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
