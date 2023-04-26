@@ -1,2 +1,2 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
