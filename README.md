@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+You have a strong appeal for members of the opposite sex.
