@@ -1,1 +1,3 @@
-Your object is to save the world, while still leading a pleasant life.
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
