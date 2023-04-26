@@ -1,1 +1,1 @@
-You will be run over by a bus.
+You can create your own opportunities this week.  Blackmail a senior executive.
