@@ -1,1 +1,2 @@
-Excellent day for putting Slinkies on an escalator.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
