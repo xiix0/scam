@@ -1,2 +1,2 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
