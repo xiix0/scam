@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+Alimony and bribes will engage a large share of your wealth.
