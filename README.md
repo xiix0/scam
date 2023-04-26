@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Executive ability is prominent in your make-up.
