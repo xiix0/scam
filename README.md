@@ -1,2 +1,2 @@
-Patch griefs with proverbs.
-		-- William Shakespeare, "Much Ado About Nothing"
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
