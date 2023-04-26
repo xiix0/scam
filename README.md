@@ -1,1 +1,1 @@
-Be careful!  Is it classified?
+You will attract cultured and artistic people to your home.
