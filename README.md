@@ -1,3 +1,5 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
-A:	The Royal Canadian Mounted Police.
-Q:	What was the greatest achievement in taxidermy?
+Q:	How does the Polish Constitution differ from the American?
+A:	Under the Polish Constitution citizens are guaranteed freedom of
+	speech, but under the United States constitution they are
+	guaranteed freedom after speech.
+		-- being told in Poland, 1987
