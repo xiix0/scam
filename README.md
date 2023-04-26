@@ -1,1 +1,2 @@
-Executive ability is prominent in your make-up.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
