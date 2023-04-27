@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Afternoon very favorable for romance.  Try a single person for a change.
