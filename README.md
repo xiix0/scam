@@ -1,4 +1,6 @@
-Behold, the fool saith, "Put not all thine eggs in the one basket"--which is
-but a manner of saying, "Scatter your money and your attention;" but the wise
-man saith, "Put all your eggs in the one basket and--WATCH THAT BASKET."
+There is no character, howsoever good and fine, but it can be destroyed by
+ridicule, howsoever poor and witless.  Observe the ass, for instance: his
+character is about perfect, he is the choicest spirit among all the humbler
+animals, yet see what ridicule has brought him to.  Instead of feeling
+complimented when we are called an ass, we are left in doubt.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
