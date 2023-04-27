@@ -1,2 +1,2 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
