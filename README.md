@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+Your sister swims out to meet troop ships.
