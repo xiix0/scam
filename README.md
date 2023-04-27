@@ -1,2 +1,1 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+You will be reincarnated as a toad; and you will be much happier.
