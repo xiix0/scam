@@ -1,1 +1,2 @@
-Many changes of mind and mood; do not hesitate too long.
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
