@@ -1,1 +1,2 @@
-Don't kiss an elephant on the lips today.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
