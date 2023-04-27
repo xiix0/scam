@@ -1,1 +1,2 @@
-You love your home and want it to be beautiful.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
