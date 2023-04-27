@@ -1,2 +1,1 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
