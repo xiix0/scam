@@ -1,1 +1,2 @@
-You have literary talent that you should take pains to develop.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
