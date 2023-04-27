@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+Learn to pause -- or nothing worthwhile can catch up to you.
