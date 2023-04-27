@@ -1,1 +1,1 @@
-You will be reincarnated as a toad; and you will be much happier.
+Don't kiss an elephant on the lips today.
