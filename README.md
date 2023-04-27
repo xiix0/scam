@@ -1,2 +1,1 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+Give your very best today.  Heaven knows it's little enough.
