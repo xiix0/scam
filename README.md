@@ -1,1 +1,2 @@
-You have an ability to sense and know higher truth.
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
