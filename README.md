@@ -1,1 +1,2 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
