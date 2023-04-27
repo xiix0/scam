@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
