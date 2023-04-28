@@ -1,2 +1,1 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+You're being followed.  Cut out the hanky-panky for a few days.
