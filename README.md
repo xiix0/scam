@@ -1,1 +1,2 @@
-You are going to have a new love affair.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
