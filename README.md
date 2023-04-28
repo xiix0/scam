@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+You will gain money by an illegal action.
