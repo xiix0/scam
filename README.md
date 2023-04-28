@@ -1,2 +1,2 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+Something's rotten in the state of Denmark.
+		-- Shakespeare
