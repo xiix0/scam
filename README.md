@@ -1,2 +1,3 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+Grief can take care of itself; but to get the full value of a joy you must
+have somebody to divide it with.
+		-- Mark Twain
