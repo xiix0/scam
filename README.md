@@ -1,1 +1,2 @@
-You will never know hunger.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
