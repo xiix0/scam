@@ -1,1 +1,2 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+You'll wish that you had done some of the hard things when they were easier
+to do.
