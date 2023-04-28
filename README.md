@@ -1,2 +1,1 @@
-Never laugh at live dragons.
-		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
+Beauty and harmony are as necessary to you as the very breath of life.
