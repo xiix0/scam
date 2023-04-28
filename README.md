@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+You are deeply attached to your friends and acquaintances.
