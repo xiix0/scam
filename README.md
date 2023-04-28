@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+You may get an opportunity for advancement today.  Watch it!
