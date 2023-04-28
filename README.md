@@ -1,1 +1,2 @@
-You will gain money by an illegal action.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
