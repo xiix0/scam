@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+You will be traveling and coming into a fortune.
