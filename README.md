@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+Your lucky color has faded.
