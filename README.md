@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+You will have a long and boring life.
