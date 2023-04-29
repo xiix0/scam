@@ -1,1 +1,1 @@
-Your lucky color has faded.
+Beware of a tall blond man with one black shoe.
