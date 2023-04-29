@@ -1,2 +1,2 @@
-You have a reputation for being thoroughly reliable and trustworthy.
-A pity that it's totally undeserved.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
