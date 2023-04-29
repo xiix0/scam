@@ -1,1 +1,2 @@
-Bank error in your favor.  Collect $200.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
