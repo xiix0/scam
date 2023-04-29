@@ -1,2 +1,2 @@
-Q:	What's the difference between Bell Labs and the Boy Scouts of America?
-A:	The Boy Scouts have adult supervision.
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
