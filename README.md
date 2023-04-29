@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
