@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+Do not sleep in a eucalyptus tree tonight.
