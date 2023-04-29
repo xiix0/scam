@@ -1,1 +1,2 @@
-Do not overtax your powers.
+Fine day for friends.
+So-so day for you.
