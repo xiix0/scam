@@ -1,2 +1,3 @@
-He that breaks a thing to find out what it is has left the path of wisdom.
-		-- J.R.R. Tolkien
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
