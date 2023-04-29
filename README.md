@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
