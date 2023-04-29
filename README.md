@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
