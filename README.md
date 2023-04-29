@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+Make a wish, it might come true.
