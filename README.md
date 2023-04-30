@@ -1,2 +1,4 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
