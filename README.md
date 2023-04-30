@@ -1,2 +1,2 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
