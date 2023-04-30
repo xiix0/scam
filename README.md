@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
