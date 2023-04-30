@@ -1,1 +1,2 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
