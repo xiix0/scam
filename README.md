@@ -1,2 +1,1 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
