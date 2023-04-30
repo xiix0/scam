@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+Courage is your greatest present need.
