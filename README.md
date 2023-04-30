@@ -1,2 +1,2 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+Q:	Are we not men?
+A:	We are Vaxen.
