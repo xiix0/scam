@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+You recoil from the crude; you tend naturally toward the exquisite.
