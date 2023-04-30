@@ -1,2 +1,2 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+A is for Apple.
+		-- Hester Pryne
