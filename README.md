@@ -1,1 +1,2 @@
-Try to get all of your posthumous medals in advance.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
