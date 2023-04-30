@@ -1,2 +1,2 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
