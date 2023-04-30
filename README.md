@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+Tonight's the night: Sleep in a eucalyptus tree.
