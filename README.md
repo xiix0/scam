@@ -1,2 +1,2 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+Q:	Are we not men?
+A:	We are Vaxen.
