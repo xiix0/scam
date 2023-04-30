@@ -1,1 +1,2 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
