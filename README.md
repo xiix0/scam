@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Too much is just enough.
+		-- Mark Twain, on whiskey
