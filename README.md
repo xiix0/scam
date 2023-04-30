@@ -1,2 +1,2 @@
-Q:	What's tiny and yellow and very, very, dangerous?
-A:	A canary with the super-user password.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
