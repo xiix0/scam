@@ -1,1 +1,2 @@
-You will be reincarnated as a toad; and you will be much happier.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
