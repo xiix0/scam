@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+Abandon the search for Truth; settle for a good fantasy.
