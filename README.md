@@ -1,3 +1,2 @@
-Hain't we got all the fools in town on our side?  And hain't that a big
-enough majority in any town?
-		-- Mark Twain, "Huckleberry Finn"
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
