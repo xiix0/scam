@@ -1,1 +1,2 @@
-You're currently going through a difficult transition period called "Life."
+After all, all he did was string together a lot of old, well-known quotations.
+		-- H. L. Mencken, on Shakespeare
