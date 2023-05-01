@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
