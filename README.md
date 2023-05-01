@@ -1,1 +1,2 @@
-You work very hard.  Don't try to think as well.
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
