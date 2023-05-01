@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+Things will be bright in P.M.  A cop will shine a light in your face.
