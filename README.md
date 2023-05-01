@@ -1,3 +1,3 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
