@@ -1,1 +1,1 @@
-Blow it out your ear.
+Communicate!  It can't make things any worse.
