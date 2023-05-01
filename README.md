@@ -1,2 +1,2 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
