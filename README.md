@@ -1,2 +1,2 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
