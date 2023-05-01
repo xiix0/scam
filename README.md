@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Alimony and bribes will engage a large share of your wealth.
