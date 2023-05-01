@@ -1,1 +1,3 @@
-Another good night not to sleep in a eucalyptus tree.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
+A:	Chicken Teriyaki.
+Q:	What is the name of the world's oldest kamikaze pilot?
