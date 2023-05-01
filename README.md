@@ -1,3 +1,3 @@
-Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
-A:	Easy.  It's because they can't figure out how to get the little
-	bottles into the typewriter.
+Q:	What do you call a principal female opera singer whose high C
+	is lower than those of other principal female opera singers?
+A:	A deep C diva.
