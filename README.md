@@ -1,2 +1,3 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
+A:	Easy.  It's because they can't figure out how to get the little
+	bottles into the typewriter.
