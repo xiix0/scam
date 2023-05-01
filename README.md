@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+You work very hard.  Don't try to think as well.
