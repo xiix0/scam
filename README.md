@@ -1,2 +1,1 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+You will inherit millions of dollars.
