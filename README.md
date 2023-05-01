@@ -1,1 +1,2 @@
-You will have domestic happiness and faithful friends.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
