@@ -1,7 +1,8 @@
-	My dear People.
-	My dear Bagginses and Boffins, and my dear Tooks and Brandybucks,
-and Grubbs, and Chubbs, and Burrowses, and Hornblowers, and Bolgers,
-Bracegirdles, Goodbodies, Brockhouses and Proudfoots.  Also my good
-Sackville Bagginses that I welcome back at last to Bag End.  Today is my
-one hundred and eleventh birthday: I am eleventy-one today!"
-		-- J. R. R. Tolkien
+Q:	How many Californians does it take to screw in a light bulb?
+A:	Five.  One to screw in the light bulb and four to share the
+		experience.  (Actually, Californians don't screw in
+		light bulbs, they screw in hot tubs.)
+
+Q:	How many Oregonians does it take to screw in a light bulb?
+A:	Three.  One to screw in the light bulb and two to fend off all
+		those Californians trying to share the experience.
