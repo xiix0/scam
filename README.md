@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+Do something unusual today.  Pay a bill.
