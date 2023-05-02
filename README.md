@@ -1,1 +1,2 @@
-You will have good luck and overcome many hardships.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
