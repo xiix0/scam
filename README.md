@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Things will be bright in P.M.  A cop will shine a light in your face.
