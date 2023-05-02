@@ -1,3 +1,3 @@
-Q:	Why is Christmas just like a day at the office?
-A:	You do all of the work and the fat guy in the suit
-	gets all the credit.
+Its name is Public Opinion.  It is held in reverence.  It settles everything.
+Some think it is the voice of God.
+		-- Mark Twain
