@@ -1,2 +1,4 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+You mentioned your name as if I should recognize it, but beyond the
+obvious facts that you are a bachelor, a solicitor, a freemason, and
+an asthmatic, I know nothing whatever about you.
+		-- Sherlock Holmes, "The Norwood Builder"
