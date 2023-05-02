@@ -1,3 +1,2 @@
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
-Some think it is the voice of God.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
 		-- Mark Twain
