@@ -1,1 +1,1 @@
-You dialed 5483.
+You're not my type.  For that matter, you're not even my species!!!
