@@ -1,1 +1,1 @@
-You fill a much-needed gap.
+Communicate!  It can't make things any worse.
