@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
