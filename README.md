@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Your sister swims out to meet troop ships.
