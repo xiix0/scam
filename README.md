@@ -1,1 +1,2 @@
-You will not be elected to public office this year.
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
