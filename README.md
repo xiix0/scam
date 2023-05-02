@@ -1,2 +1,2 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+You'll wish that you had done some of the hard things when they were easier
+to do.
