@@ -1,3 +1,3 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
+Reader, suppose you were an idiot.  And suppose you were a member of
+Congress.  But I repeat myself.
 		-- Mark Twain
