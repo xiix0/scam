@@ -1,2 +1,1 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+Perfect day for scrubbing the floor and other exciting things.
