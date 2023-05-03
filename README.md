@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+Your own qualities will help prevent your advancement in the world.
