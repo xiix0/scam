@@ -1,2 +1,1 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+You have an ambitious nature and may make a name for yourself.
