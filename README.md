@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+You get along very well with everyone except animals and people.
