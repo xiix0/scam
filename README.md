@@ -1,2 +1,1 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+Do nothing unless you must, and when you must act -- hesitate.
