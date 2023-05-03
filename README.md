@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You will get what you deserve.
