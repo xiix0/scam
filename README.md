@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+You will always have good luck in your personal affairs.
