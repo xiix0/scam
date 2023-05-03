@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+So this is it.  We're going to die.
