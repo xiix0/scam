@@ -1,1 +1,2 @@
-Your lover will never wish to leave you.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
