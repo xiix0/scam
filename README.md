@@ -1,2 +1,1 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+You have the capacity to learn from mistakes.  You'll learn a lot today.
