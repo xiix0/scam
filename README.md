@@ -1,2 +1,1 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+You will be imprisoned for contributing your time and skill to a bank robbery.
