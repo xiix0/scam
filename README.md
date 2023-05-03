@@ -1,1 +1,2 @@
-You can rent this space for only $5 a week.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
