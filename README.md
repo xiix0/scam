@@ -1,1 +1,2 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
