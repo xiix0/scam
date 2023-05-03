@@ -1,2 +1,2 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
