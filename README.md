@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+Your lover will never wish to leave you.
