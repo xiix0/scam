@@ -1,2 +1,2 @@
-If you learn one useless thing every day, in a single year you'll learn
-365 useless things.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
