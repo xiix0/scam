@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
