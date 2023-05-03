@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
