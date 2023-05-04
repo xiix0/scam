@@ -1,2 +1,2 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
