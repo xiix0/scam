@@ -1,1 +1,1 @@
-Give your very best today.  Heaven knows it's little enough.
+Let me put it this way: today is going to be a learning experience.
