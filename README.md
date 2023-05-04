@@ -1,2 +1,1 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Courage is your greatest present need.
