@@ -1,2 +1,3 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
