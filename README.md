@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+Try to value useful qualities in one who loves you.
