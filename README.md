@@ -1,3 +1,3 @@
-The difference between the right word and the almost right word is the
-difference between lightning and the lightning bug.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
 		-- Mark Twain
