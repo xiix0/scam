@@ -1,2 +1,2 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+Q:	How many marketing people does it take to change a light bulb?
+A:	I'll have to get back to you on that.
