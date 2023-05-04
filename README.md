@@ -1,2 +1,1 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+Expect a letter from a friend who will ask a favor of you.
