@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+Your nature demands love and your happiness depends on it.
