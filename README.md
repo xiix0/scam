@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
