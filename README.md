@@ -1,1 +1,2 @@
-You have been selected for a secret mission.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
