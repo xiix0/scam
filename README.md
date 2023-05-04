@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+Wagner's music is better than it sounds.
+		-- Mark Twain
