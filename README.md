@@ -1,2 +1,2 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
