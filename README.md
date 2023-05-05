@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+There will be big changes for you but you will be happy.
