@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+Today is the last day of your life so far.
