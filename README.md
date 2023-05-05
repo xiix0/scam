@@ -1,3 +1,1 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
