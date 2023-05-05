@@ -1,1 +1,1 @@
-There will be big changes for you but you will be happy.
+You will be awarded the Nobel Peace Prize... posthumously.
