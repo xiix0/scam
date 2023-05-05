@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You're not my type.  For that matter, you're not even my species!!!
