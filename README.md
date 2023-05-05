@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+Your boss climbed the corporate ladder, wrong by wrong.
