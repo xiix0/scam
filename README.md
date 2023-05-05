@@ -1,1 +1,2 @@
-Are you a turtle?
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
