@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+You may get an opportunity for advancement today.  Watch it!
