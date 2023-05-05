@@ -1,2 +1,2 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
