@@ -1,2 +1,1 @@
-You learn to write as if to someone else because NEXT YEAR YOU WILL BE
-"SOMEONE ELSE."
+Everything that you know is wrong, but you can be straightened out.
