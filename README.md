@@ -1,1 +1,2 @@
-Your lover will never wish to leave you.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
