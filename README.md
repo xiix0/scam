@@ -1,1 +1,1 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+Avoid gunfire in the bathroom tonight.
