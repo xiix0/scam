@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+A tall, dark stranger will have more fun than you.
