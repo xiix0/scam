@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+You will outgrow your usefulness.
