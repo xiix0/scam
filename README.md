@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+You will obey or molten silver will be poured into your ears.
