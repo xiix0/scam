@@ -1,2 +1,2 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+You'll wish that you had done some of the hard things when they were easier
+to do.
