@@ -1,2 +1,2 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+I'll burn my books.
+		-- Christopher Marlowe
