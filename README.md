@@ -1,4 +1,3 @@
-Whenever the literary German dives into a sentence, that is the last
-you are going to see of him until he emerges on the other side of his
-Atlantic with his verb in his mouth.
-		-- Mark Twain "A Connecticut Yankee in King Arthur's Court"
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #19
+A:	To be or not to be.
+Q:	What is the square root of 4b^2?
