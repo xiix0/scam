@@ -1,3 +1,2 @@
-Hain't we got all the fools in town on our side?  And hain't that a big
-enough majority in any town?
-		-- Mark Twain, "Huckleberry Finn"
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
