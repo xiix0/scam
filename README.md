@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Another good night not to sleep in a eucalyptus tree.
