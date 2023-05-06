@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+You will always have good luck in your personal affairs.
