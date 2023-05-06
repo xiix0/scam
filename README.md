@@ -1,1 +1,2 @@
-You will be divorced within a year.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
