@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+There is a great discovery still to be made in Literature: that of
+paying literary men by the quantity they do NOT write.
