@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+You have an unusual equipment for success.  Be sure to use it properly.
