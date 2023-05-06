@@ -1,2 +1,1 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+You have Egyptian flu: you're going to be a mummy.
