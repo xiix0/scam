@@ -1,1 +1,1 @@
-Don't get to bragging.
+You have an ability to sense and know higher truth.
