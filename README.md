@@ -1,1 +1,1 @@
-Of course you have a purpose -- to find a purpose.
+You have an ability to sense and know higher truth.
