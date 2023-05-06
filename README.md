@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+You have an ambitious nature and may make a name for yourself.
