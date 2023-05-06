@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Stay away from hurricanes for a while.
