@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+Of course you have a purpose -- to find a purpose.
