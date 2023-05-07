@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+Your object is to save the world, while still leading a pleasant life.
