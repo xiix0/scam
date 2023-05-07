@@ -1,2 +1,3 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
+A:	That's proprietary information.  Answer available from AT&T on payment
+	of license fee (binary only).
