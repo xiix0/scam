@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
