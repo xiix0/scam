@@ -1,3 +1,1 @@
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
-		-- Mark Twain
+You're currently going through a difficult transition period called "Life."
