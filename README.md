@@ -1,1 +1,2 @@
-You will gain money by an immoral action.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
