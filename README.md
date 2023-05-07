@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+Good day for overcoming obstacles.  Try a steeplechase.
