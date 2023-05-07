@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+Keep emotionally active.  Cater to your favorite neurosis.
