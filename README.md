@@ -1,1 +1,2 @@
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
