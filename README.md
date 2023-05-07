@@ -1,1 +1,2 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
