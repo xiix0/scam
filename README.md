@@ -1,3 +1,2 @@
-... A solemn, unsmiling, sanctimonious old iceberg who looked like he
-was waiting for a vacancy in the Trinity.
+Wrinkles should merely indicate where smiles have been.
 		-- Mark Twain
