@@ -1,1 +1,4 @@
-You don't become a failure until you're satisfied with being one.
+Q:	Why don't Scotsmen ever have coffee the way they like it?
+A:	Well, they like it with two lumps of sugar.  If they drink
+	it at home, they only take one, and if they drink it while
+	visiting, they always take three.
