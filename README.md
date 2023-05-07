@@ -1,1 +1,2 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
