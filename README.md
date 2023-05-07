@@ -1,2 +1,2 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
