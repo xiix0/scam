@@ -1,1 +1,2 @@
-You will have a long and unpleasant discussion with your supervisor.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
