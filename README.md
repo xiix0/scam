@@ -1,1 +1,2 @@
-Don't you wish you had more energy... or less ambition?
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
