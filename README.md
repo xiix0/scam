@@ -1,1 +1,2 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
