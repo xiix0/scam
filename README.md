@@ -1,2 +1,2 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+Too much is just enough.
+		-- Mark Twain, on whiskey
