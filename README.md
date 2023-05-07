@@ -1,2 +1,1 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+You have an unusual equipment for success.  Be sure to use it properly.
