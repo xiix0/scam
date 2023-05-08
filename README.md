@@ -1,1 +1,2 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
