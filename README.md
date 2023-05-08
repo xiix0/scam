@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+You'll feel much better once you've given up hope.
