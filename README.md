@@ -1,2 +1,2 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
