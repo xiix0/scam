@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+There was a phone call for you.
