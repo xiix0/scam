@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Caution: Keep out of reach of children.
