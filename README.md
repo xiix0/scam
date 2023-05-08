@@ -1,1 +1,1 @@
-You have no real enemies.
+Be cautious in your daily affairs.
