@@ -1,1 +1,1 @@
-You will be audited by the Internal Revenue Service.
+Good news from afar can bring you a welcome visitor.
