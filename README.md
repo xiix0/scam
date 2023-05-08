@@ -1,1 +1,2 @@
-Today is the last day of your life so far.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
