@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+You have an unusual equipment for success.  Be sure to use it properly.
