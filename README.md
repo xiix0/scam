@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+Cold hands, no gloves.
