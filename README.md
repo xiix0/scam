@@ -1,1 +1,3 @@
-You have a will that can be influenced by all with whom you come in contact.
+Your manuscript is both good and original, but the part that is good is not
+original and the part that is original is not good.
+		-- Samuel Johnson
