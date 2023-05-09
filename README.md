@@ -1,2 +1,2 @@
-The human race has one really effective weapon, and that is laughter.
+Nothing so needs reforming as other people's habits.
 		-- Mark Twain
