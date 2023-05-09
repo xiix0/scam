@@ -1,1 +1,3 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+Someone is speaking well of you.
+
+How unusual!
