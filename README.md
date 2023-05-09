@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+You've been leading a dog's life.  Stay off the furniture.
