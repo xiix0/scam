@@ -1,1 +1,2 @@
-You have literary talent that you should take pains to develop.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
