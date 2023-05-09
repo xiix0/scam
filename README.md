@@ -1,2 +1,3 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #19
+A:	To be or not to be.
+Q:	What is the square root of 4b^2?
