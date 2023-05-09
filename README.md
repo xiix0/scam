@@ -1,2 +1,2 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
