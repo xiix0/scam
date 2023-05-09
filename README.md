@@ -1,1 +1,1 @@
-Blow it out your ear.
+Time to be aggressive.  Go after a tattooed Virgo.
