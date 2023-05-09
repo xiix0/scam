@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
