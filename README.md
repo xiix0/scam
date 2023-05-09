@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Never be led astray onto the path of virtue.
