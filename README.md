@@ -1,1 +1,2 @@
-You will not be elected to public office this year.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
