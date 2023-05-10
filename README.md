@@ -1,1 +1,2 @@
-You will give someone a piece of your mind, which you can ill afford.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
