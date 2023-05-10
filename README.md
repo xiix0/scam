@@ -1,1 +1,2 @@
-Don't let your mind wander -- it's too little to be let out alone.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
