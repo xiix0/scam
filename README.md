@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+You've been leading a dog's life.  Stay off the furniture.
