@@ -1,1 +1,2 @@
-Beware of a tall blond man with one black shoe.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
