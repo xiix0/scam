@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+Try to value useful qualities in one who loves you.
