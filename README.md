@@ -1,3 +1,3 @@
-I don't know half of you half as well as I should like; and I like less
-than half of you half as well as you deserve.
-		-- J. R. R. Tolkien
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
