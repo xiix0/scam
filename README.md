@@ -1,1 +1,2 @@
-You're working under a slight handicap.  You happen to be human.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
