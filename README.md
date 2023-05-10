@@ -1,1 +1,1 @@
-You may be recognized soon.  Hide.
+Generosity and perfection are your everlasting goals.
