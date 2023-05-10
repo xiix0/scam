@@ -1,1 +1,2 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
