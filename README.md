@@ -1,2 +1,1 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+Q:	How do you keep a moron in suspense?
