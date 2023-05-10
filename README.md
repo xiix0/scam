@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+Love is in the offing.  Be affectionate to one who adores you.
