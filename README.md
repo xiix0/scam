@@ -1,2 +1,6 @@
-Q:	What do you get when you cross a mobster with an international standard?
-A:	You get someone who makes you an offer that you can't understand!
+The lovely woman-child Kaa was mercilessly chained to the cruel post of
+the warrior-chief Beast, with his barbarian tribe now stacking wood at
+her nubile feet, when the strong clear voice of the poetic and heroic
+Handsomas roared, 'Flick your Bic, crisp that chick, and you'll feel my
+steel through your last meal!'
+		-- Winning sentence, 1984 Bulwer-Lytton bad fiction contest.
