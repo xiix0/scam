@@ -1,3 +1,2 @@
-The human race is a race of cowards; and I am not only marching in that
-procession but carrying a banner.
-		-- Mark Twain
+Q:	What do you get when you cross a mobster with an international standard?
+A:	You get someone who makes you an offer that you can't understand!
