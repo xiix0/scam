@@ -1,1 +1,3 @@
-You have had a long-term stimulation relative to business.
+Hain't we got all the fools in town on our side?  And hain't that a big
+enough majority in any town?
+		-- Mark Twain, "Huckleberry Finn"
