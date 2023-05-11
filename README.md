@@ -1,3 +1,2 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
