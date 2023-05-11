@@ -1,1 +1,2 @@
-Best of all is never to have been born.  Second best is to die soon.
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
