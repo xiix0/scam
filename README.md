@@ -1,1 +1,2 @@
-You will give someone a piece of your mind, which you can ill afford.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
