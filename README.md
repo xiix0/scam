@@ -1,3 +1,2 @@
-Q:	What do you call the money you pay to the government when
-	you ride into the country on the back of an elephant?
-A:	A howdah duty.
+Q:	What's the difference between a Mac and an Etch-a-Sketch?
+A:	You don't have to shake the Mac to clear the screen.
