@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+Give your very best today.  Heaven knows it's little enough.
