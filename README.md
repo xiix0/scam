@@ -1,4 +1,3 @@
-Q:	Why don't Scotsmen ever have coffee the way they like it?
-A:	Well, they like it with two lumps of sugar.  If they drink
-	it at home, they only take one, and if they drink it while
-	visiting, they always take three.
+Q:	What do you call the money you pay to the government when
+	you ride into the country on the back of an elephant?
+A:	A howdah duty.
