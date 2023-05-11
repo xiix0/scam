@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+You will give someone a piece of your mind, which you can ill afford.
