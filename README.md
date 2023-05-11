@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+You will win success in whatever calling you adopt.
