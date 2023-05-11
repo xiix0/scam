@@ -1,1 +1,2 @@
-Are you sure the back door is locked?
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
