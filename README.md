@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
