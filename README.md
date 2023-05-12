@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+Are you ever going to do the dishes?  Or will you change your major to biology?
