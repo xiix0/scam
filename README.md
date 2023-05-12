@@ -1,1 +1,2 @@
-The time is right to make new friends.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
