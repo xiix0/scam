@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Future looks spotty.  You will spill soup in late evening.
