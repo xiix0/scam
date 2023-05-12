@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+You will pioneer the first Martian colony.
