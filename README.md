@@ -1,2 +1,1 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
