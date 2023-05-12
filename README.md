@@ -1,1 +1,2 @@
-You will be recognized and honored as a community leader.
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
