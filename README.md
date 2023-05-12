@@ -1,2 +1,1 @@
-This night methinks is but the daylight sick.
-		-- William Shakespeare, "The Merchant of Venice"
+Lady Luck brings added income today.  Lady friend takes it away tonight.
