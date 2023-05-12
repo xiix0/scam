@@ -1,2 +1,1 @@
-Fine day for friends.
-So-so day for you.
+You have an ability to sense and know higher truth.
