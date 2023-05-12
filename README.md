@@ -1,2 +1,2 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+Fine day for friends.
+So-so day for you.
