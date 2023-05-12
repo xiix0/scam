@@ -1,2 +1,2 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
