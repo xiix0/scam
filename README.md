@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+Your aim is high and to the right.
