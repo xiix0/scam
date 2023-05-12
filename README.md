@@ -1,1 +1,2 @@
-You never hesitate to tackle the most difficult problems.
+Q:	Are we not men?
+A:	We are Vaxen.
