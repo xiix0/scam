@@ -1,2 +1,1 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+You are number 6!  Who is number one?
