@@ -1,1 +1,1 @@
-Don't get to bragging.
+The time is right to make new friends.
