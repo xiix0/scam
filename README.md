@@ -1,2 +1,3 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
