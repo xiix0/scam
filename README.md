@@ -1,3 +1,2 @@
-There is an old time toast which is golden for its beauty.
-"When you ascend the hill of prosperity may you not meet a friend."
+Man is the only animal that blushes -- or needs to.
 		-- Mark Twain
