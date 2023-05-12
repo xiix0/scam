@@ -1,3 +1,1 @@
-Q:	What does a WASP Mom make for dinner?
-A:	A crisp salad, a hearty soup, a lovely entree, followed by
-	a delicious dessert.
+Are you ever going to do the dishes?  Or will you change your major to biology?
