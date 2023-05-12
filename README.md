@@ -1,1 +1,2 @@
-Are you ever going to do the dishes?  Or will you change your major to biology?
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
