@@ -1,3 +1,2 @@
-The difference between the right word and the almost right word is the
-difference between lightning and the lightning bug.
-		-- Mark Twain
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
