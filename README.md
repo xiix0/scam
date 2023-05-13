@@ -1,1 +1,2 @@
-You will be surprised by a loud noise.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
