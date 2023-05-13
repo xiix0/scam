@@ -1,1 +1,2 @@
-There will be big changes for you but you will be happy.
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
