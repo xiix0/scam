@@ -1,1 +1,2 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
