@@ -1,1 +1,4 @@
-Chicken Little only has to be right once.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
