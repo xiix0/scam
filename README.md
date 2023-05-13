@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
