@@ -1,2 +1,2 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	One.  Only it's his light bulb when he's done.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
