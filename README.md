@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+Your aim is high and to the right.
