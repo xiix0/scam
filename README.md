@@ -1,3 +1,2 @@
-Your manuscript is both good and original, but the part that is good is not
-original and the part that is original is not good.
-		-- Samuel Johnson
+Q:	How many lawyers does it take to change a light bulb?
+A:	One.  Only it's his light bulb when he's done.
