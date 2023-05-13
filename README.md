@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+Chicken Little only has to be right once.
