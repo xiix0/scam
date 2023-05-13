@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+Your lover will never wish to leave you.
