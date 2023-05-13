@@ -1,4 +1,2 @@
-F.S. Fitzgerald to Hemingway:
-	"Ernest, the rich are different from us."
-Hemingway:
-	"Yes.  They have more money."
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
