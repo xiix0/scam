@@ -1,2 +1,2 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+Q:	What do Winnie the Pooh and John the Baptist have in common?
+A:	The same middle name.
