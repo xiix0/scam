@@ -1,2 +1,5 @@
-Q:	What do you get when you cross a mobster with an international standard?
-A:	You get someone who makes you an offer that you can't understand!
+April 1
+
+This is the day upon which we are reminded of what we are on the other three
+hundred and sixty-four.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
