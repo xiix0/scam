@@ -1,2 +1,2 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
