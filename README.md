@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
