@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
