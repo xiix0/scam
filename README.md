@@ -1,2 +1,2 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
