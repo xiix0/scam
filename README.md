@@ -1,2 +1,1 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+Executive ability is prominent in your make-up.
