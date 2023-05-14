@@ -1,2 +1,1 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+Don't look back, the lemmings are gaining on you.
