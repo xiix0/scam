@@ -1,1 +1,2 @@
-You will experience a strong urge to do good; but it will pass.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
