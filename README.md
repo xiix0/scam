@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+Increased knowledge will help you now.  Have mate's phone bugged.
