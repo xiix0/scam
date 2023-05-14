@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Don't let your mind wander -- it's too little to be let out alone.
