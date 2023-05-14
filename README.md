@@ -1,1 +1,2 @@
-Don't look back, the lemmings are gaining on you.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
