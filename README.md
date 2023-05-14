@@ -1,3 +1,2 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
