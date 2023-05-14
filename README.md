@@ -1,1 +1,2 @@
-Don't look now, but the man in the moon is laughing at you.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
