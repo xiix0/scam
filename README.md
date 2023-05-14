@@ -1,1 +1,1 @@
-Stay the curse.
+You enjoy the company of other people.
