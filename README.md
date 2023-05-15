@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+Keep emotionally active.  Cater to your favorite neurosis.
