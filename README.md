@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+Beware the one behind you.
