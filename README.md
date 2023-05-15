@@ -1,3 +1,4 @@
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
-Some think it is the voice of God.
-		-- Mark Twain
+Whenever the literary German dives into a sentence, that is the last
+you are going to see of him until he emerges on the other side of his
+Atlantic with his verb in his mouth.
+		-- Mark Twain "A Connecticut Yankee in King Arthur's Court"
