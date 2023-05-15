@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Snow Day -- stay home.
