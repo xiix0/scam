@@ -1,2 +1,2 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
