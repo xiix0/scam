@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Tuesday After Lunch is the cosmic time of the week.
