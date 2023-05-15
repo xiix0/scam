@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+You prefer the company of the opposite sex, but are well liked by your own.
