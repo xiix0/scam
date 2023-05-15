@@ -1,1 +1,2 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+"... all the modern inconveniences ..."
+		-- Mark Twain
