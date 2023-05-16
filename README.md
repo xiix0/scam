@@ -1,1 +1,2 @@
-You two ought to be more careful--your love could drag on for years and years.
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
