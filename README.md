@@ -1,2 +1,2 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
