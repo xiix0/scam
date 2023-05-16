@@ -1,1 +1,1 @@
-Your lucky color has faded.
+Try to have as good a life as you can under the circumstances.
