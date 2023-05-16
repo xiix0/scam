@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+Beware of a tall blond man with one black shoe.
