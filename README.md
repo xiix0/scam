@@ -1,4 +1,5 @@
-Whoever has lived long enough to find out what life is, knows how deep a debt
-of gratitude we owe to Adam, the first great benefactor of our race.  He
-brought death into the world.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
