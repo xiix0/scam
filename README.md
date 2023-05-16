@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
