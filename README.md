@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
