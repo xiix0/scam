@@ -1,2 +1,2 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
