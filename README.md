@@ -1,2 +1,1 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+You look like a million dollars.  All green and wrinkled.
