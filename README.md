@@ -1,1 +1,3 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Q:	How do you play religious roulette?
+A:	You stand around in a circle and blaspheme and see who gets
+	struck by lightning first.
