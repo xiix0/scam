@@ -1,1 +1,2 @@
-Beware of a tall blond man with one black shoe.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
