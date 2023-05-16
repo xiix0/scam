@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+Good day to let down old friends who need help.
