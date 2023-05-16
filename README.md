@@ -1,2 +1,2 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
