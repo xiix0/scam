@@ -1,1 +1,1 @@
-You seek to shield those you love and you like the role of the provider.
+That secret you've been guarding, isn't.
