@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
