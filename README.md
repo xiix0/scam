@@ -1,1 +1,1 @@
-You have a deep appreciation of the arts and music.
+Good news.  Ten weeks from Friday will be a pretty good day.
