@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
