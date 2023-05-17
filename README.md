@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+Things will be bright in P.M.  A cop will shine a light in your face.
