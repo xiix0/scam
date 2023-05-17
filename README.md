@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+Domestic happiness and faithful friends.
