@@ -1,2 +1,2 @@
-No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
-		-- Sherlock Holmes
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
