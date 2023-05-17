@@ -1,2 +1,1 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+You're currently going through a difficult transition period called "Life."
