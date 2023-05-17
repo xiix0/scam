@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+Stay away from hurricanes for a while.
