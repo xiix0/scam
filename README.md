@@ -1,1 +1,1 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+Everything that you know is wrong, but you can be straightened out.
