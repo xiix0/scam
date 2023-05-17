@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+Don't read any sky-writing for the next two weeks.
