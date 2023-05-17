@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+Give your very best today.  Heaven knows it's little enough.
