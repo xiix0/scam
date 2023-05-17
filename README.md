@@ -1,2 +1,3 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
