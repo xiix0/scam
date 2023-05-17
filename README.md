@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+You have been selected for a secret mission.
