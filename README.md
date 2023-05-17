@@ -1,1 +1,1 @@
-You are so boring that when I see you my feet go to sleep.
+Future looks spotty.  You will spill soup in late evening.
