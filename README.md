@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+You will receive a legacy which will place you above want.
