@@ -1,2 +1,2 @@
-Kiss me, Kate, we will be married o' Sunday.
-		-- William Shakespeare, "The Taming of the Shrew"
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
