@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+You will feel hungry again in another hour.
