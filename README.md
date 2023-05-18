@@ -1,2 +1,1 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+People are beginning to notice you.  Try dressing before you leave the house.
