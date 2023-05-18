@@ -1,1 +1,2 @@
-You will receive a legacy which will place you above want.
+Just because the message may never be received does not mean it is
+not worth sending.
