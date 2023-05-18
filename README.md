@@ -1,2 +1,2 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
