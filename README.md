@@ -1,1 +1,2 @@
-You will overcome the attacks of jealous associates.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
