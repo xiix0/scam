@@ -1,1 +1,1 @@
-Of course you have a purpose -- to find a purpose.
+Life is to you a dashing and bold adventure.
