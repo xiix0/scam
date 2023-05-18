@@ -1,1 +1,1 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+You're a card which will have to be dealt with.
