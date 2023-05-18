@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+Don't look now, but there is a multi-legged creature on your shoulder.
