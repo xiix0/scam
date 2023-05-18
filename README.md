@@ -1,1 +1,1 @@
-You will step on the night soil of many countries.
+You have an unusual equipment for success.  Be sure to use it properly.
