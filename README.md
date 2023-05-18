@@ -1,3 +1,1 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+Let me put it this way: today is going to be a learning experience.
