@@ -1,2 +1,3 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+Q:	What looks like a cat, flies like a bat, brays like a donkey, and
+	plays like a monkey?
+A:	Nothing.
