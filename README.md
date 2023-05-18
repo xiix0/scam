@@ -1,1 +1,1 @@
-Let me put it this way: today is going to be a learning experience.
+Good day to deal with people in high places; particularly lonely stewardesses.
