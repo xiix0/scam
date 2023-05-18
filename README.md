@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
+When in doubt, tell the truth.
 		-- Mark Twain
