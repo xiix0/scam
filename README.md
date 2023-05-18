@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
+"... all the modern inconveniences ..."
 		-- Mark Twain
