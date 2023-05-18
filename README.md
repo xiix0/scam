@@ -1,2 +1,2 @@
-The naked truth of it is, I have no shirt.
-		-- William Shakespeare, "Love's Labour's Lost"
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
