@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+Don't go surfing in South Dakota for a while.
