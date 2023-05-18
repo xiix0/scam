@@ -1,3 +1,3 @@
-Q:	Why do people who live near Niagara Falls have flat foreheads?
-A:	Because every morning they wake up thinking "What *is* that noise?
-	Oh, right, *of course*!
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
