@@ -1,1 +1,2 @@
-Stay the curse.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
