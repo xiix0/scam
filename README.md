@@ -1,2 +1,3 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
