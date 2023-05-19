@@ -1,2 +1,2 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
