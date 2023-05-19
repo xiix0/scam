@@ -1,2 +1,2 @@
-"Life, loathe it or ignore it, you can't like it."
-		-- Marvin, "Hitchhiker's Guide to the Galaxy"
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
