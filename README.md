@@ -1,2 +1,2 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
