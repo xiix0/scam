@@ -1,3 +1,3 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
 		-- Mark Twain
