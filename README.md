@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Q:	What is the sound of one cat napping?
+A:	Mu.
