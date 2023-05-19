@@ -1,1 +1,2 @@
-You will experience a strong urge to do good; but it will pass.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
