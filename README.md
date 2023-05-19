@@ -1,1 +1,2 @@
-Think twice before speaking, but don't say "think think click click".
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
