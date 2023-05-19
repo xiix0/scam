@@ -1,2 +1,1 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+A few hours grace before the madness begins again.
