@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+Avoid gunfire in the bathroom tonight.
