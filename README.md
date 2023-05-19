@@ -1,1 +1,2 @@
-Day of inquiry.  You will be subpoenaed.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
