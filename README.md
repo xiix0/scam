@@ -1,1 +1,1 @@
-You will have a long and boring life.
+Good news.  Ten weeks from Friday will be a pretty good day.
