@@ -1,1 +1,2 @@
-You will be advanced socially, without any special effort on your part.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
