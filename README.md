@@ -1,1 +1,1 @@
-You will attract cultured and artistic people to your home.
+Executive ability is prominent in your make-up.
