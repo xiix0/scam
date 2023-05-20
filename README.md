@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+Your present plans will be successful.
