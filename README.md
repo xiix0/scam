@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+Your reasoning powers are good, and you are a fairly good planner.
