@@ -1,1 +1,2 @@
-You two ought to be more careful--your love could drag on for years and years.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
