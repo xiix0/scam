@@ -1,1 +1,2 @@
-You are always busy.
+Your goose is cooked.
+(Your current chick is burned up too!)
