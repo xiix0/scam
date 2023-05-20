@@ -1,2 +1,3 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+You may my glories and my state dispose,
+But not my griefs; still am I king of those.
+		-- William Shakespeare, "Richard II"
