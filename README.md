@@ -1,2 +1,1 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+You will live a long, healthy, happy life and make bags of money.
