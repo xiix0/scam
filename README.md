@@ -1,2 +1,2 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
