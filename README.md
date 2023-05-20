@@ -1,1 +1,2 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
