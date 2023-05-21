@@ -1,1 +1,2 @@
-Is that really YOU that is reading this?
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
