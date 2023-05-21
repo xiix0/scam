@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+You have an unusual understanding of the problems of human relationships.
