@@ -1,1 +1,1 @@
-You will contract a rare disease.
+You are dishonest, but never to the point of hurting a friend.
