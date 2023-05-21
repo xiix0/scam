@@ -1,2 +1,2 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
