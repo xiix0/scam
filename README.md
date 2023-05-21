@@ -1,1 +1,2 @@
-You will be reincarnated as a toad; and you will be much happier.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
