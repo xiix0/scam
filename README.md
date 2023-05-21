@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+You are only young once, but you can stay immature indefinitely.
