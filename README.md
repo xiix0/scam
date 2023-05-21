@@ -1,2 +1,3 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+Q:	Why is it that the more accuracy you demand from an interpolation
+	function, the more expensive it becomes to compute?
+A:	That's the Law of Spline Demand.
