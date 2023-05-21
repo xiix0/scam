@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+You will gain money by a speculation or lottery.
