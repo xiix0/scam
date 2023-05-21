@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+You are a fluke of the universe; you have no right to be here.
