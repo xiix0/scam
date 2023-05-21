@@ -1,2 +1,1 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+Lady Luck brings added income today.  Lady friend takes it away tonight.
