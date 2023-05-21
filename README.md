@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+Never be led astray onto the path of virtue.
