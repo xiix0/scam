@@ -1,1 +1,2 @@
-You will be married within a year.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
