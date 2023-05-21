@@ -1,1 +1,2 @@
-Today is the last day of your life so far.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
