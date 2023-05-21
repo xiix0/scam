@@ -1,1 +1,1 @@
-Beware the one behind you.
+Today is the last day of your life so far.
