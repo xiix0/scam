@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+You will be married within a year.
