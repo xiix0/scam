@@ -1,3 +1,3 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #19
+A:	To be or not to be.
+Q:	What is the square root of 4b^2?
