@@ -1,1 +1,3 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
