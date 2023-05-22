@@ -1,3 +1,2 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
