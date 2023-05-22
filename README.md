@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+Beware of a dark-haired man with a loud tie.
