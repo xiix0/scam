@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+Do not overtax your powers.
