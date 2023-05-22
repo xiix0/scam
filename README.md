@@ -1,3 +1,2 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
