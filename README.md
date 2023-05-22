@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+Beware of a tall blond man with one black shoe.
