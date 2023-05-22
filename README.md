@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+You're being followed.  Cut out the hanky-panky for a few days.
