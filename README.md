@@ -1,2 +1,1 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+You are sick, twisted and perverted.  I like that in a person.
