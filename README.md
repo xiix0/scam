@@ -1,1 +1,2 @@
-Your own qualities will help prevent your advancement in the world.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
