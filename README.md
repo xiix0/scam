@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+You plan things that you do not even attempt because of your extreme caution.
