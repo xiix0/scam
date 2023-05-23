@@ -1,2 +1,1 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+Don't hate yourself in the morning -- sleep till noon.
