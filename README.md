@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Your fly might be open (but don't check it just now).
