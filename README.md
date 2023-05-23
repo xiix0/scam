@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
