@@ -1,3 +1,3 @@
-Q:	How many mathematicians does it take to screw in a light bulb?
-A:	One.  He gives it to six Californians, thereby reducing the problem
-	to the earlier joke.
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
