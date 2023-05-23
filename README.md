@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+You can rent this space for only $5 a week.
