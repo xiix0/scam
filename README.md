@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+Truth will out this morning.  (Which may really mess things up.)
