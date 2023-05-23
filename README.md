@@ -1,3 +1,2 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
