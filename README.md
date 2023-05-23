@@ -1,8 +1,4 @@
-To be or not to be.
-		-- Shakespeare
-To do is to be.
-		-- Nietzsche
-To be is to do.
-		-- Sartre
-Do be do be do.
-		-- Sinatra
+"I understand this is your first dead client," Sabian was saying.  The
+absurdity of the statement made me want to laugh but they don't call me
+Deadpan Allie and lie.
+		-- Pat Cadigan, "Mindplayers"
