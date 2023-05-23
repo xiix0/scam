@@ -1,2 +1,1 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+Cheer Up!  Things are getting worse at a slower rate.
