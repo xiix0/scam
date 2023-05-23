@@ -1,1 +1,3 @@
-A visit to a strange place will bring fresh work.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
