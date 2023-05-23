@@ -1,1 +1,2 @@
-Truth will out this morning.  (Which may really mess things up.)
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
