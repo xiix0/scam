@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+You are deeply attached to your friends and acquaintances.
