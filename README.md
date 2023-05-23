@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
