@@ -1,2 +1,1 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+You prefer the company of the opposite sex, but are well liked by your own.
