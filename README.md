@@ -1,3 +1,2 @@
-Let us endeavor so to live that when we come to die even the undertaker will be
-sorry.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
