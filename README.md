@@ -1,2 +1,1 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+Expect the worst, it's the least you can do.
