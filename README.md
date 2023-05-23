@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+Today is the first day of the rest of your life.
