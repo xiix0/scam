@@ -1,1 +1,2 @@
-Be careful!  UGLY strikes 9 out of 10!
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
