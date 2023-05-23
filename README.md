@@ -1,1 +1,2 @@
-Fine day to work off excess energy.  Steal something heavy.
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
