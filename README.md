@@ -1,3 +1,2 @@
-You may my glories and my state dispose,
-But not my griefs; still am I king of those.
-		-- William Shakespeare, "Richard II"
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
