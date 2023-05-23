@@ -1,1 +1,2 @@
-Expect the worst, it's the least you can do.
+The Public is merely a multiplied "me."
+		-- Mark Twain
