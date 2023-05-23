@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+You look like a million dollars.  All green and wrinkled.
