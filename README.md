@@ -1,2 +1,2 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
