@@ -1,1 +1,1 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+You are sick, twisted and perverted.  I like that in a person.
