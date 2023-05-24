@@ -1,2 +1,1 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+You will live to see your grandchildren.
