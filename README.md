@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+Your temporary financial embarrassment will be relieved in a surprising manner.
