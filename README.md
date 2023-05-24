@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+You can create your own opportunities this week.  Blackmail a senior executive.
