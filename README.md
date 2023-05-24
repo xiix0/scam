@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
