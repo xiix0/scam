@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+You definitely intend to start living sometime soon.
