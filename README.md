@@ -1,3 +1,3 @@
-There is an old time toast which is golden for its beauty.
-"When you ascend the hill of prosperity may you not meet a friend."
-		-- Mark Twain
+Consider well the proportions of things.  It is better to be a young June-bug
+than an old bird of paradise.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
