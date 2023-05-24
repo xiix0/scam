@@ -1,1 +1,2 @@
-Caution: breathing may be hazardous to your health.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
