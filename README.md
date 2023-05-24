@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+If you sow your wild oats, hope for a crop failure.
