@@ -1,1 +1,1 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+Good day to deal with people in high places; particularly lonely stewardesses.
