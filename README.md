@@ -1,5 +1,2 @@
-Q:	What do monsters eat?
-A:	Things.
-
-Q:	What do monsters drink?
-A:	Coke.  (Because Things go better with Coke.)
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
