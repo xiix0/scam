@@ -1,2 +1,2 @@
-Q:	What's the difference between Bell Labs and the Boy Scouts of America?
-A:	The Boy Scouts have adult supervision.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
