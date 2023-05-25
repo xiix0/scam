@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+	A man was reading The Canterbury Tales one Saturday morning, when his
+wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
