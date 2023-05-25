@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+Tonight's the night: Sleep in a eucalyptus tree.
