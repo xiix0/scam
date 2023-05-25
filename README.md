@@ -1,1 +1,2 @@
-You're a card which will have to be dealt with.
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
