@@ -1,1 +1,2 @@
-Best of all is never to have been born.  Second best is to die soon.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
