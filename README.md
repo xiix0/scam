@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+Tonight's the night: Sleep in a eucalyptus tree.
