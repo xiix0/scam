@@ -1,1 +1,2 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
