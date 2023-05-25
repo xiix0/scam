@@ -1,8 +1,5 @@
-Delores breezed along the surface of her life like a flat stone forever
-skipping along smooth water, rippling reality sporadically but oblivious
-to it consistently, until she finally lost momentum, sank, and due to an
-overdose of flouride as a child which caused her to suffer from chronic
-apathy, doomed herself to lie forever on the floor of her life as useless
-as an appendix and as lonely as a five-hundred pound barbell in a
-steroid-free fitness center.
-		-- Winning sentence, 1990 Bulwer-Lytton bad fiction contest.
+I will honour Christmas in my heart, and try to keep it all the year.  I
+will live in the Past, the Present, and the Future.  The Spirits of all
+Three shall strive within me.  I will not shut out the lessons that they
+teach.  Oh, tell me that I may sponge away the writing on this stone!
+		-- Charles Dickens
