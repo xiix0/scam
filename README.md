@@ -1,1 +1,1 @@
-You may be recognized soon.  Hide.
+Chicken Little only has to be right once.
