@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Keep emotionally active.  Cater to your favorite neurosis.
