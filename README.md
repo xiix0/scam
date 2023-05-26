@@ -1,2 +1,1 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+You can create your own opportunities this week.  Blackmail a senior executive.
