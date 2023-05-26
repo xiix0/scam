@@ -1,2 +1,2 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
