@@ -1,3 +1,2 @@
-Soap and education are not as sudden as a massacre, but they are more
-deadly in the long run.
-		-- Mark Twain
+Q:	How many lawyers does it take to change a light bulb?
+A:	One.  Only it's his light bulb when he's done.
