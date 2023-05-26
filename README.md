@@ -1,1 +1,2 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
