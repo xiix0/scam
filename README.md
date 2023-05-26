@@ -1,1 +1,1 @@
-You have a deep appreciation of the arts and music.
+Don't relax!  It's only your tension that's holding you together.
