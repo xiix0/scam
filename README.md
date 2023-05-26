@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+You will win success in whatever calling you adopt.
