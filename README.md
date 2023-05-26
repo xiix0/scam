@@ -1,2 +1,2 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
