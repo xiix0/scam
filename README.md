@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+"... all the modern inconveniences ..."
+		-- Mark Twain
