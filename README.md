@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+You will gain money by an illegal action.
