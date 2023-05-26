@@ -1,2 +1,3 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
