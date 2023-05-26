@@ -1,1 +1,3 @@
-Your fly might be open (but don't check it just now).
+Q:	What's the difference between a dead dog in the road and a dead
+	lawyer in the road?
+A:	There are skid marks in front of the dog.
