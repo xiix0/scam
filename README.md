@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+That secret you've been guarding, isn't.
