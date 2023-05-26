@@ -1,1 +1,2 @@
-You have a strong appeal for members of the opposite sex.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
