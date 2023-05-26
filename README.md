@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
