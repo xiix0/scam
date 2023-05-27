@@ -1,1 +1,2 @@
-You will be run over by a bus.
+Your goose is cooked.
+(Your current chick is burned up too!)
