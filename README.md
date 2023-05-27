@@ -1,2 +1,3 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+Reader, suppose you were an idiot.  And suppose you were a member of
+Congress.  But I repeat myself.
+		-- Mark Twain
