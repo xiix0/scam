@@ -1,2 +1,1 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+Don't look now, but there is a multi-legged creature on your shoulder.
