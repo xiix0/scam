@@ -1,2 +1,1 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+You seek to shield those you love and you like the role of the provider.
