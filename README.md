@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
