@@ -1,1 +1,2 @@
-You will be misunderstood by everyone.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
