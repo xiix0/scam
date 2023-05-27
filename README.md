@@ -1,1 +1,1 @@
-Don't relax!  It's only your tension that's holding you together.
+You are only young once, but you can stay immature indefinitely.
