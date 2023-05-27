@@ -1,2 +1,1 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+You're being followed.  Cut out the hanky-panky for a few days.
