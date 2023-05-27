@@ -1,1 +1,1 @@
-You seek to shield those you love and you like the role of the provider.
+Good day for a change of scene.  Repaper the bedroom wall.
