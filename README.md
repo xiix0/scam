@@ -1,1 +1,2 @@
-You have a deep appreciation of the arts and music.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
