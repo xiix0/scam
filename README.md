@@ -1,1 +1,2 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
