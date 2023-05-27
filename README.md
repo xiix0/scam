@@ -1,1 +1,2 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
