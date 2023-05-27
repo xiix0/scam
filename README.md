@@ -1,2 +1,1 @@
-You are wise, witty, and wonderful, but you spend too much time reading
-this sort of trash.
+Living your life is a task so difficult, it has never been attempted before.
