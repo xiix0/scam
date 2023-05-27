@@ -1,1 +1,2 @@
-You are only young once, but you can stay immature indefinitely.
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
