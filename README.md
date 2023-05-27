@@ -1,2 +1,2 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
