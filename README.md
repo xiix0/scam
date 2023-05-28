@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+Don't kiss an elephant on the lips today.
