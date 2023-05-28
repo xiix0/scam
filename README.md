@@ -1,2 +1,1 @@
-"Life, loathe it or ignore it, you can't like it."
-		-- Marvin, "Hitchhiker's Guide to the Galaxy"
+Your mode of life will be changed for the better because of good news soon.
