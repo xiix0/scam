@@ -1,1 +1,1 @@
-What happened last night can happen again.
+Your domestic life may be harmonious.
