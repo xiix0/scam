@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+Cheer Up!  Things are getting worse at a slower rate.
