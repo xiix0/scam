@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+There was a phone call for you.
