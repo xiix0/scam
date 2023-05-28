@@ -1,2 +1,1 @@
-Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
-A:	Trustworthy.
+You will soon meet a person who will play an important role in your life.
