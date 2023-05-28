@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You will be traveling and coming into a fortune.
