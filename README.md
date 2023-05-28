@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
