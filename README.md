@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
