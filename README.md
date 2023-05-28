@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
