@@ -1,1 +1,1 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+You will be awarded the Nobel Peace Prize... posthumously.
