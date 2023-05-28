@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+You will always have good luck in your personal affairs.
