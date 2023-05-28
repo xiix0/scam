@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+You will be run over by a beer truck.
