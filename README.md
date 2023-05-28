@@ -1,2 +1,1 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+You shall be rewarded for a dastardly deed.
