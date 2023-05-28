@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
