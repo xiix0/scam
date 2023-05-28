@@ -1,2 +1,1 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Be security conscious -- National defense is at stake.
