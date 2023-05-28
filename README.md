@@ -1,1 +1,2 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
