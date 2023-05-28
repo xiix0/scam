@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+You have a will that can be influenced by all with whom you come in contact.
