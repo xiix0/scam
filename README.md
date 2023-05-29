@@ -1,1 +1,2 @@
-You will be held hostage by a radical group.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
