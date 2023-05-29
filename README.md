@@ -1,3 +1,2 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
