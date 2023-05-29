@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+You are the only person to ever get this message.
