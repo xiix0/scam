@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+Your boss climbed the corporate ladder, wrong by wrong.
