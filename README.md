@@ -1,1 +1,3 @@
-Never commit yourself!  Let someone else commit you.
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
