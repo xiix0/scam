@@ -1,1 +1,1 @@
-It may or may not be worthwhile, but it still has to be done.
+You're ugly and your mother dresses you funny.
