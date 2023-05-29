@@ -1,12 +1,6 @@
-The Least Successful Collector
-	Betsy Baker played a central role in the history of collecting.  She
-was employed as a servant in the house of John Warburton (1682-1759) who had
-amassed a fine collection of 58 first edition plays, including most of the
-works of Shakespeare.
-	One day Warburton returned home to find 55 of them charred beyond
-legibility.  Betsy had either burned them or used them as pie bottoms.  The
-remaining three folios are now in the British Museum.
-	The only comparable literary figure was the maid who in 1835 burned
-the manuscript of the first volume of Thomas Carlyle's "The Hisory of the
-French Revolution", thinking it was wastepaper.
-		-- Stephen Pile, "The Book of Heroic Failures"
+The countdown had stalled at 'T' minus 69 seconds when Desiree, the first
+female ape to go up in space, winked at me slyly and pouted her thick,
+rubbery lips unmistakably -- the first of many such advances during what
+would prove to be the longest, and most memorable, space voyage of my
+career.
+		-- Winning sentence, 1985 Bulwer-Lytton bad fiction contest.
