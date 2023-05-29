@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+Beware of a tall blond man with one black shoe.
