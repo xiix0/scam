@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+It's lucky you're going so slowly, because you're going in the wrong direction.
