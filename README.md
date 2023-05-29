@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+You display the wonderful traits of charm and courtesy.
