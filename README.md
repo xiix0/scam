@@ -1,1 +1,3 @@
-You are going to have a new love affair.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
