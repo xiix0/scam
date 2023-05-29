@@ -1,1 +1,2 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
