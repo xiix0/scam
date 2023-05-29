@@ -1,2 +1,2 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+Q:	How many Harvard MBA's does it take to screw in a light bulb?
+A:	Just one.  He grasps it firmly and the universe revolves around him.
