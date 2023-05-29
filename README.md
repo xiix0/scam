@@ -1,1 +1,2 @@
-Today is the first day of the rest of the mess.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
