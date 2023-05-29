@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+A visit to a fresh place will bring strange work.
