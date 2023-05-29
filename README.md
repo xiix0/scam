@@ -1,1 +1,2 @@
-You possess a mind not merely twisted, but actually sprained.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
