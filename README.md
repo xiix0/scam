@@ -1,1 +1,2 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
