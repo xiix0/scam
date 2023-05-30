@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+Don't read everything you believe.
