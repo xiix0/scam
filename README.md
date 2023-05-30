@@ -1,2 +1,2 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
