@@ -1,2 +1,1 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+Don't you feel more like you do now than you did when you came in?
