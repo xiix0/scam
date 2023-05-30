@@ -1,2 +1,2 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
