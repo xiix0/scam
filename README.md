@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+Excellent day for putting Slinkies on an escalator.
