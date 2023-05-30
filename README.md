@@ -1,2 +1,1 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+Hope that the day after you die is a nice day.
