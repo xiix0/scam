@@ -1,2 +1,2 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
