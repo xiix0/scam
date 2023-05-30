@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
