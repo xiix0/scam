@@ -1,1 +1,2 @@
-Hope that the day after you die is a nice day.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
