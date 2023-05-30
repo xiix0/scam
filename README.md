@@ -1,1 +1,3 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Q:	What looks like a cat, flies like a bat, brays like a donkey, and
+	plays like a monkey?
+A:	Nothing.
