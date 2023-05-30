@@ -1,1 +1,1 @@
-In the stairway of life, you'd best take the elevator.
+Life is to you a dashing and bold adventure.
