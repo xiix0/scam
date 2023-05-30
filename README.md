@@ -1,1 +1,1 @@
-You are as I am with You.
+Keep it short for pithy sake.
