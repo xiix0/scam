@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
