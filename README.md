@@ -1,2 +1,1 @@
-When you are about to die, a wombat is better than no company at all.
-		-- Roger Zelazny, "Doorways in the Sand"
+You have the capacity to learn from mistakes.  You'll learn a lot today.
