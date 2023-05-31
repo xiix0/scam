@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+Abandon the search for Truth; settle for a good fantasy.
