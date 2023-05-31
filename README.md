@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+A gift of a flower will soon be made to you.
