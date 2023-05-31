@@ -1,1 +1,1 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+Good day to let down old friends who need help.
