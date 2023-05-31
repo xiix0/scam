@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+Caution: breathing may be hazardous to your health.
