@@ -1,1 +1,2 @@
-A gift of a flower will soon be made to you.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
