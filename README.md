@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+Among the lucky, you are the chosen one.
