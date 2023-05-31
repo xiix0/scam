@@ -1,1 +1,1 @@
-You will be married within a year.
+You will live a long, healthy, happy life and make bags of money.
