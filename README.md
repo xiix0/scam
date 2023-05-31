@@ -1,1 +1,2 @@
-Beware of Bigfoot!
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
