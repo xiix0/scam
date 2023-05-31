@@ -1,2 +1,2 @@
-You have a reputation for being thoroughly reliable and trustworthy.
-A pity that it's totally undeserved.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
