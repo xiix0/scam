@@ -1,1 +1,2 @@
-Try to get all of your posthumous medals in advance.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
