@@ -1,1 +1,2 @@
-Among the lucky, you are the chosen one.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
