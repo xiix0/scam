@@ -1,2 +1,1 @@
-Fine day for friends.
-So-so day for you.
+You will be given a post of trust and responsibility.
