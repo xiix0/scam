@@ -1,2 +1,2 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
