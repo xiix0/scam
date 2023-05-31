@@ -1,2 +1,1 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
