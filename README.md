@@ -1,5 +1,14 @@
-October 12, the Discovery.
+Gone With The Wind LITE(tm)
+	-- by Margaret Mitchell
 
-It was wonderful to find America, but it would have been more wonderful to miss
-it.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+	A woman only likes men she can't have and the South gets trashed.
+
+Gift of the Magi LITE(tm)
+	-- by O. Henry
+
+	A husband and wife forget to register their gift preferences.
+
+The Old Man and the Sea LITE(tm)
+	-- by Ernest Hemingway
+
+	An old man goes fishing, but doesn't have much luck.
