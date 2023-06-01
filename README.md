@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+You have the power to influence all with whom you come in contact.
