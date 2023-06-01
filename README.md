@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
