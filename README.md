@@ -1,1 +1,2 @@
-Don't you wish you had more energy... or less ambition?
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
