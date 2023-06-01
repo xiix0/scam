@@ -1,2 +1,2 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+You'll wish that you had done some of the hard things when they were easier
+to do.
