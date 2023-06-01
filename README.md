@@ -1,1 +1,2 @@
-Your boyfriend takes chocolate from strangers.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
