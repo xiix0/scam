@@ -1,2 +1,2 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
