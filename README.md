@@ -1,3 +1,2 @@
-I don't know half of you half as well as I should like; and I like less
-than half of you half as well as you deserve.
-		-- J. R. R. Tolkien
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
