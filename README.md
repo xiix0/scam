@@ -1,2 +1,2 @@
-Few things are harder to put up with than the annoyance of a good example.
-		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
