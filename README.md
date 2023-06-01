@@ -1,1 +1,2 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Few things are harder to put up with than the annoyance of a good example.
+		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
