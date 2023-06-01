@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Increased knowledge will help you now.  Have mate's phone bugged.
