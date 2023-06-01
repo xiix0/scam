@@ -1,2 +1,1 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
