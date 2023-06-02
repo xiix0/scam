@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
