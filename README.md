@@ -1,2 +1,2 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
