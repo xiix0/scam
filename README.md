@@ -1,2 +1,2 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
