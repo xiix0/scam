@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+Excellent time to become a missing person.
