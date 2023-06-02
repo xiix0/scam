@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+Everything that you know is wrong, but you can be straightened out.
