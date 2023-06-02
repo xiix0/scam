@@ -1,5 +1,5 @@
-Q:	What do you call a blind pre-historic animal?
-A:	Diyathinkhesaurus.
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
 
-Q:	What do you call a blind pre-historic animal with a dog?
-A:	Diyathinkhesaurus Rex.
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
