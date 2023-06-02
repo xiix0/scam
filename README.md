@@ -1,2 +1,1 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+You have an unusual equipment for success.  Be sure to use it properly.
