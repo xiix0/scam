@@ -1,1 +1,2 @@
-Accent on helpful side of your nature.  Drain the moat.
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
