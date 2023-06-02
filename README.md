@@ -1,6 +1,6 @@
-There is no character, howsoever good and fine, but it can be destroyed by
-ridicule, howsoever poor and witless.  Observe the ass, for instance: his
-character is about perfect, he is the choicest spirit among all the humbler
-animals, yet see what ridicule has brought him to.  Instead of feeling
-complimented when we are called an ass, we are left in doubt.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+In the plot, people came to the land; the land loved them; they worked and
+struggled and had lots of children.  There was a Frenchman who talked funny
+and a greenhorn from England who was a fancy-pants but when it came to the
+crunch he was all courage.  Those novels would make you retch.
+		-- Canadian novelist Robertson Davies, on the generic Canadian
+		   novel.
