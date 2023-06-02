@@ -1,4 +1,3 @@
-In Marseilles they make half the toilet soap we consume in America, but
-the Marseillaise only have a vague theoretical idea of its use, which they
-have obtained from books of travel.
-		-- Mark Twain
+Q:	Why is it that the more accuracy you demand from an interpolation
+	function, the more expensive it becomes to compute?
+A:	That's the Law of Spline Demand.
