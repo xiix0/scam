@@ -1,1 +1,1 @@
-You will be reincarnated as a toad; and you will be much happier.
+Your object is to save the world, while still leading a pleasant life.
