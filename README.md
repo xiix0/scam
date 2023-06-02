@@ -1,2 +1,1 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+After your lover has gone you will still have PEANUT BUTTER!
