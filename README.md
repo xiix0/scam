@@ -1,2 +1,2 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
