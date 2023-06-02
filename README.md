@@ -1,2 +1,1 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+Accent on helpful side of your nature.  Drain the moat.
