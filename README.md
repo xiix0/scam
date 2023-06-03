@@ -1,2 +1,2 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
