@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
