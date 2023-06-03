@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+I'll burn my books.
+		-- Christopher Marlowe
