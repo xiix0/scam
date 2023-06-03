@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+Stay away from flying saucers today.
