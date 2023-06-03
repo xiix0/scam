@@ -1,1 +1,2 @@
-Don't worry so loud, your roommate can't think.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
