@@ -1,2 +1,2 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
