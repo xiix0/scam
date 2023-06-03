@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
