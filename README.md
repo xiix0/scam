@@ -1,2 +1,2 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+Wagner's music is better than it sounds.
+		-- Mark Twain
