@@ -1,1 +1,2 @@
-Reply hazy, ask again later.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
