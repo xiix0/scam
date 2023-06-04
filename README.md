@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+You will be a winner today.  Pick a fight with a four-year-old.
