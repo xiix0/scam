@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+Do what comes naturally.  Seethe and fume and throw a tantrum.
