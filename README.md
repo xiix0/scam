@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
