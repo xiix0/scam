@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+You work very hard.  Don't try to think as well.
