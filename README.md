@@ -1,5 +1,2 @@
-Q:	What do monsters eat?
-A:	Things.
-
-Q:	What do monsters drink?
-A:	Coke.  (Because Things go better with Coke.)
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
