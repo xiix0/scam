@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+Avoid gunfire in the bathroom tonight.
