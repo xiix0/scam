@@ -1,1 +1,2 @@
-You will not be elected to public office this year.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
