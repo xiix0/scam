@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+You love your home and want it to be beautiful.
