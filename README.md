@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+Your own qualities will help prevent your advancement in the world.
