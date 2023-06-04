@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+Hope that the day after you die is a nice day.
