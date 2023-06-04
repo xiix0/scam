@@ -1,1 +1,5 @@
-You are so boring that when I see you my feet go to sleep.
+Q:	What do monsters eat?
+A:	Things.
+
+Q:	What do monsters drink?
+A:	Coke.  (Because Things go better with Coke.)
