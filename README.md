@@ -1,1 +1,1 @@
-Is this really happening?
+Your temporary financial embarrassment will be relieved in a surprising manner.
