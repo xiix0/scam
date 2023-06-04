@@ -1,1 +1,2 @@
-Hope that the day after you die is a nice day.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
