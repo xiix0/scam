@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+You will inherit millions of dollars.
