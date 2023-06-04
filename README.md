@@ -1,2 +1,2 @@
-Fine day for friends.
-So-so day for you.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
