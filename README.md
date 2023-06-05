@@ -1,2 +1,2 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+You'll wish that you had done some of the hard things when they were easier
+to do.
