@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You look like a million dollars.  All green and wrinkled.
