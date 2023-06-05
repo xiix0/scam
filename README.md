@@ -1,1 +1,2 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
