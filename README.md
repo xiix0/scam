@@ -1,2 +1,2 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
