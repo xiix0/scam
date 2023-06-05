@@ -1,2 +1,3 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
