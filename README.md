@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+Try to have as good a life as you can under the circumstances.
