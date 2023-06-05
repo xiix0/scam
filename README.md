@@ -1,1 +1,2 @@
-Caution: Keep out of reach of children.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
