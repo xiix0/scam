@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+You will forget that you ever knew me.
