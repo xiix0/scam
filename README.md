@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
-A:	The Halls of Montezuma and the Shores of Tripoli.
-Q:	Name two families whose kids won't join the Marines.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
