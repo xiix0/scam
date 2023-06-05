@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
