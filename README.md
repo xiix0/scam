@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+You look like a million dollars.  All green and wrinkled.
