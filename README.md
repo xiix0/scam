@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
