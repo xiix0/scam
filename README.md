@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+You will soon meet a person who will play an important role in your life.
