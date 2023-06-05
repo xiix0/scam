@@ -1,1 +1,1 @@
-You will soon meet a person who will play an important role in your life.
+Caution: Keep out of reach of children.
