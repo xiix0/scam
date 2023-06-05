@@ -1,1 +1,2 @@
-Try to have as good a life as you can under the circumstances.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
