@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+Your lover will never wish to leave you.
