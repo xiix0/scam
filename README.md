@@ -1,2 +1,1 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+You will inherit some money or a small piece of land.
