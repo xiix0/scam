@@ -1,2 +1,2 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
