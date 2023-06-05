@@ -1,3 +1,2 @@
-Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
-are not the person involved.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
