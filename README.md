@@ -1,2 +1,2 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
