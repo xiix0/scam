@@ -1,1 +1,2 @@
-An exotic journey in downtown Newark is in your future.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
