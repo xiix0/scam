@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Don't hate yourself in the morning -- sleep till noon.
