@@ -1,1 +1,2 @@
-Your reasoning powers are good, and you are a fairly good planner.
+Q:	How many lawyers does it take to change a light bulb?
+A:	One.  Only it's his light bulb when he's done.
