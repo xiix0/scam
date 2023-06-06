@@ -1,2 +1,2 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
