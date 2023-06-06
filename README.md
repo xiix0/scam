@@ -1,3 +1,2 @@
-Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
-are not the person involved.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
