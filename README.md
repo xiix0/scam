@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+Look afar and see the end from the beginning.
