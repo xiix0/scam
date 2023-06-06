@@ -1,2 +1,2 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
-		-- Mark Twain
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
