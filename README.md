@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
