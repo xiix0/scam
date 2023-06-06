@@ -1,2 +1,2 @@
-What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
