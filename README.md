@@ -1,1 +1,2 @@
-You will attract cultured and artistic people to your home.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
