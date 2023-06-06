@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
