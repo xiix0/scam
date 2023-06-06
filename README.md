@@ -1,1 +1,2 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
