@@ -1,1 +1,1 @@
-You will be run over by a bus.
+Things will be bright in P.M.  A cop will shine a light in your face.
