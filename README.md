@@ -1,2 +1,3 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+Writing is easy; all you do is sit staring at the blank sheet of paper until
+drops of blood form on your forehead.
+		-- Gene Fowler
