@@ -1,1 +1,1 @@
-Be careful!  Is it classified?
+Your lover will never wish to leave you.
