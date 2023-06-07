@@ -1,1 +1,1 @@
-You'll be called to a post requiring ability in handling groups of people.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
