@@ -1,1 +1,1 @@
-Your step will soil many countries.
+Cheer Up!  Things are getting worse at a slower rate.
