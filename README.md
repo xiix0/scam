@@ -1,1 +1,2 @@
-You will probably marry after a very brief courtship.
+Q:	What is the sound of one cat napping?
+A:	Mu.
