@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+Generosity and perfection are your everlasting goals.
