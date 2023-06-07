@@ -1,2 +1,1 @@
-Q:	What's the difference between a duck and an elephant?
-A:	You can't get down off an elephant.
+Your mode of life will be changed for the better because of new developments.
