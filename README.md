@@ -1,1 +1,1 @@
-Don't relax!  It's only your tension that's holding you together.
+Tuesday After Lunch is the cosmic time of the week.
