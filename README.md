@@ -1,1 +1,2 @@
-Today is what happened to yesterday.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
