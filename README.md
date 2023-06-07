@@ -1,1 +1,1 @@
-Stay the curse.
+Today is what happened to yesterday.
