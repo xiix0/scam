@@ -1,1 +1,3 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
+		-- Mark Twain
