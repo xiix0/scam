@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+You will be the last person to buy a Chrysler.
