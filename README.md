@@ -1,1 +1,2 @@
-An avocado-tone refrigerator would look good on your resume.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
