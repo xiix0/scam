@@ -1,1 +1,2 @@
-A gift of a flower will soon be made to you.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
