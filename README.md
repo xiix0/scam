@@ -1,2 +1,3 @@
-Q:	How many college football players does it take to screw in a light bulb?
-A:	Only one, but he gets three credits for it.
+He draweth out the thread of his verbosity finer than the staple of his
+argument.
+		-- William Shakespeare, "Love's Labour's Lost"
