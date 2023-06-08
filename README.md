@@ -1,2 +1,3 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+Consider well the proportions of things.  It is better to be a young June-bug
+than an old bird of paradise.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
