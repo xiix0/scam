@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+Avert misunderstanding by calm, poise, and balance.
