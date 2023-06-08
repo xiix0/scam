@@ -1,2 +1,1 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+Best of all is never to have been born.  Second best is to die soon.
