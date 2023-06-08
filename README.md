@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+Give your very best today.  Heaven knows it's little enough.
