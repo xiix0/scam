@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+You will be the last person to buy a Chrysler.
