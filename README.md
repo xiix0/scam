@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+Your sister swims out to meet troop ships.
