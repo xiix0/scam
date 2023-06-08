@@ -1,1 +1,2 @@
-Excellent day to have a rotten day.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
