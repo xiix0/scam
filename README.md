@@ -1,1 +1,2 @@
-Beware of a tall blond man with one black shoe.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
