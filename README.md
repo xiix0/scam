@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+Condense soup, not books!
