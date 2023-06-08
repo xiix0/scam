@@ -1,2 +1,3 @@
-Fine day for friends.
-So-so day for you.
+Questionable day.
+
+Ask somebody something.
