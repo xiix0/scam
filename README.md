@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
