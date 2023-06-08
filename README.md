@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+Conscience doth make cowards of us all.
+		-- Shakespeare
