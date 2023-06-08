@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+Beware of a tall blond man with one black shoe.
