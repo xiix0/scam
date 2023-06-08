@@ -1,1 +1,2 @@
-You will visit the Dung Pits of Glive soon.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
