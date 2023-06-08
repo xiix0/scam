@@ -1,5 +1,8 @@
-I will honour Christmas in my heart, and try to keep it all the year.  I
-will live in the Past, the Present, and the Future.  The Spirits of all
-Three shall strive within me.  I will not shut out the lessons that they
-teach.  Oh, tell me that I may sponge away the writing on this stone!
-		-- Charles Dickens
+No live organism can continue for long to exist sanely under conditions of
+absolute reality; even larks and katydids are supposed, by some, to dream.
+Hill House, not sane, stood by itself against its hills, holding darkness
+within; it had stood so for eighty years and might stand for eighty more.
+Within, walls continued upright, bricks met neatly, floors were firm, and
+doors were sensibly shut; silence lay steadily against the wood and stone
+of Hill House, and whatever walked there, walked alone.
+		-- Shirley Jackson, "The Haunting of Hill House"
