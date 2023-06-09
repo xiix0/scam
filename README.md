@@ -1,2 +1,2 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
