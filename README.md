@@ -1,1 +1,1 @@
-Do not overtax your powers.
+Your ignorance cramps my conversation.
