@@ -1,2 +1,2 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
