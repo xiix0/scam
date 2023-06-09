@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
