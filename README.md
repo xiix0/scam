@@ -1,1 +1,2 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
