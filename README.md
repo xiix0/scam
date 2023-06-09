@@ -1,2 +1,1 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+Cheer Up!  Things are getting worse at a slower rate.
