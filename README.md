@@ -1,2 +1,2 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
