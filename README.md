@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Too much is just enough.
+		-- Mark Twain, on whiskey
