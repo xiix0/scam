@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Are you making all this up as you go along?
