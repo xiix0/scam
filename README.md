@@ -1,2 +1,2 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
