@@ -1,2 +1,1 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+Your boss climbed the corporate ladder, wrong by wrong.
