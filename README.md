@@ -1,2 +1,2 @@
-Q:	How many marketing people does it take to change a light bulb?
-A:	I'll have to get back to you on that.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
