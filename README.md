@@ -1,2 +1,2 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
