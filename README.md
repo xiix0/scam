@@ -1,2 +1,1 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+Don't plan any hasty moves.  You'll be evicted soon anyway.
