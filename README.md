@@ -1,2 +1,2 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+All generalizations are false, including this one.
+		-- Mark Twain
