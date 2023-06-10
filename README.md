@@ -1,1 +1,2 @@
-Today is the first day of the rest of the mess.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
