@@ -1,1 +1,1 @@
-You are number 6!  Who is number one?
+You love your home and want it to be beautiful.
