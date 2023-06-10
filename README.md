@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+An avocado-tone refrigerator would look good on your resume.
