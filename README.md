@@ -1,2 +1,1 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+Don't look now, but there is a multi-legged creature on your shoulder.
