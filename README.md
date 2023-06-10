@@ -1,1 +1,2 @@
-Don't worry so loud, your roommate can't think.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
