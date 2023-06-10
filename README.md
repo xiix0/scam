@@ -1,1 +1,3 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+In a museum in Havana, there are two skulls of Christopher Columbus,
+"one when he was a boy and one when he was a man."
+		-- Mark Twain
