@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
