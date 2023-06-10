@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+Your mode of life will be changed for the better because of new developments.
