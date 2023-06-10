@@ -1,1 +1,2 @@
-You are deeply attached to your friends and acquaintances.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
