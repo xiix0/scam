@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+You will meet an important person who will help you advance professionally.
