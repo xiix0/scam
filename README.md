@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
