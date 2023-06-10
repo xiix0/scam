@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Keep emotionally active.  Cater to your favorite neurosis.
