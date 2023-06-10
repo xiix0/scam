@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+You'll be called to a post requiring ability in handling groups of people.
