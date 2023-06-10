@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+You never know how many friends you have until you rent a house on the beach.
