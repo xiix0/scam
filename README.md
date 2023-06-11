@@ -1,2 +1,2 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
