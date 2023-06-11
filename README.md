@@ -1,1 +1,2 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
