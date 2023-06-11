@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Q:	What's the difference between a duck and an elephant?
+A:	You can't get down off an elephant.
