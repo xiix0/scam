@@ -1,2 +1,2 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
