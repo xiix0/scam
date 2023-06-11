@@ -1,1 +1,1 @@
-You will have long and healthy life.
+Today is the last day of your life so far.
