@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
-A:	Dr. Livingston I. Presume.
-Q:	What's Dr. Presume's full name?
+There is a great discovery still to be made in Literature: that of
+paying literary men by the quantity they do NOT write.
