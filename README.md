@@ -1,1 +1,1 @@
-There will be big changes for you but you will be happy.
+You will have long and healthy life.
