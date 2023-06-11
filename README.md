@@ -1,3 +1,2 @@
-Training is everything.  The peach was once a bitter almond; cauliflower is
-nothing but cabbage with a college education.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
