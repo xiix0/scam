@@ -1,1 +1,2 @@
-Try to get all of your posthumous medals in advance.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
