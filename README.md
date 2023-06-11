@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+Don't you feel more like you do now than you did when you came in?
