@@ -1,1 +1,2 @@
-Blow it out your ear.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
