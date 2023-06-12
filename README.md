@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+You will visit the Dung Pits of Glive soon.
