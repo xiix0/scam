@@ -1,2 +1,1 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+Your talents will be recognized and suitably rewarded.
