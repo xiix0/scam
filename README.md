@@ -1,1 +1,2 @@
-Your talents will be recognized and suitably rewarded.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
