@@ -1,2 +1,2 @@
-The first thing we do, let's kill all the lawyers.
-		-- Wm. Shakespeare, "Henry VI", Part IV
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
