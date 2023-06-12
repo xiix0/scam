@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+You will visit the Dung Pits of Glive soon.
