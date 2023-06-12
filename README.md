@@ -1,2 +1,2 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
