@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+Hope that the day after you die is a nice day.
