@@ -1,1 +1,2 @@
-You're working under a slight handicap.  You happen to be human.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
