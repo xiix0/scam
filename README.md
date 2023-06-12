@@ -1,2 +1,2 @@
-Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
-		-- Shakespeare
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
