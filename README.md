@@ -1,1 +1,1 @@
-You seek to shield those you love and you like the role of the provider.
+Beauty and harmony are as necessary to you as the very breath of life.
