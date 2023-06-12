@@ -1,3 +1,1 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+Don't tell any big lies today.  Small ones can be just as effective.
