@@ -1,2 +1,3 @@
-Q:	What do you get when you cross the Godfather with an attorney?
-A:	An offer you can't understand.
+Q:	How does a hacker fix a function which
+	doesn't work for all of the elements in its domain?
+A:	He changes the domain.
