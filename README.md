@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+You're working under a slight handicap.  You happen to be human.
