@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+A gift of a flower will soon be made to you.
