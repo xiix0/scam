@@ -1,2 +1,2 @@
-Q:	How many Harvard MBA's does it take to screw in a light bulb?
-A:	Just one.  He grasps it firmly and the universe revolves around him.
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
