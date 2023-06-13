@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+Your life would be very empty if you had nothing to regret.
