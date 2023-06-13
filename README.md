@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+You are fighting for survival in your own sweet and gentle way.
