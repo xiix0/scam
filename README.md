@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+Of course you have a purpose -- to find a purpose.
