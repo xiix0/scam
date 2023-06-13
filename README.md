@@ -1,1 +1,1 @@
-You will have a long and boring life.
+You need more time; and you probably always will.
