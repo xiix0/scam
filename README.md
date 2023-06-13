@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+Love is in the offing.  Be affectionate to one who adores you.
