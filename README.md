@@ -1,1 +1,2 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
