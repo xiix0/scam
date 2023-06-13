@@ -1,1 +1,2 @@
-You will be held hostage by a radical group.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
