@@ -1,1 +1,2 @@
-Your talents will be recognized and suitably rewarded.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
