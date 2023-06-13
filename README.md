@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+You'll be called to a post requiring ability in handling groups of people.
