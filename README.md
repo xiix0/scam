@@ -1,3 +1,2 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
