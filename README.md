@@ -1,2 +1,1 @@
-Kiss me, Kate, we will be married o' Sunday.
-		-- William Shakespeare, "The Taming of the Shrew"
+Time to be aggressive.  Go after a tattooed Virgo.
