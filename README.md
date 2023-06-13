@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+That secret you've been guarding, isn't.
