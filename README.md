@@ -1,3 +1,2 @@
-ROMEO:		Courage, man; the hurt cannot be much.
-MERCUTIO:	No, 'tis not so deep as a well, nor so wide
-			as a church-door; but 'tis enough, 'twill serve.
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
