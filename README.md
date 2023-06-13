@@ -1,1 +1,1 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
