@@ -1,3 +1,1 @@
-One of the most striking differences between a cat and a lie is that a cat has
-only nine lives.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You will soon meet a person who will play an important role in your life.
