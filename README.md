@@ -1,2 +1,1 @@
-This night methinks is but the daylight sick.
-		-- William Shakespeare, "The Merchant of Venice"
+You can create your own opportunities this week.  Blackmail a senior executive.
