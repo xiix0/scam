@@ -1,1 +1,1 @@
-Chicken Little was right.
+Accent on helpful side of your nature.  Drain the moat.
