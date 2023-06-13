@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+Good day for a change of scene.  Repaper the bedroom wall.
