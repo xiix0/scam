@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
