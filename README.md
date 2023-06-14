@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Do nothing unless you must, and when you must act -- hesitate.
