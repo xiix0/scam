@@ -1,2 +1,3 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
