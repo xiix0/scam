@@ -1,1 +1,2 @@
-You have a strong appeal for members of the opposite sex.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
