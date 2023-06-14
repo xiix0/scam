@@ -1,1 +1,1 @@
-Just to have it is enough.
+Truth will out this morning.  (Which may really mess things up.)
