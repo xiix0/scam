@@ -1,2 +1,1 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+Another good night not to sleep in a eucalyptus tree.
