@@ -1,2 +1,1 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+Don't let your mind wander -- it's too little to be let out alone.
