@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
