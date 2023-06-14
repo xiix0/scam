@@ -1,2 +1,2 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
