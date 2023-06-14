@@ -1,1 +1,1 @@
-Your step will soil many countries.
+Beware of low-flying butterflies.
