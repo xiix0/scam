@@ -1,1 +1,1 @@
-Be different: conform.
+You possess a mind not merely twisted, but actually sprained.
