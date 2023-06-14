@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+People are beginning to notice you.  Try dressing before you leave the house.
