@@ -1,2 +1,1 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+You'll feel much better once you've given up hope.
