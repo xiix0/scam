@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+Beware of a tall black man with one blond shoe.
