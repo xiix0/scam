@@ -1,1 +1,1 @@
-Be careful!  Is it classified?
+Your lucky color has faded.
