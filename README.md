@@ -1,1 +1,1 @@
-You have a deep appreciation of the arts and music.
+You work very hard.  Don't try to think as well.
