@@ -1,2 +1,2 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+Don't Worry, Be Happy.
+		-- Meher Baba
