@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+The time is right to make new friends.
