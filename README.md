@@ -1,1 +1,2 @@
-All the troubles you have will pass away very quickly.
+He is now rising from affluence to poverty.
+		-- Mark Twain
