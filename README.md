@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Cold hands, no gloves.
