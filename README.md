@@ -1,2 +1,2 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
