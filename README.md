@@ -1,1 +1,2 @@
-Your present plans will be successful.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
