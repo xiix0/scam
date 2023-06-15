@@ -1,2 +1,3 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
