@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
