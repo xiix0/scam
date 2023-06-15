@@ -1,1 +1,1 @@
-The time is right to make new friends.
+All the troubles you have will pass away very quickly.
