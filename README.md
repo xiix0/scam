@@ -1,2 +1,2 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
