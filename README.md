@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
