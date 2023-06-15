@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+Don't let your mind wander -- it's too little to be let out alone.
