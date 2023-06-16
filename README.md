@@ -1,3 +1,2 @@
-A hundred years from now it is very likely that [of Twain's works] "The
-Jumping Frog" alone will be remembered.
-		-- Harry Thurston Peck (Editor of "The Bookman"), January 1901.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
