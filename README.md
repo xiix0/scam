@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+Good news from afar can bring you a welcome visitor.
