@@ -1,1 +1,2 @@
-A gift of a flower will soon be made to you.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
