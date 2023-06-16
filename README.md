@@ -1,1 +1,2 @@
-Don't go surfing in South Dakota for a while.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
