@@ -1,2 +1,1 @@
-Every why hath a wherefore.
-		-- William Shakespeare, "A Comedy of Errors"
+You will be imprisoned for contributing your time and skill to a bank robbery.
