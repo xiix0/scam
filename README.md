@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+A vivid and creative mind characterizes you.
