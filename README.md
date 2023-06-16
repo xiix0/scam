@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of new developments.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
