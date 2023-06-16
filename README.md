@@ -1,2 +1,1 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+You will be traveling and coming into a fortune.
