@@ -1,1 +1,1 @@
-Think twice before speaking, but don't say "think think click click".
+A gift of a flower will soon be made to you.
