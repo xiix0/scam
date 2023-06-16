@@ -1,2 +1,1 @@
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+Cheer Up!  Things are getting worse at a slower rate.
