@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+You prefer the company of the opposite sex, but are well liked by your own.
