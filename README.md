@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+You will not be elected to public office this year.
