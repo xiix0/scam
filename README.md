@@ -1,2 +1,3 @@
-Q:	What's tiny and yellow and very, very, dangerous?
-A:	A canary with the super-user password.
+A hundred years from now it is very likely that [of Twain's works] "The
+Jumping Frog" alone will be remembered.
+		-- Harry Thurston Peck (Editor of "The Bookman"), January 1901.
