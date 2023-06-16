@@ -1,2 +1,1 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+You are only young once, but you can stay immature indefinitely.
