@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+After your lover has gone you will still have PEANUT BUTTER!
