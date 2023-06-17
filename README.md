@@ -1,1 +1,1 @@
-You will soon meet a person who will play an important role in your life.
+You have been selected for a secret mission.
