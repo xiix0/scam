@@ -1,2 +1,3 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
