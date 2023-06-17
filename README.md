@@ -1,2 +1,1 @@
-Extreme fear can neither fight nor fly.
-		-- William Shakespeare, "The Rape of Lucrece"
+Don't you feel more like you do now than you did when you came in?
