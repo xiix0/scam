@@ -1,1 +1,1 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+You will soon meet a person who will play an important role in your life.
