@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Your boss is a few sandwiches short of a picnic.
