@@ -1,1 +1,1 @@
-Let me put it this way: today is going to be a learning experience.
+If you stand on your head, you will get footprints in your hair.
