@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+Your depth of comprehension may tend to make you lax in worldly ways.
