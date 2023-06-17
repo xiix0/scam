@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
