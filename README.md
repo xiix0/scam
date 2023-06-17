@@ -1,1 +1,1 @@
-Do not overtax your powers.
+You will be winged by an anti-aircraft battery.
