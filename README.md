@@ -1,2 +1,2 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
