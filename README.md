@@ -1,3 +1,3 @@
-Q:	How many Zen masters does it take to screw in a light bulb?
-A:	None.  The Universe spins the bulb, and the Zen master stays out
-	of the way.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
+A:	The Royal Canadian Mounted Police.
+Q:	What was the greatest achievement in taxidermy?
