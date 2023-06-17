@@ -1,1 +1,2 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
