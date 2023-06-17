@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+You can create your own opportunities this week.  Blackmail a senior executive.
