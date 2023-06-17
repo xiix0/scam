@@ -1,3 +1,2 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
