@@ -1,14 +1,6 @@
-Gone With The Wind LITE(tm)
-	-- by Margaret Mitchell
-
-	A woman only likes men she can't have and the South gets trashed.
-
-Gift of the Magi LITE(tm)
-	-- by O. Henry
-
-	A husband and wife forget to register their gift preferences.
-
-The Old Man and the Sea LITE(tm)
-	-- by Ernest Hemingway
-
-	An old man goes fishing, but doesn't have much luck.
+There are three infallible ways of pleasing an author, and the three form a
+rising scale of compliment: 1, to tell him you have read one of his books; 2,
+to tell him you have read all of his books; 3, to ask him to let you read the
+manuscript of his forthcoming book.  No. 1 admits you to his respect; No. 2
+admits you to his admiration; No. 3 carries you clear into his heart.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
