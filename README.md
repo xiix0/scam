@@ -1,1 +1,2 @@
-You have been selected for a secret mission.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
