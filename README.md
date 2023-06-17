@@ -1,1 +1,2 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
