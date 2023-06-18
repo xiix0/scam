@@ -1,1 +1,2 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
