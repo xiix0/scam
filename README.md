@@ -1,2 +1,1 @@
-English literature's performing flea.
-		-- Sean O'Casey on P. G. Wodehouse
+You're almost as happy as you think you are.
