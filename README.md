@@ -1,2 +1,2 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
