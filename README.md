@@ -1,3 +1,2 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
