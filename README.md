@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+You're ugly and your mother dresses you funny.
