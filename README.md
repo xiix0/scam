@@ -1,1 +1,2 @@
-Condense soup, not books!
+Conscience doth make cowards of us all.
+		-- Shakespeare
