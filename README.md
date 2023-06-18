@@ -1,1 +1,1 @@
-Future looks spotty.  You will spill soup in late evening.
+You are a fluke of the universe; you have no right to be here.
