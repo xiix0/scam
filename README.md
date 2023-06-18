@@ -1,1 +1,1 @@
-Don't let your mind wander -- it's too little to be let out alone.
+Your heart is pure, and your mind clear, and your soul devout.
