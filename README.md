@@ -1,1 +1,2 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
