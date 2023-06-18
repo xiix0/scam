@@ -1,1 +1,1 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+Don't let your mind wander -- it's too little to be let out alone.
