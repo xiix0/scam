@@ -1,1 +1,1 @@
-You will be run over by a bus.
+Never look up when dragons fly overhead.
