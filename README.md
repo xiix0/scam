@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Look afar and see the end from the beginning.
