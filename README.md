@@ -1,1 +1,2 @@
-You are a fluke of the universe; you have no right to be here.
+You're growing out of some of your problems, but there are others that
+you're growing into.
