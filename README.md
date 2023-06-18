@@ -1,1 +1,2 @@
-You feel a whole lot more like you do now than you did when you used to.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
