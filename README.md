@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+A visit to a strange place will bring fresh work.
