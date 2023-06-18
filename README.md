@@ -1,1 +1,2 @@
-A visit to a strange place will bring fresh work.
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
