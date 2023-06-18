@@ -1,2 +1,3 @@
-You're growing out of some of your problems, but there are others that
-you're growing into.
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
