@@ -1,1 +1,2 @@
-You're currently going through a difficult transition period called "Life."
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
