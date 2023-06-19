@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
