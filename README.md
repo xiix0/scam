@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+Tuesday is the Wednesday of the rest of your life.
