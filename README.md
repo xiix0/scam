@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+Good news.  Ten weeks from Friday will be a pretty good day.
