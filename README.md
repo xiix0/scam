@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Avert misunderstanding by calm, poise, and balance.
