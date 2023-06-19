@@ -1,2 +1,2 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+Q:	What is the sound of one cat napping?
+A:	Mu.
