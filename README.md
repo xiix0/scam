@@ -1,2 +1,3 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+My only love sprung from my only hate!
+Too early seen unknown, and known too late!
+		-- William Shakespeare, "Romeo and Juliet"
