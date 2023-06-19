@@ -1,3 +1,3 @@
-All say, "How hard it is that we have to die"--a strange complaint to come from
-the mouths of people who have had to live.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+So so is good, very good, very excellent good:
+and yet it is not; it is but so so.
+		-- William Shakespeare, "As You Like It"
