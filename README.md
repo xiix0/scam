@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+You may get an opportunity for advancement today.  Watch it!
