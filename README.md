@@ -1,1 +1,2 @@
-Tuesday is the Wednesday of the rest of your life.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
