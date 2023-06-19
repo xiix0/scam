@@ -1,1 +1,2 @@
-Be security conscious -- National defense is at stake.
+Q:	What is the sound of one cat napping?
+A:	Mu.
