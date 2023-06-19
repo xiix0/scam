@@ -1,1 +1,2 @@
-An exotic journey in downtown Newark is in your future.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
