@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+Your temporary financial embarrassment will be relieved in a surprising manner.
