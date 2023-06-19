@@ -1,1 +1,2 @@
-You have taken yourself too seriously.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
