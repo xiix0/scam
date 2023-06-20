@@ -1,2 +1,2 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
