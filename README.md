@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+Be cautious in your daily affairs.
