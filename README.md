@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+You seek to shield those you love and you like the role of the provider.
