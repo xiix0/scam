@@ -1,2 +1,2 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
