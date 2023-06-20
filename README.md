@@ -1,1 +1,2 @@
-You will give someone a piece of your mind, which you can ill afford.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
