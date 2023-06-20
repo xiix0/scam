@@ -1,2 +1,2 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
