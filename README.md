@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+You'd like to do it instantaneously, but that's too slow.
