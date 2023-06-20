@@ -1,2 +1,8 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+To be or not to be.
+		-- Shakespeare
+To do is to be.
+		-- Nietzsche
+To be is to do.
+		-- Sartre
+Do be do be do.
+		-- Sinatra
