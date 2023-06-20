@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
