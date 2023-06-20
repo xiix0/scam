@@ -1,2 +1,1 @@
-There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+Expect a letter from a friend who will ask a favor of you.
