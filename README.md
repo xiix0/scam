@@ -1,2 +1,2 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
