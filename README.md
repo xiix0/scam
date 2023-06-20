@@ -1,3 +1,2 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+I have never let my schooling interfere with my education.
+		-- Mark Twain
