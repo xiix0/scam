@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+Things will be bright in P.M.  A cop will shine a light in your face.
