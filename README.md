@@ -1,1 +1,2 @@
-Tuesday is the Wednesday of the rest of your life.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
