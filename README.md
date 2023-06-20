@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
