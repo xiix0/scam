@@ -1,2 +1,1 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+You will be a winner today.  Pick a fight with a four-year-old.
