@@ -1,1 +1,1 @@
-Just to have it is enough.
+Tuesday is the Wednesday of the rest of your life.
