@@ -1,2 +1,2 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
