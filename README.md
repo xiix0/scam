@@ -1,2 +1,3 @@
-As to the Adjective: when in doubt, strike it out.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
+A:	That's proprietary information.  Answer available from AT&T on payment
+	of license fee (binary only).
