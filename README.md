@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+You are a very redundant person, that's what kind of person you are.
