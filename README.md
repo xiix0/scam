@@ -1,1 +1,2 @@
-You have no real enemies.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
