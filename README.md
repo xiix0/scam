@@ -1,2 +1,2 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
