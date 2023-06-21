@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+You will be called upon to help a friend in trouble.
