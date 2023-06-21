@@ -1,1 +1,2 @@
-You are the only person to ever get this message.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
