@@ -1,2 +1,1 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+You will live to see your grandchildren.
