@@ -1,1 +1,2 @@
-You will be called upon to help a friend in trouble.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
