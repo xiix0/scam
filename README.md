@@ -1,1 +1,2 @@
-Today is the tomorrow you worried about yesterday.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
