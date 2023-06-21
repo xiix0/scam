@@ -1,1 +1,1 @@
-Don't you feel more like you do now than you did when you came in?
+Truth will out this morning.  (Which may really mess things up.)
