@@ -1,3 +1,2 @@
-I don't know half of you half as well as I should like; and I like less
-than half of you half as well as you deserve.
-		-- J. R. R. Tolkien
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
