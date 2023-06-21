@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Beware of a tall blond man with one black shoe.
