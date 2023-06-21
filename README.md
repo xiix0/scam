@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+A tall, dark stranger will have more fun than you.
