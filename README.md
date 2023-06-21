@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+You display the wonderful traits of charm and courtesy.
