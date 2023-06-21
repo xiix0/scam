@@ -1,2 +1,2 @@
-Q:	Why did the WASP cross the road?
-A:	To get to the middle.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
