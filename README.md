@@ -1,1 +1,1 @@
-You will wish you hadn't.
+Your lover will never wish to leave you.
