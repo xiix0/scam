@@ -1,1 +1,1 @@
-Your step will soil many countries.
+You will gain money by a speculation or lottery.
