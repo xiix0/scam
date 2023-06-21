@@ -1,2 +1,2 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
