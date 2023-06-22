@@ -1,2 +1,2 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
