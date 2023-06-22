@@ -1,2 +1,1 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+Don't relax!  It's only your tension that's holding you together.
