@@ -1,2 +1,2 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
