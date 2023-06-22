@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
-A:	The Halls of Montezuma and the Shores of Tripoli.
-Q:	Name two families whose kids won't join the Marines.
+Q:	How many Harvard MBA's does it take to screw in a light bulb?
+A:	Just one.  He grasps it firmly and the universe revolves around him.
