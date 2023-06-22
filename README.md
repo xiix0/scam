@@ -1,2 +1,2 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
