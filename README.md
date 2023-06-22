@@ -1,3 +1,2 @@
-The man who sets out to carry a cat by its tail learns something that
-will always be useful and which never will grow dim or doubtful.
-		-- Mark Twain
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
