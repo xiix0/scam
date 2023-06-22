@@ -1,1 +1,2 @@
-You will live to see your grandchildren.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
