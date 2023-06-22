@@ -1,2 +1,2 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
