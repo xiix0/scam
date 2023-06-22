@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
