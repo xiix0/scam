@@ -1,1 +1,2 @@
-You have Egyptian flu: you're going to be a mummy.
+All generalizations are false, including this one.
+		-- Mark Twain
