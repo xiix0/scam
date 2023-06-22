@@ -1,3 +1,2 @@
-ROMEO:		Courage, man; the hurt cannot be much.
-MERCUTIO:	No, 'tis not so deep as a well, nor so wide
-			as a church-door; but 'tis enough, 'twill serve.
+Q:	What do you have when you have a lawyer buried up to his neck in sand?
+A:	Not enough sand.
