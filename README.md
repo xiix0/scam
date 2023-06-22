@@ -1,2 +1,2 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
