@@ -1,2 +1,2 @@
-Q:	What do you have when you have a lawyer buried up to his neck in sand?
-A:	Not enough sand.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
