@@ -1,2 +1,2 @@
-Q:	How many Harvard MBA's does it take to screw in a light bulb?
-A:	Just one.  He grasps it firmly and the universe revolves around him.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
