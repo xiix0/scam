@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+A vivid and creative mind characterizes you.
