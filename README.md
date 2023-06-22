@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+Today is the first day of the rest of the mess.
