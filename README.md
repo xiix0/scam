@@ -1,2 +1,2 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
