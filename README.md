@@ -1,1 +1,1 @@
-Your reasoning powers are good, and you are a fairly good planner.
+You will have good luck and overcome many hardships.
