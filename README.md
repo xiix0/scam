@@ -1,3 +1,8 @@
-ROMEO:		Courage, man; the hurt cannot be much.
-MERCUTIO:	No, 'tis not so deep as a well, nor so wide
-			as a church-door; but 'tis enough, 'twill serve.
+In the space of one hundred and seventy-six years the Mississippi has
+shortened itself two hundred and forty-two miles.  Therefore ... in the Old
+Silurian Period the Mississippi River was upward of one million three hundred
+thousand miles long ... seven hundred and forty-two years from now the
+Mississippi will be only a mile and three-quarters long.  ... There is
+something fascinating about science.  One gets such wholesome returns of
+conjecture out of such a trifling investment of fact.
+		-- Mark Twain
