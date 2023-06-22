@@ -1,2 +1,2 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
