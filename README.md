@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
