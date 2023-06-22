@@ -1,1 +1,2 @@
-If you can read this, you're too close.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
