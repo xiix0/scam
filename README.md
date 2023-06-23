@@ -1,3 +1,3 @@
-When I reflect upon the number of disagreeable people who I know who have gone
-to a better world, I am moved to lead a different life.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Work consists of whatever a body is obliged to do.
+Play consists of whatever a body is not obliged to do.
+		-- Mark Twain
