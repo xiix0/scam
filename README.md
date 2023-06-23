@@ -1,3 +1,5 @@
-The only way to keep your health is to eat what you don't want, drink what
-you don't like, and do what you'd rather not.
-		-- Mark Twain
+Q:	What do you call a blind pre-historic animal?
+A:	Diyathinkhesaurus.
+
+Q:	What do you call a blind pre-historic animal with a dog?
+A:	Diyathinkhesaurus Rex.
