@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
