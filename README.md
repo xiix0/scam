@@ -1,3 +1,2 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
