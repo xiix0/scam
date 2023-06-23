@@ -1,1 +1,2 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
