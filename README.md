@@ -1,1 +1,2 @@
-You work very hard.  Don't try to think as well.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
