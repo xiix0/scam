@@ -1,1 +1,2 @@
-If your life was a horse, you'd have to shoot it.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
