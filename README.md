@@ -1,1 +1,1 @@
-You could live a better life, if you had a better mind and a better body.
+If your life was a horse, you'd have to shoot it.
