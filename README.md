@@ -1,2 +1,3 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
