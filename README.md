@@ -1,1 +1,2 @@
-Look afar and see the end from the beginning.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
