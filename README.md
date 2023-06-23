@@ -1,2 +1,2 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
