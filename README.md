@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+Your domestic life may be harmonious.
