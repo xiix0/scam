@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+You too can wear a nose mitten.
