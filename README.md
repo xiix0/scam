@@ -1,1 +1,2 @@
-Be careful!  UGLY strikes 9 out of 10!
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
