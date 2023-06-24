@@ -1,2 +1,2 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
