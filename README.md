@@ -1,3 +1,2 @@
-Zounds!  I was never so bethumped with words
-since I first called my brother's father dad.
-		-- William Shakespeare, "Kind John"
+Q:	How many IBM CPU's does it take to do a logical right shift?
+A:	33.  1 to hold the bits and 32 to push the register.
