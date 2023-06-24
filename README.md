@@ -1,2 +1,2 @@
-You will be attacked by a beast who has the body of a wolf, the tail of
-a lion, and the face of Donald Duck.
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
