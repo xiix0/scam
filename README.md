@@ -1,2 +1,2 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
