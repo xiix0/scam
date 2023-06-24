@@ -1,1 +1,1 @@
-Don't relax!  It's only your tension that's holding you together.
+You're currently going through a difficult transition period called "Life."
