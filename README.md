@@ -1,1 +1,1 @@
-You will be divorced within a year.
+Chicken Little only has to be right once.
