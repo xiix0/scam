@@ -1,1 +1,1 @@
-You possess a mind not merely twisted, but actually sprained.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
