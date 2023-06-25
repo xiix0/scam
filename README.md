@@ -1,2 +1,2 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
