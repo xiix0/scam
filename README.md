@@ -1,2 +1,3 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
