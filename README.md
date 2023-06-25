@@ -1,1 +1,1 @@
-You enjoy the company of other people.
+You will always have good luck in your personal affairs.
