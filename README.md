@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
