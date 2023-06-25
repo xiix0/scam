@@ -1,1 +1,1 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+People are beginning to notice you.  Try dressing before you leave the house.
