@@ -1,1 +1,1 @@
-Try to have as good a life as you can under the circumstances.
+Don't go surfing in South Dakota for a while.
