@@ -1,2 +1,1 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+You'll be called to a post requiring ability in handling groups of people.
