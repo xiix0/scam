@@ -1,2 +1,1 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+Things will be bright in P.M.  A cop will shine a light in your face.
