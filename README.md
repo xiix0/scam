@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+You will be run over by a bus.
