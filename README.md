@@ -1,2 +1,2 @@
-You're growing out of some of your problems, but there are others that
-you're growing into.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
