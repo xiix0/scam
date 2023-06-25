@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+You will probably marry after a very brief courtship.
