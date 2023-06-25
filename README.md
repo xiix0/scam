@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+You will always have good luck in your personal affairs.
