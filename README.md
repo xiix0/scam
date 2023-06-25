@@ -1,2 +1,2 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
