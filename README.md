@@ -1,1 +1,1 @@
-A day for firm decisions!!!!!  Or is it?
+You look like a million dollars.  All green and wrinkled.
