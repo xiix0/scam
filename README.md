@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+Tonight's the night: Sleep in a eucalyptus tree.
