@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+You will be married within a year.
