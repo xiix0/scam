@@ -1,1 +1,3 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
+that think they are truffles.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
