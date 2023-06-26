@@ -1,1 +1,2 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
