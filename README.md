@@ -1,1 +1,2 @@
-You enjoy the company of other people.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
