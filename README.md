@@ -1,5 +1,3 @@
-For years a secret shame destroyed my peace--
-I'd not read Eliot, Auden or MacNiece.
-But now I think a thought that brings me hope:
-Neither had Chaucer, Shakespeare, Milton, Pope.
-		-- Justin Richardson.
+ROMEO:		Courage, man; the hurt cannot be much.
+MERCUTIO:	No, 'tis not so deep as a well, nor so wide
+			as a church-door; but 'tis enough, 'twill serve.
