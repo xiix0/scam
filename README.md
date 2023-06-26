@@ -1,1 +1,2 @@
-Many changes of mind and mood; do not hesitate too long.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
