@@ -1,1 +1,2 @@
-You will engage in a profitable business activity.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
