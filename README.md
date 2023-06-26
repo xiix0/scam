@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
