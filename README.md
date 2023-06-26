@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+Your true value depends entirely on what you are compared with.
