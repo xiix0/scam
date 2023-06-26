@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+Are you a turtle?
