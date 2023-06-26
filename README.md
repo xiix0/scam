@@ -1,2 +1,2 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
