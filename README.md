@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+You will attract cultured and artistic people to your home.
