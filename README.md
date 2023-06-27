@@ -1,2 +1,1 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Beware of a tall black man with one blond shoe.
