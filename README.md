@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+A visit to a fresh place will bring strange work.
