@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+Don't look back, the lemmings are gaining on you.
