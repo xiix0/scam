@@ -1,1 +1,2 @@
-Beware of a tall black man with one blond shoe.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
