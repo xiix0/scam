@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+So this is it.  We're going to die.
