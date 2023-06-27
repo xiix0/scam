@@ -1,2 +1,2 @@
-No group of professionals meets except to conspire against the public at large.
+The human race has one really effective weapon, and that is laughter.
 		-- Mark Twain
