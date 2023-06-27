@@ -1,1 +1,1 @@
-You are as I am with You.
+You will forget that you ever knew me.
