@@ -1,2 +1,2 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
