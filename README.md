@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+You are dishonest, but never to the point of hurting a friend.
