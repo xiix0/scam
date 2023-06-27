@@ -1,2 +1,1 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Don't let your mind wander -- it's too little to be let out alone.
