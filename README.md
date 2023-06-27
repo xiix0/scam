@@ -1,1 +1,2 @@
-Don't look back, the lemmings are gaining on you.
+Wagner's music is better than it sounds.
+		-- Mark Twain
