@@ -1,1 +1,2 @@
-You're almost as happy as you think you are.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
