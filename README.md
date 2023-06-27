@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+You will get what you deserve.
