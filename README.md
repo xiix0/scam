@@ -1,3 +1,2 @@
-So so is good, very good, very excellent good:
-and yet it is not; it is but so so.
-		-- William Shakespeare, "As You Like It"
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
