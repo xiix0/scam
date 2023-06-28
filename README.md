@@ -1,1 +1,3 @@
-You would if you could but you can't so you won't.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
