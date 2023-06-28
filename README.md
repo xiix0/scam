@@ -1,2 +1,3 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
