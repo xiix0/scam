@@ -1,2 +1,2 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
