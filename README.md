@@ -1,3 +1,8 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #4
-A:	Go west, young man, go west!
-Q:	What do wabbits do when they get tiwed of wunning awound?
+Q:	How many Californians does it take to screw in a light bulb?
+A:	Five.  One to screw in the light bulb and four to share the
+		experience.  (Actually, Californians don't screw in
+		light bulbs, they screw in hot tubs.)
+
+Q:	How many Oregonians does it take to screw in a light bulb?
+A:	Three.  One to screw in the light bulb and two to fend off all
+		those Californians trying to share the experience.
