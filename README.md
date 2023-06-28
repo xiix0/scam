@@ -1,2 +1,2 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
