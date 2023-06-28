@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+You will gain money by a speculation or lottery.
