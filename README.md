@@ -1,2 +1,3 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
