@@ -1,1 +1,1 @@
-You definitely intend to start living sometime soon.
+Your heart is pure, and your mind clear, and your soul devout.
