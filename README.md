@@ -1,1 +1,2 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+Q:	How many supply-siders does it take to change a light bulb?
+A:	None.  The darkness will cause the light bulb to change by itself.
