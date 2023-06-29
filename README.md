@@ -1,1 +1,2 @@
-Your aim is high and to the right.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
