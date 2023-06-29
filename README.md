@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+You will win success in whatever calling you adopt.
