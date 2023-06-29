@@ -1,1 +1,2 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
