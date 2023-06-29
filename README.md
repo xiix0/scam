@@ -1,2 +1,1 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+Your aim is high and to the right.
