@@ -1,1 +1,1 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+You will live a long, healthy, happy life and make bags of money.
