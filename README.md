@@ -1,1 +1,2 @@
-You will win success in whatever calling you adopt.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
