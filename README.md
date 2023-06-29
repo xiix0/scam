@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+You will be a winner today.  Pick a fight with a four-year-old.
