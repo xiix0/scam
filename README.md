@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+You too can wear a nose mitten.
