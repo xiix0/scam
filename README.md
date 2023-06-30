@@ -1,1 +1,1 @@
-You will be divorced within a year.
+Today is the tomorrow you worried about yesterday.
