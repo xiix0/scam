@@ -1,2 +1,2 @@
-If you learn one useless thing every day, in a single year you'll learn
-365 useless things.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
