@@ -1,1 +1,3 @@
-Your object is to save the world, while still leading a pleasant life.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
