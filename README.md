@@ -1,1 +1,2 @@
-Today is the tomorrow you worried about yesterday.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
