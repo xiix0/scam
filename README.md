@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
