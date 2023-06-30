@@ -1,2 +1,1 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+You will meet an important person who will help you advance professionally.
