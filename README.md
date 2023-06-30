@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+Don't kiss an elephant on the lips today.
