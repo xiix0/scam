@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+You will reach the highest possible point in your business or profession.
