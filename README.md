@@ -1,2 +1,2 @@
-Alas, how love can trifle with itself!
-		-- William Shakespeare, "The Two Gentlemen of Verona"
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
