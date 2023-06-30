@@ -1,1 +1,3 @@
-The time is right to make new friends.
+Q:	How many bureaucrats does it take to screw in a light bulb?
+A:	Two.  One to assure everyone that everything possible is being
+	done while the other screws the bulb into the water faucet.
