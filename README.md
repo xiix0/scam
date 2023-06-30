@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
