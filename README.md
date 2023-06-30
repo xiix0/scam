@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Look afar and see the end from the beginning.
