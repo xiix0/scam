@@ -1,1 +1,1 @@
-Perfect day for scrubbing the floor and other exciting things.
+Do nothing unless you must, and when you must act -- hesitate.
