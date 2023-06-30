@@ -1,6 +1,3 @@
-Unless hours were cups of sack, and minutes capons, and clocks the tongues
-of bawds, and dials the signs of leaping houses, and the blessed sun himself
-a fair, hot wench in flame-colored taffeta, I see no reason why thou shouldst
-be so superfluous to demand the time of the day.  I wasted time and now doth
-time waste me.
-		-- William Shakespeare
+Q:	How many lawyers does it take to change a light bulb?
+A:	You won't find a lawyer who can change a light bulb.  Now, if
+	you're looking for a lawyer to screw a light bulb...
