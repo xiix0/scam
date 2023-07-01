@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+Your love life will be happy and harmonious.
