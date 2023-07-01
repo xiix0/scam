@@ -1,4 +1,2 @@
-F.S. Fitzgerald to Hemingway:
-	"Ernest, the rich are different from us."
-Hemingway:
-	"Yes.  They have more money."
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
