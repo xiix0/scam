@@ -1,2 +1,1 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+Chicken Little only has to be right once.
