@@ -1,1 +1,1 @@
-You should go home.
+An exotic journey in downtown Newark is in your future.
