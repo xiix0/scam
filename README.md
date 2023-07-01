@@ -1,1 +1,2 @@
-You will contract a rare disease.
+Too much is just enough.
+		-- Mark Twain, on whiskey
