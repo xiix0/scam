@@ -1,2 +1,2 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
