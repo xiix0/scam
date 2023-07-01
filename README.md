@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+You're currently going through a difficult transition period called "Life."
