@@ -1,2 +1,3 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
