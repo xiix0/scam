@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+Avert misunderstanding by calm, poise, and balance.
