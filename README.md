@@ -1,1 +1,1 @@
-You'll never be the man your mother was!
+Beware of a tall blond man with one black shoe.
