@@ -1,2 +1,1 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+You have Egyptian flu: you're going to be a mummy.
