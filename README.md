@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+You own a dog, but you can only feed a cat.
