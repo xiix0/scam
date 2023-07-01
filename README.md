@@ -1,1 +1,2 @@
-You will have good luck and overcome many hardships.
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
