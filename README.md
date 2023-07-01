@@ -1,1 +1,2 @@
-Avoid gunfire in the bathroom tonight.
+Q:	What do little WASPs want to be when they grow up?
+A:	The very best person they can possibly be.
