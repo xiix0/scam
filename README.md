@@ -1,2 +1,3 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+Q:	What's the difference between a dead dog in the road and a dead
+	lawyer in the road?
+A:	There are skid marks in front of the dog.
