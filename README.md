@@ -1,1 +1,1 @@
-Chicken Little was right.
+You are confused; but this is your normal state.
