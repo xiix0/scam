@@ -1,1 +1,1 @@
-Condense soup, not books!
+Avoid gunfire in the bathroom tonight.
