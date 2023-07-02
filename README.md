@@ -1,2 +1,1 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
