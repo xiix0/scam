@@ -1,2 +1,1 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+People are beginning to notice you.  Try dressing before you leave the house.
