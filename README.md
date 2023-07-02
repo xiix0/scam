@@ -1,3 +1,2 @@
-A hundred years from now it is very likely that [of Twain's works] "The
-Jumping Frog" alone will be remembered.
-		-- Harry Thurston Peck (Editor of "The Bookman"), January 1901.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
