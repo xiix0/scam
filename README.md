@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+Perfect day for scrubbing the floor and other exciting things.
