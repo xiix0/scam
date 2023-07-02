@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+Don't let your mind wander -- it's too little to be let out alone.
