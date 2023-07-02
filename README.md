@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Q:	What's the difference betweeen USL and the Graf Zeppelin?
+A:	The Graf Zeppelin represented cutting edge technology for its time.
