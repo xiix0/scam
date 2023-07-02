@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+You seek to shield those you love and you like the role of the provider.
