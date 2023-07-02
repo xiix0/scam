@@ -1,3 +1,3 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+A hundred years from now it is very likely that [of Twain's works] "The
+Jumping Frog" alone will be remembered.
+		-- Harry Thurston Peck (Editor of "The Bookman"), January 1901.
