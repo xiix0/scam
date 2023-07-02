@@ -1,2 +1,2 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
