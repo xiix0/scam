@@ -1,1 +1,2 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
