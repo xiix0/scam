@@ -1,1 +1,2 @@
-Condense soup, not books!
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
