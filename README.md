@@ -1,1 +1,2 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
