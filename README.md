@@ -1,1 +1,3 @@
-Don't let your mind wander -- it's too little to be let out alone.
+Its name is Public Opinion.  It is held in reverence.  It settles everything.
+Some think it is the voice of God.
+		-- Mark Twain
