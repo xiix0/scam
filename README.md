@@ -1,3 +1,2 @@
-Soap and education are not as sudden as a massacre, but they are more
-deadly in the long run.
-		-- Mark Twain
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
