@@ -1,1 +1,2 @@
-Caution: Keep out of reach of children.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
