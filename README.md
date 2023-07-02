@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+You will be surrounded by luxury.
