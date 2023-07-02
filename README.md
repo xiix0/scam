@@ -1,1 +1,1 @@
-Many pages make a thick book.
+Bank error in your favor.  Collect $200.
