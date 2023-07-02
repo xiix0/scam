@@ -1,2 +1,1 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+Are you sure the back door is locked?
