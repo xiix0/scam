@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+You will have long and healthy life.
