@@ -1,2 +1,1 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+You attempt things that you do not even plan because of your extreme stupidity.
