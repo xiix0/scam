@@ -1,2 +1,2 @@
-A is for Apple.
-		-- Hester Pryne
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
