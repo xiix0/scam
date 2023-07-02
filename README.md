@@ -1,1 +1,2 @@
-Today is the first day of the rest of the mess.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
