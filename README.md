@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
