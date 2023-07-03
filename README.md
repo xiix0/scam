@@ -1,2 +1,2 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
