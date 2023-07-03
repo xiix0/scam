@@ -1,1 +1,2 @@
-Beware of a tall blond man with one black shoe.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
