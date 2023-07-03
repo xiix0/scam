@@ -1,1 +1,2 @@
-Go to a movie tonight.  Darkness becomes you.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
