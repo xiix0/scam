@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+Beware of a tall blond man with one black shoe.
