@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
