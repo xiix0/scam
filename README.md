@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+An avocado-tone refrigerator would look good on your resume.
