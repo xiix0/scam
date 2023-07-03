@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+You'll feel much better once you've given up hope.
