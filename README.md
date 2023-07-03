@@ -1,2 +1,2 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
