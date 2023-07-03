@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+Do nothing unless you must, and when you must act -- hesitate.
