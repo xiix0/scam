@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Your lover will never wish to leave you.
