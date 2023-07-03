@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
