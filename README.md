@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+Living your life is a task so difficult, it has never been attempted before.
