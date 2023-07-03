@@ -1,2 +1,2 @@
-"... all the modern inconveniences ..."
+Be careful of reading health books, you might die of a misprint.
 		-- Mark Twain
