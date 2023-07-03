@@ -1,1 +1,1 @@
-You definitely intend to start living sometime soon.
+Cheer Up!  Things are getting worse at a slower rate.
