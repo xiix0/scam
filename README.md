@@ -1,1 +1,2 @@
-You will wish you hadn't.
+"... all the modern inconveniences ..."
+		-- Mark Twain
