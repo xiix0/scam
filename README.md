@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+You will soon meet a person who will play an important role in your life.
