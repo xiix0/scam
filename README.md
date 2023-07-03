@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+You get along very well with everyone except animals and people.
