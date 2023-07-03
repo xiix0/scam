@@ -1,1 +1,2 @@
-You will soon meet a person who will play an important role in your life.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
