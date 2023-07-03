@@ -1,3 +1,3 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+Don't go around saying the world owes you a living.  The world owes you
+nothing.  It was here first.
+		-- Mark Twain
