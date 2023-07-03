@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+You are fighting for survival in your own sweet and gentle way.
