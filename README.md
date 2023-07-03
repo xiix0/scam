@@ -1,2 +1,1 @@
-What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, "The League of Frightened Men"
+Tonight's the night: Sleep in a eucalyptus tree.
