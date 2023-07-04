@@ -1,2 +1,1 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+Do nothing unless you must, and when you must act -- hesitate.
