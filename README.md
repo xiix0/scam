@@ -1,2 +1,1 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+You have literary talent that you should take pains to develop.
