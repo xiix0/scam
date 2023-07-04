@@ -1,1 +1,1 @@
-Everything that you know is wrong, but you can be straightened out.
+You recoil from the crude; you tend naturally toward the exquisite.
