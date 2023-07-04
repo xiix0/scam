@@ -1,3 +1,2 @@
-Anyone who has had a bull by the tail knows five or six more things
-than someone who hasn't.
-		-- Mark Twain
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
