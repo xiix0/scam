@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+You have taken yourself too seriously.
