@@ -1,3 +1,1 @@
-Zounds!  I was never so bethumped with words
-since I first called my brother's father dad.
-		-- William Shakespeare, "Kind John"
+Best of all is never to have been born.  Second best is to die soon.
