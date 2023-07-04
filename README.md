@@ -1,1 +1,1 @@
-Best of all is never to have been born.  Second best is to die soon.
+Live in a world of your own, but always welcome visitors.
