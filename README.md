@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Your ignorance cramps my conversation.
