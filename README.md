@@ -1,2 +1,2 @@
-Q:	What's the difference between a Mac and an Etch-a-Sketch?
-A:	You don't have to shake the Mac to clear the screen.
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
