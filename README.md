@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+You could live a better life, if you had a better mind and a better body.
