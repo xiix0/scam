@@ -1,2 +1,1 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+You will not be elected to public office this year.
