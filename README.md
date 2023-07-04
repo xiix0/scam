@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
