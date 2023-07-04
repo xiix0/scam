@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+Bridge ahead.  Pay troll.
