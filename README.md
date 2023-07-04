@@ -1,1 +1,3 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
