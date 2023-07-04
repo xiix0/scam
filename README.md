@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+You've been leading a dog's life.  Stay off the furniture.
