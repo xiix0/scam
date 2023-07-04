@@ -1,5 +1,3 @@
-Steady movement is more important than speed, much of the time.  So long
-as there is a regular progression of stimuli to get your mental hooks
-into, there is room for lateral movement.  Once this begins, its rate is
-a matter of discretion.
-		-- Corwin, Prince of Amber
+Q:	What looks like a cat, flies like a bat, brays like a donkey, and
+	plays like a monkey?
+A:	Nothing.
