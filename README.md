@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+Increased knowledge will help you now.  Have mate's phone bugged.
