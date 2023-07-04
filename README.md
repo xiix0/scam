@@ -1,1 +1,2 @@
-You definitely intend to start living sometime soon.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
