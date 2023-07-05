@@ -1,1 +1,2 @@
-Of course you have a purpose -- to find a purpose.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
