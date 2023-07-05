@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
