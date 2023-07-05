@@ -1,2 +1,2 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
