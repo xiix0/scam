@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Change your thoughts and you change your world.
