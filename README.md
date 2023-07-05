@@ -1,1 +1,3 @@
-Think twice before speaking, but don't say "think think click click".
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
