@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+It was all so different before everything changed.
