@@ -1,2 +1,2 @@
-Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
-		-- Shakespeare
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
