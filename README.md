@@ -1,2 +1,1 @@
-No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
-		-- Sherlock Holmes
+Of course you have a purpose -- to find a purpose.
