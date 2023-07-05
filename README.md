@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
