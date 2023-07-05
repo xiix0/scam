@@ -1,1 +1,2 @@
-Change your thoughts and you change your world.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
