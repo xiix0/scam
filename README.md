@@ -1,1 +1,2 @@
-A vivid and creative mind characterizes you.
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
