@@ -1,3 +1,1 @@
-The man who sets out to carry a cat by its tail learns something that
-will always be useful and which never will grow dim or doubtful.
-		-- Mark Twain
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
