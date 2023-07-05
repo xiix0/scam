@@ -1,1 +1,1 @@
-You will soon forget this.
+Your talents will be recognized and suitably rewarded.
