@@ -1,1 +1,3 @@
-You have the power to influence all with whom you come in contact.
+It is by the fortune of God that, in this country, we have three benefits:
+freedom of speech, freedom of thought, and the wisdom never to use either.
+		-- Mark Twain
