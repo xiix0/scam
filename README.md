@@ -1,2 +1,2 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
