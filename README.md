@@ -1,3 +1,2 @@
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
-Some think it is the voice of God.
-		-- Mark Twain
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
