@@ -1,5 +1,1 @@
-Knock, knock!
-	Who's there?
-Sam and Janet.
-	Sam and Janet who?
-Sam and Janet Evening...
+You are fighting for survival in your own sweet and gentle way.
