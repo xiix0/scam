@@ -1,2 +1,2 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+Your goose is cooked.
+(Your current chick is burned up too!)
