@@ -1,2 +1,1 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+You will be given a post of trust and responsibility.
