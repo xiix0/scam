@@ -1,1 +1,1 @@
-Perfect day for scrubbing the floor and other exciting things.
+Today is the first day of the rest of your life.
