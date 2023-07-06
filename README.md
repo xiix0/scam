@@ -1,2 +1,2 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+Q:	What is purple and commutes?
+A:	An Abelian grape.
