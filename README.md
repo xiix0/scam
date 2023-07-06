@@ -1,2 +1,2 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
