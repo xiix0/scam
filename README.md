@@ -1,1 +1,1 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Many changes of mind and mood; do not hesitate too long.
