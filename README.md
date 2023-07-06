@@ -1,1 +1,2 @@
-Try to get all of your posthumous medals in advance.
+Don't Worry, Be Happy.
+		-- Meher Baba
