@@ -1,2 +1,2 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+All generalizations are false, including this one.
+		-- Mark Twain
