@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
