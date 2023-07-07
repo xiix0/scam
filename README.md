@@ -1,5 +1,2 @@
-Q:	What do monsters eat?
-A:	Things.
-
-Q:	What do monsters drink?
-A:	Coke.  (Because Things go better with Coke.)
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
