@@ -1,1 +1,2 @@
-Tuesday is the Wednesday of the rest of your life.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
