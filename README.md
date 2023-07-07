@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+Your boss climbed the corporate ladder, wrong by wrong.
