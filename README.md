@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+Do not overtax your powers.
