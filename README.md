@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
