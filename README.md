@@ -1,3 +1,3 @@
-A banker is a fellow who lends you his umbrella when the sun is shining
-and wants it back the minute it begins to rain.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
 		-- Mark Twain
