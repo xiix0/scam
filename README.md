@@ -1,1 +1,2 @@
-You will be the victim of a bizarre joke.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
