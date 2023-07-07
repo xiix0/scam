@@ -1,2 +1,2 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
