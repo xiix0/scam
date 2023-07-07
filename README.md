@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+You will reach the highest possible point in your business or profession.
