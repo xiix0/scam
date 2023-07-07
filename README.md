@@ -1,1 +1,2 @@
-You will reach the highest possible point in your business or profession.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
