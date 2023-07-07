@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+You have an unusual understanding of the problems of human relationships.
