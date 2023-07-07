@@ -1,2 +1,4 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
