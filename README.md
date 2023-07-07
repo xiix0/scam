@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+If you stand on your head, you will get footprints in your hair.
