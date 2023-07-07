@@ -1,1 +1,2 @@
-You shall be rewarded for a dastardly deed.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
