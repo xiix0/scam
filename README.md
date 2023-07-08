@@ -1,6 +1,4 @@
-For there are moments when one can neither think nor feel.  And if one can
-neither think nor feel, she thought, where is one?
-		-- Virginia Woolf, "To the Lighthouse"
-
-	[Quoted in "VMS Internals and Data Structures", V4.4, when
-	 referring to powerfail recovery.]
+	You will remember, Watson, how the dreadful business of the
+Abernetty family was first brought to my notice by the depth which the
+parsley had sunk into the butter upon a hot day.
+		-- Sherlock Holmes
