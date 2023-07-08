@@ -1,2 +1,5 @@
-The first thing we do, let's kill all the lawyers.
-		-- Wm. Shakespeare, "Henry VI", Part IV
+October 12, the Discovery.
+
+It was wonderful to find America, but it would have been more wonderful to miss
+it.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
