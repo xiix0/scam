@@ -1,1 +1,1 @@
-You have a deep appreciation of the arts and music.
+You attempt things that you do not even plan because of your extreme stupidity.
