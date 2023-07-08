@@ -1,2 +1,2 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
