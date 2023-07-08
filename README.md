@@ -1,3 +1,1 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+Long life is in store for you.
