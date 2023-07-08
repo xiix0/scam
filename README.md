@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+You never know how many friends you have until you rent a house on the beach.
