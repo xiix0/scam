@@ -1,1 +1,1 @@
-Long life is in store for you.
+Your fly might be open (but don't check it just now).
