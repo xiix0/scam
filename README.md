@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+Avoid gunfire in the bathroom tonight.
