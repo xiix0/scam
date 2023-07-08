@@ -1,2 +1,2 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
