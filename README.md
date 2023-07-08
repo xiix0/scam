@@ -1,3 +1,3 @@
-Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
-that think they are truffles.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
