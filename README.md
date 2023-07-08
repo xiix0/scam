@@ -1,1 +1,2 @@
-You teach best what you most need to learn.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
