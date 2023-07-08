@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+You shall be rewarded for a dastardly deed.
