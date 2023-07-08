@@ -1,2 +1,3 @@
-You learn to write as if to someone else because NEXT YEAR YOU WILL BE
-"SOMEONE ELSE."
+Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
+that think they are truffles.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
