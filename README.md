@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+You will be surprised by a loud noise.
