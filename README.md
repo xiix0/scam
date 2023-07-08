@@ -1,1 +1,1 @@
-You never know how many friends you have until you rent a house on the beach.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
