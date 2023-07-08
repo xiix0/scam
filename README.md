@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
+Kindness is a language which the deaf can hear and the blind can read.
 		-- Mark Twain
