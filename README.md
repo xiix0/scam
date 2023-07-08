@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You are fairminded, just and loving.
