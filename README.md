@@ -1,2 +1,1 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+You're not my type.  For that matter, you're not even my species!!!
