@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
