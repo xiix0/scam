@@ -1,1 +1,2 @@
-You will feel hungry again in another hour.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
