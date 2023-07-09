@@ -1,1 +1,1 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
