@@ -1,2 +1,2 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+You'll wish that you had done some of the hard things when they were easier
+to do.
