@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+You will have good luck and overcome many hardships.
