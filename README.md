@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+You're being followed.  Cut out the hanky-panky for a few days.
