@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
