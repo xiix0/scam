@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+Your own qualities will help prevent your advancement in the world.
