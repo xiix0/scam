@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+Too much is just enough.
+		-- Mark Twain, on whiskey
