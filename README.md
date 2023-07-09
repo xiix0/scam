@@ -1,1 +1,2 @@
-You have a strong appeal for members of your own sex.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
