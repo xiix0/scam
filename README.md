@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
