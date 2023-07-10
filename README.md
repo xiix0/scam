@@ -1,2 +1,2 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
