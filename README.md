@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+So this is it.  We're going to die.
