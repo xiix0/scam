@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
