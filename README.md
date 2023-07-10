@@ -1,2 +1,3 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+Q:	Why do people who live near Niagara Falls have flat foreheads?
+A:	Because every morning they wake up thinking "What *is* that noise?
+	Oh, right, *of course*!
