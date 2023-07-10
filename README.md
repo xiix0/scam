@@ -1,1 +1,1 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+You seek to shield those you love and you like the role of the provider.
