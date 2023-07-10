@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+You single-handedly fought your way into this hopeless mess.
