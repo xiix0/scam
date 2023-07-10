@@ -1,2 +1,1 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+You're being followed.  Cut out the hanky-panky for a few days.
