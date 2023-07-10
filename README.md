@@ -1,1 +1,2 @@
-You single-handedly fought your way into this hopeless mess.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
