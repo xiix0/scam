@@ -1,1 +1,2 @@
-You teach best what you most need to learn.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
