@@ -1,1 +1,3 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+I don't know half of you half as well as I should like; and I like less
+than half of you half as well as you deserve.
+		-- J. R. R. Tolkien
