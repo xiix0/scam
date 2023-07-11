@@ -1,2 +1,2 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
