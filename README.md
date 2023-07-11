@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You're being followed.  Cut out the hanky-panky for a few days.
