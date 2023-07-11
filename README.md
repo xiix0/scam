@@ -1,2 +1,1 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+You plan things that you do not even attempt because of your extreme caution.
