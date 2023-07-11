@@ -1,2 +1,2 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
-		-- Mark Twain
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
