@@ -1,3 +1,2 @@
-... A solemn, unsmiling, sanctimonious old iceberg who looked like he
-was waiting for a vacancy in the Trinity.
-		-- Mark Twain
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
