@@ -1,2 +1,2 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
