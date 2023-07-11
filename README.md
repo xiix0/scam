@@ -1,3 +1,3 @@
-Have a place for everything and keep the thing somewhere else; this is not
-advice, it is merely custom.
+Noise proves nothing.  Often a hen who has merely laid an egg cackles
+as if she laid an asteroid.
 		-- Mark Twain
