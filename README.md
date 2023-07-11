@@ -1,1 +1,3 @@
-There will be big changes for you but you will be happy.
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
