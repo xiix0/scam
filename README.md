@@ -1,2 +1,2 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
