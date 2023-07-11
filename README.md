@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+You will be reincarnated as a toad; and you will be much happier.
