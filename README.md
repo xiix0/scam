@@ -1,2 +1,2 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+Just because the message may never be received does not mean it is
+not worth sending.
