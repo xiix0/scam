@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
