@@ -1,3 +1,2 @@
-Let us endeavor so to live that when we come to die even the undertaker will be
-sorry.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
