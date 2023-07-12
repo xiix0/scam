@@ -1,1 +1,1 @@
-In the stairway of life, you'd best take the elevator.
+You're working under a slight handicap.  You happen to be human.
