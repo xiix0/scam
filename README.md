@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+Expect a letter from a friend who will ask a favor of you.
