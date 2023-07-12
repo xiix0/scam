@@ -1,2 +1,2 @@
-Few things are harder to put up with than the annoyance of a good example.
-		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
