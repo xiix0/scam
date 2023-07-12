@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+Don't read everything you believe.
