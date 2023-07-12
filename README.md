@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+You get along very well with everyone except animals and people.
