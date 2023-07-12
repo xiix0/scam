@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+Your love life will be happy and harmonious.
