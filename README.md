@@ -1,2 +1,2 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
