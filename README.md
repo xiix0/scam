@@ -1,2 +1,2 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
