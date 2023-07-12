@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Don't look now, but the man in the moon is laughing at you.
