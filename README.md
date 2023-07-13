@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+Never be led astray onto the path of virtue.
