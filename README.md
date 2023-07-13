@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+Think twice before speaking, but don't say "think think click click".
