@@ -1,2 +1,3 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+My only love sprung from my only hate!
+Too early seen unknown, and known too late!
+		-- William Shakespeare, "Romeo and Juliet"
