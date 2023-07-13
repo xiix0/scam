@@ -1,7 +1,5 @@
-I reverently believe that the maker who made us all  makes everything in New
-England, but the weather.  I don't know who makes that, but I think it must be
-raw apprentices in the weather-clerks factory who experiment and learn how, in
-New England, for board and clothes, and then are promoted to make weather for
-countries that require a good article, and will take their custom elsewhere
-if they don't get it.
-		-- Mark Twain
+Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
+sword wielding purple fish glued to Harley-Davidson motorcycles.
+
+Oh, and have a nice day!
+		-- Bryce Nesbitt '84
