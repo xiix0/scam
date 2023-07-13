@@ -1,1 +1,2 @@
-You will visit the Dung Pits of Glive soon.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
