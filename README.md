@@ -1,1 +1,1 @@
-Give him an evasive answer.
+Keep emotionally active.  Cater to your favorite neurosis.
