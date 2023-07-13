@@ -1,3 +1,2 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+Q:	How many supply-siders does it take to change a light bulb?
+A:	None.  The darkness will cause the light bulb to change by itself.
