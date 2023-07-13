@@ -1,3 +1,7 @@
-ROMEO:		Courage, man; the hurt cannot be much.
-MERCUTIO:	No, 'tis not so deep as a well, nor so wide
-			as a church-door; but 'tis enough, 'twill serve.
+I reverently believe that the maker who made us all  makes everything in New
+England, but the weather.  I don't know who makes that, but I think it must be
+raw apprentices in the weather-clerks factory who experiment and learn how, in
+New England, for board and clothes, and then are promoted to make weather for
+countries that require a good article, and will take their custom elsewhere
+if they don't get it.
+		-- Mark Twain
