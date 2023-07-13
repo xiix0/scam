@@ -1,1 +1,2 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
