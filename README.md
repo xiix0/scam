@@ -1,3 +1,1 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+It may or may not be worthwhile, but it still has to be done.
