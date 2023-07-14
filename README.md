@@ -1,2 +1,2 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
