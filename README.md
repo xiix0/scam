@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+You've been leading a dog's life.  Stay off the furniture.
