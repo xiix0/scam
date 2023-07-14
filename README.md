@@ -1,1 +1,2 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
