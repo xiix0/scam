@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+Stay the curse.
