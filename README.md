@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+Artistic ventures highlighted.  Rob a museum.
