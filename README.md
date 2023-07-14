@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+You're almost as happy as you think you are.
