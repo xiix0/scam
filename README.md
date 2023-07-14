@@ -1,1 +1,2 @@
-Today is the last day of your life so far.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
