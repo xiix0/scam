@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Today is the last day of your life so far.
