@@ -1,1 +1,3 @@
-You will hear good news from one you thought unfriendly to you.
+Someone is speaking well of you.
+
+How unusual!
