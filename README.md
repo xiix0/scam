@@ -1,2 +1,3 @@
-You have a reputation for being thoroughly reliable and trustworthy.
-A pity that it's totally undeserved.
+It is often the case that the man who can't tell a lie thinks he is the best
+judge of one.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
