@@ -1,1 +1,1 @@
-There is a fly on your nose.
+Time to be aggressive.  Go after a tattooed Virgo.
