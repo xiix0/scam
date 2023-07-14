@@ -1,2 +1,2 @@
-There is a great discovery still to be made in Literature: that of
-paying literary men by the quantity they do NOT write.
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
