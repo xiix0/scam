@@ -1,3 +1,3 @@
-Q:	What do you call a WASP who doesn't work for his father, isn't a
-	lawyer, and believes in social causes?
-A:	A failure.
+Zounds!  I was never so bethumped with words
+since I first called my brother's father dad.
+		-- William Shakespeare, "Kind John"
