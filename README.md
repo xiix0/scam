@@ -1,5 +1,2 @@
-Knock, knock!
-	Who's there?
-Sam and Janet.
-	Sam and Janet who?
-Sam and Janet Evening...
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
