@@ -1,2 +1,1 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+You have a strong desire for a home and your family interests come first.
