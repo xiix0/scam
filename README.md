@@ -1,1 +1,1 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+Excellent day for putting Slinkies on an escalator.
