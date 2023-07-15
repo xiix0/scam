@@ -1,1 +1,3 @@
-You look like a million dollars.  All green and wrinkled.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
