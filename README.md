@@ -1,3 +1,3 @@
-Q:	How does a hacker fix a function which
-	doesn't work for all of the elements in its domain?
-A:	He changes the domain.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
