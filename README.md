@@ -1,1 +1,2 @@
-You will be married within a year.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
