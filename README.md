@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+You look like a million dollars.  All green and wrinkled.
