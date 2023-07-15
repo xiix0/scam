@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Good news.  Ten weeks from Friday will be a pretty good day.
