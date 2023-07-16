@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+Increased knowledge will help you now.  Have mate's phone bugged.
