@@ -1,2 +1,2 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+Q:	What's the difference between a duck and an elephant?
+A:	You can't get down off an elephant.
