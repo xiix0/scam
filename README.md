@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+If you stand on your head, you will get footprints in your hair.
