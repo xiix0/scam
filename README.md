@@ -1,1 +1,2 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
