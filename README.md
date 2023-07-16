@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+Good day to deal with people in high places; particularly lonely stewardesses.
