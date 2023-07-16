@@ -1,1 +1,2 @@
-You have a strong appeal for members of the opposite sex.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
