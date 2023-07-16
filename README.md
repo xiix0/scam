@@ -1,1 +1,2 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
