@@ -1,2 +1,1 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+You are fighting for survival in your own sweet and gentle way.
