@@ -1,1 +1,1 @@
-Many pages make a thick book.
+Your society will be sought by people of taste and refinement.
