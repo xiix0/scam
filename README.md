@@ -1,1 +1,2 @@
-If you stand on your head, you will get footprints in your hair.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
