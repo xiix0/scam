@@ -1,2 +1,3 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+Work consists of whatever a body is obliged to do.
+Play consists of whatever a body is not obliged to do.
+		-- Mark Twain
