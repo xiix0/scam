@@ -1,1 +1,4 @@
-Accent on helpful side of your nature.  Drain the moat.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
