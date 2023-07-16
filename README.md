@@ -1,1 +1,1 @@
-You have a strong desire for a home and your family interests come first.
+Accent on helpful side of your nature.  Drain the moat.
