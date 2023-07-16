@@ -1,2 +1,2 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
