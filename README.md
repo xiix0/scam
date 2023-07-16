@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Your boyfriend takes chocolate from strangers.
