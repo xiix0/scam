@@ -1,2 +1,2 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
