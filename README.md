@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+You have a strong appeal for members of the opposite sex.
