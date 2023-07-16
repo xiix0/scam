@@ -1,3 +1,1 @@
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
-		-- Mark Twain
+You could live a better life, if you had a better mind and a better body.
