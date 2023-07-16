@@ -1,2 +1,1 @@
-Always the dullness of the fool is the whetstone of the wits.
-		-- William Shakespeare, "As You Like It"
+You will give someone a piece of your mind, which you can ill afford.
