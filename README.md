@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+You will obey or molten silver will be poured into your ears.
