@@ -1,1 +1,1 @@
-You will get what you deserve.
+You have a strong desire for a home and your family interests come first.
