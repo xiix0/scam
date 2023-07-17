@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
