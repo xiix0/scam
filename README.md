@@ -1,3 +1,3 @@
-One of the most striking differences between a cat and a lie is that a cat has
-only nine lives.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+In the Spring, I have counted 136 different kinds of weather inside of
+24 hours.
+		-- Mark Twain, on New England weather
