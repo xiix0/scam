@@ -1,3 +1,4 @@
-A banker is a fellow who lends you his umbrella when the sun is shining
-and wants it back the minute it begins to rain.
-		-- Mark Twain
+All I know is what the words know, and dead things, and that
+makes a handsome little sum, with a beginning and a middle and
+an end, as in the well-built phrase and the long sonata of the dead.
+		-- Samuel Beckett
