@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+Are you a turtle?
