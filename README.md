@@ -1,1 +1,3 @@
-You will engage in a profitable business activity.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
