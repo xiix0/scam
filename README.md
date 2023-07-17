@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+You could live a better life, if you had a better mind and a better body.
