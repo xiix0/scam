@@ -1,2 +1,1 @@
-The fashion wears out more apparel than the man.
-		-- William Shakespeare, "Much Ado About Nothing"
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
