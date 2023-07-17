@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+You have a will that can be influenced by all with whom you come in contact.
