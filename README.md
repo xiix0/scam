@@ -1,2 +1,2 @@
-Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
-A:	Trustworthy.
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
