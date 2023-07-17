@@ -1,2 +1,1 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+You are a bundle of energy, always on the go.
