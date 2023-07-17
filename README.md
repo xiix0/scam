@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+You have taken yourself too seriously.
