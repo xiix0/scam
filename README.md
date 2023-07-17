@@ -1,1 +1,2 @@
-Are you a turtle?
+The Public is merely a multiplied "me."
+		-- Mark Twain
