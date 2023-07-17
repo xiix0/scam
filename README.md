@@ -1,1 +1,2 @@
-You should go home.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
