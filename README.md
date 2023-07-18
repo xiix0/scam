@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+Don't kiss an elephant on the lips today.
