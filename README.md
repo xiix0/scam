@@ -1,2 +1,2 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
