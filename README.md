@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+Abandon the search for Truth; settle for a good fantasy.
