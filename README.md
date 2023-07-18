@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+You enjoy the company of other people.
