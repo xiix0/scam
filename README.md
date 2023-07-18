@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Good day to deal with people in high places; particularly lonely stewardesses.
