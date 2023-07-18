@@ -1,2 +1,1 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+Don't get stuck in a closet -- wear yourself out.
