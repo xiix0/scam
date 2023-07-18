@@ -1,1 +1,1 @@
-Give him an evasive answer.
+You will feel hungry again in another hour.
