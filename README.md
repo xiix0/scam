@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+You have a strong appeal for members of the opposite sex.
