@@ -1,1 +1,1 @@
-Don't relax!  It's only your tension that's holding you together.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
