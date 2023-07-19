@@ -1,1 +1,1 @@
-You will step on the night soil of many countries.
+Your reasoning powers are good, and you are a fairly good planner.
