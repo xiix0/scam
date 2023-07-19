@@ -1,1 +1,2 @@
-Your reasoning powers are good, and you are a fairly good planner.
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
