@@ -1,3 +1,2 @@
-My only love sprung from my only hate!
-Too early seen unknown, and known too late!
-		-- William Shakespeare, "Romeo and Juliet"
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
