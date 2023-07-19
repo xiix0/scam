@@ -1,1 +1,2 @@
-Are you sure the back door is locked?
+Something's rotten in the state of Denmark.
+		-- Shakespeare
