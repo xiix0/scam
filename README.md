@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
