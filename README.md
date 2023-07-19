@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+Your business will assume vast proportions.
