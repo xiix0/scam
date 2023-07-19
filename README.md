@@ -1,2 +1,3 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+Q:	Why is it that the more accuracy you demand from an interpolation
+	function, the more expensive it becomes to compute?
+A:	That's the Law of Spline Demand.
