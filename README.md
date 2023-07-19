@@ -1,1 +1,3 @@
-You will have good luck and overcome many hardships.
+Someone is speaking well of you.
+
+How unusual!
