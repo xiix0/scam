@@ -1,3 +1,2 @@
-Someone is speaking well of you.
-
-How unusual!
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
