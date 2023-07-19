@@ -1,1 +1,1 @@
-Day of inquiry.  You will be subpoenaed.
+Your true value depends entirely on what you are compared with.
