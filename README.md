@@ -1,2 +1,3 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+A hundred years from now it is very likely that [of Twain's works] "The
+Jumping Frog" alone will be remembered.
+		-- Harry Thurston Peck (Editor of "The Bookman"), January 1901.
