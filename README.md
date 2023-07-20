@@ -1,3 +1,4 @@
-I must have a prodigious quantity of mind; it takes me as much as a
-week sometimes to make it up.
-		-- Mark Twain, "The Innocents Abroad"
+	You will remember, Watson, how the dreadful business of the
+Abernetty family was first brought to my notice by the depth which the
+parsley had sunk into the butter upon a hot day.
+		-- Sherlock Holmes
