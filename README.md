@@ -1,1 +1,2 @@
-There will be big changes for you but you will be happy.
+Wagner's music is better than it sounds.
+		-- Mark Twain
