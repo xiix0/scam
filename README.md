@@ -1,1 +1,2 @@
-Change your thoughts and you change your world.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
