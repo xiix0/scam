@@ -1,2 +1,3 @@
-You learn to write as if to someone else because NEXT YEAR YOU WILL BE
-"SOMEONE ELSE."
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
