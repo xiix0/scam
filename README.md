@@ -1,1 +1,2 @@
-You now have Asian Flu.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
