@@ -1,1 +1,1 @@
-Beware of a tall black man with one blond shoe.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
