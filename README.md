@@ -1,2 +1,1 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+Your depth of comprehension may tend to make you lax in worldly ways.
