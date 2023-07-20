@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+You will be given a post of trust and responsibility.
