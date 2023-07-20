@@ -1,1 +1,2 @@
-You will step on the night soil of many countries.
+Wagner's music is better than it sounds.
+		-- Mark Twain
