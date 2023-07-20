@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+There will be big changes for you but you will be happy.
