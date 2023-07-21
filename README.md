@@ -1,1 +1,1 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+There is a 20% chance of tomorrow.
