@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
