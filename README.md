@@ -1,2 +1,4 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+Whoever has lived long enough to find out what life is, knows how deep a debt
+of gratitude we owe to Adam, the first great benefactor of our race.  He
+brought death into the world.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
