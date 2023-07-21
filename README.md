@@ -1,2 +1,1 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+It's lucky you're going so slowly, because you're going in the wrong direction.
