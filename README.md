@@ -1,2 +1,1 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
