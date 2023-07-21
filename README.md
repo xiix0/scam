@@ -1,2 +1,3 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
