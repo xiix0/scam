@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+Beware of a dark-haired man with a loud tie.
