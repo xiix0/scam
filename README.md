@@ -1,1 +1,2 @@
-You will have long and healthy life.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
