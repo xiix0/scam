@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Excellent day to have a rotten day.
