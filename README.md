@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+You will live to see your grandchildren.
