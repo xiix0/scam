@@ -1,1 +1,2 @@
-You have no real enemies.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
