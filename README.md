@@ -1,1 +1,1 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+If you stand on your head, you will get footprints in your hair.
