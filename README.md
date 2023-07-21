@@ -1,1 +1,2 @@
-A visit to a strange place will bring fresh work.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
