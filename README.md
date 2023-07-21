@@ -1,1 +1,1 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+You can rent this space for only $5 a week.
