@@ -1,2 +1,2 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
