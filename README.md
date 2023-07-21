@@ -1,1 +1,1 @@
-You will contract a rare disease.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
