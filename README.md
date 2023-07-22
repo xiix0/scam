@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
