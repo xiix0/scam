@@ -1,2 +1,1 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+This will be a memorable month -- no matter how hard you try to forget it.
