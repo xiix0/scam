@@ -1,3 +1,2 @@
-A classic is something that everyone wants to have read
-and nobody wants to read.
-		-- Mark Twain, "The Disappearance of Literature"
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
