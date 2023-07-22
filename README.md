@@ -1,1 +1,2 @@
-Executive ability is prominent in your make-up.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
