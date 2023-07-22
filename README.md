@@ -1,2 +1,1 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+You could live a better life, if you had a better mind and a better body.
