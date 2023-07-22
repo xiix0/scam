@@ -1,1 +1,2 @@
-Expect the worst, it's the least you can do.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
