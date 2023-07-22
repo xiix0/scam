@@ -1,1 +1,2 @@
-You will be successful in love.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
