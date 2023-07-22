@@ -1,1 +1,1 @@
-You now have Asian Flu.
+Executive ability is prominent in your make-up.
