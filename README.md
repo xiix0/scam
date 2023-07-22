@@ -1,2 +1,2 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
