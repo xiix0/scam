@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+You're at the end of the road again.
