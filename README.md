@@ -1,2 +1,1 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+Don't go surfing in South Dakota for a while.
