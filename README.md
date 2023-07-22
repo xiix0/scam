@@ -1,2 +1,2 @@
-Troubled day for virgins over 16 who are beautiful and wealthy and live
-in eucalyptus trees.
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
