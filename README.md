@@ -1,1 +1,2 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
