@@ -1,3 +1,2 @@
-I don't know half of you half as well as I should like; and I like less
-than half of you half as well as you deserve.
-		-- J. R. R. Tolkien
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
