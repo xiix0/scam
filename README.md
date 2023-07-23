@@ -1,1 +1,3 @@
-You two ought to be more careful--your love could drag on for years and years.
+Q:	What do you call the money you pay to the government when
+	you ride into the country on the back of an elephant?
+A:	A howdah duty.
