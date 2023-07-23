@@ -1,3 +1,3 @@
-There is no hunting like the hunting of man, and those who have hunted
-armed men long enough and liked it, never care for anything else thereafter.
-		-- Ernest Hemingway
+Writing is easy; all you do is sit staring at the blank sheet of paper until
+drops of blood form on your forehead.
+		-- Gene Fowler
