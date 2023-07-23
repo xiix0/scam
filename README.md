@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+Wagner's music is better than it sounds.
+		-- Mark Twain
