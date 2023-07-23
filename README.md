@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
