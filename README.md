@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+You two ought to be more careful--your love could drag on for years and years.
