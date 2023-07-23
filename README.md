@@ -1,1 +1,5 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Q:	What do monsters eat?
+A:	Things.
+
+Q:	What do monsters drink?
+A:	Coke.  (Because Things go better with Coke.)
