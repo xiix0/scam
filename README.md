@@ -1,1 +1,1 @@
-You have literary talent that you should take pains to develop.
+You will reach the highest possible point in your business or profession.
