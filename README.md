@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
