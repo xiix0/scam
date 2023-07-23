@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
