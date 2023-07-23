@@ -1,1 +1,2 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
