@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+You will have domestic happiness and faithful friends.
