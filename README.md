@@ -1,5 +1,2 @@
-Q:	How do you catch a unique rabbit?
-A:	Unique up on it!
-
-Q:	How do you catch a tame rabbit?
-A:	The tame way!
+Q:	How many marketing people does it take to change a light bulb?
+A:	I'll have to get back to you on that.
