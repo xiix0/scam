@@ -1,4 +1,2 @@
-	You will remember, Watson, how the dreadful business of the
-Abernetty family was first brought to my notice by the depth which the
-parsley had sunk into the butter upon a hot day.
-		-- Sherlock Holmes
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
