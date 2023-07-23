@@ -1,2 +1,2 @@
-You are wise, witty, and wonderful, but you spend too much time reading
-this sort of trash.
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
