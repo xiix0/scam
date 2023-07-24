@@ -1,3 +1,2 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
+If you tell the truth you don't have to remember anything.
 		-- Mark Twain
