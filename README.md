@@ -1,1 +1,1 @@
-You will have a long and boring life.
+You will meet an important person who will help you advance professionally.
