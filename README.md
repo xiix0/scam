@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+Beware of a tall black man with one blond shoe.
