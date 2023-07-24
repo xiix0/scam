@@ -1,3 +1,3 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+Q:	How many mathematicians does it take to screw in a light bulb?
+A:	One.  He gives it to six Californians, thereby reducing the problem
+	to the earlier joke.
