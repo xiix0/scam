@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
