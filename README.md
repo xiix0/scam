@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+You will be honored for contributing your time and skill to a worthy cause.
