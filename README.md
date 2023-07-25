@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
