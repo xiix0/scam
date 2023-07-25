@@ -1,3 +1,2 @@
-Q:	What do you call the scratches that you get when a female
-	sheep bites you?
-A:	Ewe nicks.
+There is a great discovery still to be made in Literature: that of
+paying literary men by the quantity they do NOT write.
