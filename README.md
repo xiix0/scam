@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+You will step on the night soil of many countries.
