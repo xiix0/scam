@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+This will be a memorable month -- no matter how hard you try to forget it.
