@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+Good news.  Ten weeks from Friday will be a pretty good day.
