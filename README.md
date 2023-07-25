@@ -1,1 +1,2 @@
-You're not my type.  For that matter, you're not even my species!!!
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
