@@ -1,1 +1,3 @@
-Good day to let down old friends who need help.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
