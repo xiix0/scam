@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+Your true value depends entirely on what you are compared with.
