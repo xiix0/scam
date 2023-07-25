@@ -1,2 +1,2 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
