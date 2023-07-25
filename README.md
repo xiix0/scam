@@ -1,3 +1,1 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+You attempt things that you do not even plan because of your extreme stupidity.
