@@ -1,2 +1,1 @@
-Big book, big bore.
-		-- Callimachus
+You teach best what you most need to learn.
