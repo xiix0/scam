@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+You will pass away very quickly.
