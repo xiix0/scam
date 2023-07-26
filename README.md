@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+Your temporary financial embarrassment will be relieved in a surprising manner.
