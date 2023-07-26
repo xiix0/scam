@@ -1,2 +1,1 @@
-Every why hath a wherefore.
-		-- William Shakespeare, "A Comedy of Errors"
+There was a phone call for you.
