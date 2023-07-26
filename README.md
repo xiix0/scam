@@ -1,1 +1,3 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
