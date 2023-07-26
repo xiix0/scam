@@ -1,2 +1,1 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+Tuesday After Lunch is the cosmic time of the week.
