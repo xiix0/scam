@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+You two ought to be more careful--your love could drag on for years and years.
