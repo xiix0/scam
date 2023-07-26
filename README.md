@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
