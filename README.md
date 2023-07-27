@@ -1,1 +1,1 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+Don't read everything you believe.
