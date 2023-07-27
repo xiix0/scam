@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Alimony and bribes will engage a large share of your wealth.
