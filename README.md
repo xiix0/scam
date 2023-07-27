@@ -1,1 +1,3 @@
-Expect a letter from a friend who will ask a favor of you.
+He draweth out the thread of his verbosity finer than the staple of his
+argument.
+		-- William Shakespeare, "Love's Labour's Lost"
