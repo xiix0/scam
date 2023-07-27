@@ -1,1 +1,1 @@
-Don't you feel more like you do now than you did when you came in?
+You attempt things that you do not even plan because of your extreme stupidity.
