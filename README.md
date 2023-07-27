@@ -1,2 +1,3 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
