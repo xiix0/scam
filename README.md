@@ -1,1 +1,2 @@
-Make a wish, it might come true.
+Don't Worry, Be Happy.
+		-- Meher Baba
