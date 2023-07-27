@@ -1,2 +1,1 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+You will reach the highest possible point in your business or profession.
