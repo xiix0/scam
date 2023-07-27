@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
