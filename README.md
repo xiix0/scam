@@ -1,2 +1,2 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
