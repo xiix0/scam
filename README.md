@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Don't feed the bats tonight.
