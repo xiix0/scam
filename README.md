@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+Tuesday is the Wednesday of the rest of your life.
