@@ -1,3 +1,3 @@
-It were not best that we should all think alike; it is difference of opinion
-that makes horse-races.
+Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
+that think they are truffles.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
