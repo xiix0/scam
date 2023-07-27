@@ -1,1 +1,2 @@
-Never look up when dragons fly overhead.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
