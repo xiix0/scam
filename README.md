@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
