@@ -1,1 +1,2 @@
-Tuesday is the Wednesday of the rest of your life.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
