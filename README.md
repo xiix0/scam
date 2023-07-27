@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+Don't relax!  It's only your tension that's holding you together.
