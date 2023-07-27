@@ -1,2 +1,2 @@
-	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
