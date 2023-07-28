@@ -1,1 +1,2 @@
-You have an unusual understanding of the problems of human relationships.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
