@@ -1,1 +1,2 @@
-Generosity and perfection are your everlasting goals.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
