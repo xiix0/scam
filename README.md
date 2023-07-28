@@ -1,1 +1,2 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
