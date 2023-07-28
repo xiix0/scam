@@ -1,7 +1,17 @@
-Mind!  I don't mean to say that I know, of my own knowledge, what there is
-particularly dead about a door-nail.  I might have been inclined, myself,
-to regard a coffin-nail as the deadest piece of ironmongery in the trade.
-But the wisdom of our ancestors is in the simile; and my unhallowed hands
-shall not disturb it, or the Country's done for.  You will therefore permit
-me to repeat, emphatically, that Marley was as dead as a door-nail.
-		-- Charles Dickens, "A Christmas Carol"
+A Tale of Two Cities LITE(tm)
+	-- by Charles Dickens
+
+	A man in love with a girl who loves another man who looks just
+	like him has his head chopped off in France because of a mean
+	lady who knits.
+
+Crime and Punishment LITE(tm)
+	-- by Fyodor Dostoevski
+
+	A man sends a nasty letter to a pawnbroker, but later
+	feels guilty and apologizes.
+
+The Odyssey LITE(tm)
+	-- by Homer
+
+	After working late, a valiant warrior gets lost on his way home.
