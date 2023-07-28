@@ -1,2 +1,3 @@
-Q:	How many IBM 370's does it take to execute a job?
-A:	Four, three to hold it down, and one to rip its head off.
+I must have a prodigious quantity of mind; it takes me as much as a
+week sometimes to make it up.
+		-- Mark Twain, "The Innocents Abroad"
