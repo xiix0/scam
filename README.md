@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+You will not be elected to public office this year.
