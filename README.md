@@ -1,1 +1,2 @@
-Many pages make a thick book.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
