@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+You will be held hostage by a radical group.
