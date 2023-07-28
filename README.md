@@ -1,1 +1,2 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
