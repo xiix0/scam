@@ -1,1 +1,2 @@
-You will be held hostage by a radical group.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
