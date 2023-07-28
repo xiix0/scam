@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+People are beginning to notice you.  Try dressing before you leave the house.
