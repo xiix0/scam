@@ -1,1 +1,1 @@
-Everything that you know is wrong, but you can be straightened out.
+You have been selected for a secret mission.
