@@ -1,16 +1,13 @@
-The Bulwer-Lytton fiction contest is held ever year at San Jose State
-Univ.  by Professor Scott Rice.  It is held in memory of Edward George
-Earle Bulwer-Lytton (1803-1873), a rather prolific and popular (in his
-time) novelist.  He is best known today for having written "The Last
-Days of Pompeii."
-
-Whenever Snoopy starts typing his novel from the top of his doghouse,
-beginning "It was a dark and stormy night..." he is borrowing from Lord
-Bulwer-Lytton.  This was the line that opened his novel, "Paul Clifford,"
-written in 1830.  The full line reveals why it is so bad:
-
-	It was a dark and stormy night; the rain fell in torrents -- except
-	at occasional intervals, when it was checked by a violent gust of
-	wind which swept up the streets (for it is in London that our scene
-	lies), rattling along the housetops, and fiercely agitating the scanty
-	flame of the lamps that struggled against the darkness.
+His followers called him Mahasamatman and said he was a god.  He preferred
+to drop the Maha- and the -atman, however, and called himself Sam.  He never
+claimed to be a god.  But then, he never claimed not to be a god.  Circum-
+stances being what they were, neither admission could be of any benefit.
+Silence, though, could.  It was in the days of the rains that their prayers
+went up, not from the fingering of knotted prayer cords or the spinning of
+prayer wheels, but from the great pray-machine in the monastery of Ratri,
+goddess of the Night.  The high-frequency prayers were directed upward through
+the atmosphere and out beyond it, passing into that golden cloud called the
+Bridge of the Gods, which circles the entire world, is seen as a bronze
+rainbow at night and is the place where the red sun becomes orange at midday.
+Some of the monks doubted the orthodoxy of this prayer technique...
+		-- Roger Zelazny, "Lord of Light"
