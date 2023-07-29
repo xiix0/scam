@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+You will pay for your sins.  If you have already paid, please disregard
+this message.
