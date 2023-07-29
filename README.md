@@ -1,2 +1,2 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
