@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+You will feel hungry again in another hour.
