@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+Never be led astray onto the path of virtue.
