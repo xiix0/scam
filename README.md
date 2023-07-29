@@ -1,1 +1,2 @@
-Try to have as good a life as you can under the circumstances.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
