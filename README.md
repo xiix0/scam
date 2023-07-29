@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
