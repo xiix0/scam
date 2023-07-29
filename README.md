@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+You're ugly and your mother dresses you funny.
