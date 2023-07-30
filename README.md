@@ -1,2 +1,3 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
