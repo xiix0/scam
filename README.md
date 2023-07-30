@@ -1,1 +1,2 @@
-Beware of a tall black man with one blond shoe.
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
