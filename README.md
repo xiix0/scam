@@ -1,2 +1,2 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
