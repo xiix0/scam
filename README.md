@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+Your business will assume vast proportions.
