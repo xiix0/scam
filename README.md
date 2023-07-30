@@ -1,2 +1,1 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+You are only young once, but you can stay immature indefinitely.
