@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+Time to be aggressive.  Go after a tattooed Virgo.
