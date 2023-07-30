@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+Beware of a tall black man with one blond shoe.
