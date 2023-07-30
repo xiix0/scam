@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+Try to get all of your posthumous medals in advance.
