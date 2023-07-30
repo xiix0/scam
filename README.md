@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+You own a dog, but you can only feed a cat.
