@@ -1,1 +1,2 @@
-Beware of low-flying butterflies.
+Q:	Are we not men?
+A:	We are Vaxen.
