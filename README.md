@@ -1,1 +1,1 @@
-Beware of a tall black man with one blond shoe.
+Of course you have a purpose -- to find a purpose.
