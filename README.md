@@ -1,1 +1,3 @@
-You will never know hunger.
+Someone is speaking well of you.
+
+How unusual!
