@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+Do nothing unless you must, and when you must act -- hesitate.
