@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+You are a fluke of the universe; you have no right to be here.
