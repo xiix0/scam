@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+You look like a million dollars.  All green and wrinkled.
