@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
