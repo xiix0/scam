@@ -1,1 +1,1 @@
-You will get what you deserve.
+Beware of low-flying butterflies.
