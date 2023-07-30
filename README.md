@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
