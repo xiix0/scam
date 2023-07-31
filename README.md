@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+You display the wonderful traits of charm and courtesy.
