@@ -1,1 +1,1 @@
-Blow it out your ear.
+Expect the worst, it's the least you can do.
