@@ -1,3 +1,2 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
