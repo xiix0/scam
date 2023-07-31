@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
