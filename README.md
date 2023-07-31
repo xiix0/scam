@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+In the stairway of life, you'd best take the elevator.
