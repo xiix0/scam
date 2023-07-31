@@ -1,2 +1,2 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
