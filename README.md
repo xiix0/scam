@@ -1,1 +1,2 @@
-You will be recognized and honored as a community leader.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
