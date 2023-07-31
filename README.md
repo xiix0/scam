@@ -1,2 +1,2 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
