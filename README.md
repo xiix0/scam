@@ -1,3 +1,2 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
