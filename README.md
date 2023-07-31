@@ -1,1 +1,2 @@
-You will be traveling and coming into a fortune.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
