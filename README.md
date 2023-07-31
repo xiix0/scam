@@ -1,2 +1,5 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
+
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
