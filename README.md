@@ -1,2 +1,3 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
