@@ -1,2 +1,2 @@
-Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
-		-- Shakespeare
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
