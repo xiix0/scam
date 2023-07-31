@@ -1,1 +1,3 @@
-You display the wonderful traits of charm and courtesy.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
