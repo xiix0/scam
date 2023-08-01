@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+You are number 6!  Who is number one?
