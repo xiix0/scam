@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Never commit yourself!  Let someone else commit you.
