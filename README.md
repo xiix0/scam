@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+You'd like to do it instantaneously, but that's too slow.
