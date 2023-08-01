@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+Your object is to save the world, while still leading a pleasant life.
