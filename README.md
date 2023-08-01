@@ -1,1 +1,2 @@
-Cold hands, no gloves.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
