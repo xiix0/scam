@@ -1,3 +1,1 @@
-Q:	What do you call the scratches that you get when a female
-	sheep bites you?
-A:	Ewe nicks.
+Time to be aggressive.  Go after a tattooed Virgo.
