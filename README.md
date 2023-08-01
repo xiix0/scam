@@ -1,2 +1,1 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+You could live a better life, if you had a better mind and a better body.
