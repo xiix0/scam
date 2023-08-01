@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
