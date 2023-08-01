@@ -1,2 +1,1 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+Your boss climbed the corporate ladder, wrong by wrong.
