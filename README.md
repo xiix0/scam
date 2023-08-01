@@ -1,1 +1,2 @@
-Change your thoughts and you change your world.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
