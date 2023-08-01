@@ -1,2 +1,2 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
