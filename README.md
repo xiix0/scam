@@ -1,2 +1,3 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
