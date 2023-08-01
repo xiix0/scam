@@ -1,2 +1,1 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+You prefer the company of the opposite sex, but are well liked by your own.
