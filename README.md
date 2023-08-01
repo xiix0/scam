@@ -1,1 +1,2 @@
-You are number 6!  Who is number one?
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
