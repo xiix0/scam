@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+A gift of a flower will soon be made to you.
