@@ -1,1 +1,1 @@
-What happened last night can happen again.
+You will be traveling and coming into a fortune.
