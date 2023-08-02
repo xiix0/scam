@@ -1,1 +1,2 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+Conscience doth make cowards of us all.
+		-- Shakespeare
