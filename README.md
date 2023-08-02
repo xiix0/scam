@@ -1,1 +1,1 @@
-You now have Asian Flu.
+It's all in the mind, ya know.
