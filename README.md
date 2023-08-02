@@ -1,1 +1,2 @@
-Your business will go through a period of considerable expansion.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
