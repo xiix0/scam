@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
