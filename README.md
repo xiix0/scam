@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+Don't look now, but there is a multi-legged creature on your shoulder.
