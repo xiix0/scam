@@ -1,2 +1,1 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+Your business will go through a period of considerable expansion.
