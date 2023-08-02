@@ -1,2 +1,3 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
