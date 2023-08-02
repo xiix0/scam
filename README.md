@@ -1,3 +1,2 @@
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
-Some think it is the voice of God.
-		-- Mark Twain
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
