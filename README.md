@@ -1,2 +1,3 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
