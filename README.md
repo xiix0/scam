@@ -1,1 +1,1 @@
-You will be successful in love.
+You will pass away very quickly.
