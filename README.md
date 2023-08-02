@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
