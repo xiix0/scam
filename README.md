@@ -1,1 +1,2 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
