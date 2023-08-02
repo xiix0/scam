@@ -1,2 +1,2 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
