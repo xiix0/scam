@@ -1,1 +1,1 @@
-You are as I am with You.
+Don't read everything you believe.
