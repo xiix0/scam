@@ -1,6 +1,17 @@
-A morgue is a morgue is a morgue.  They can paint the walls with aggressively
-cheerful primary colors and splashy bold graphics, but it's still a holding
-place for the dead until they can be parted out to organ banks.  Not that I
-would have cared normally but my viewpoint was skewed.  The relentless
-pleasance of the room I sat in seemed only grotesque.
-		-- Pat Cadigan, "Mindplayers"
+A Tale of Two Cities LITE(tm)
+	-- by Charles Dickens
+
+	A man in love with a girl who loves another man who looks just
+	like him has his head chopped off in France because of a mean
+	lady who knits.
+
+Crime and Punishment LITE(tm)
+	-- by Fyodor Dostoevski
+
+	A man sends a nasty letter to a pawnbroker, but later
+	feels guilty and apologizes.
+
+The Odyssey LITE(tm)
+	-- by Homer
+
+	After working late, a valiant warrior gets lost on his way home.
