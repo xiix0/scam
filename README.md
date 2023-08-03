@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+You have many friends and very few living enemies.
