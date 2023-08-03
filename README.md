@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Never look up when dragons fly overhead.
