@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+Your boss climbed the corporate ladder, wrong by wrong.
