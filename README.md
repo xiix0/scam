@@ -1,1 +1,2 @@
-You will be the last person to buy a Chrysler.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
