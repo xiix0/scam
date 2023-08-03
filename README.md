@@ -1,1 +1,3 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
