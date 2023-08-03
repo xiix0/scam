@@ -1,1 +1,2 @@
-Best of all is never to have been born.  Second best is to die soon.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
