@@ -1,5 +1,5 @@
-For years a secret shame destroyed my peace--
-I'd not read Eliot, Auden or MacNiece.
-But now I think a thought that brings me hope:
-Neither had Chaucer, Shakespeare, Milton, Pope.
-		-- Justin Richardson.
+Q:	Where's the Lone Ranger take his garbage?
+A:	To the dump, to the dump, to the dump dump dump!
+
+Q:	What's the Pink Panther say when he steps on an ant hill?
+A:	Dead ant, dead ant, dead ant dead ant dead ant...
