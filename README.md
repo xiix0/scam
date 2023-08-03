@@ -1,3 +1,1 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
-A:	Dr. Livingston I. Presume.
-Q:	What's Dr. Presume's full name?
+You will be aided greatly by a person whom you thought to be unimportant.
