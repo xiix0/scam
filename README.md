@@ -1,1 +1,2 @@
-You feel a whole lot more like you do now than you did when you used to.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
