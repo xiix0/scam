@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
