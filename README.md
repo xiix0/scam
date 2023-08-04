@@ -1,1 +1,2 @@
-You will outgrow your usefulness.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
