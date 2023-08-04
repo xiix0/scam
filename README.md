@@ -1,1 +1,2 @@
-You will be called upon to help a friend in trouble.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
