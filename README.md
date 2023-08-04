@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Your boss is a few sandwiches short of a picnic.
