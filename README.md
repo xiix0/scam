@@ -1,2 +1,1 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+Ships are safe in harbor, but they were never meant to stay there.
