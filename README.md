@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+You have an ability to sense and know higher truth.
