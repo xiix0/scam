@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+Be careful!  UGLY strikes 9 out of 10!
