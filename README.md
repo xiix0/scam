@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+You will be called upon to help a friend in trouble.
