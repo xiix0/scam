@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Never commit yourself!  Let someone else commit you.
