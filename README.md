@@ -1,3 +1,2 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
