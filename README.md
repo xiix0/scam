@@ -1,1 +1,2 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
