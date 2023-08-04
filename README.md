@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+You have the power to influence all with whom you come in contact.
