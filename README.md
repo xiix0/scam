@@ -1,1 +1,2 @@
-You will be honored for contributing your time and skill to a worthy cause.
+Fine day for friends.
+So-so day for you.
