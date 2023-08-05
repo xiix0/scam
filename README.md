@@ -1,1 +1,2 @@
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
