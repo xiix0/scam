@@ -1,1 +1,1 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+You have a deep appreciation of the arts and music.
