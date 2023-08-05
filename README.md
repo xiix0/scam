@@ -1,1 +1,1 @@
-You will have long and healthy life.
+You'll never be the man your mother was!
