@@ -1,1 +1,2 @@
-Another good night not to sleep in a eucalyptus tree.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
