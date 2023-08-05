@@ -1,1 +1,2 @@
-You may get an opportunity for advancement today.  Watch it!
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
