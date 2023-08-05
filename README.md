@@ -1,2 +1,3 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+A hundred years from now it is very likely that [of Twain's works] "The
+Jumping Frog" alone will be remembered.
+		-- Harry Thurston Peck (Editor of "The Bookman"), January 1901.
