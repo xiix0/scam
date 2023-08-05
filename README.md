@@ -1,1 +1,3 @@
-Avoid reality at all costs.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
