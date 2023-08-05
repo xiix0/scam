@@ -1,2 +1,2 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
