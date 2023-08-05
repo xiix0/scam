@@ -1,1 +1,1 @@
-You'll never be the man your mother was!
+You will have good luck and overcome many hardships.
