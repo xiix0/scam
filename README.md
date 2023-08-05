@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of good news soon.
+Someone whom you reject today, will reject you tomorrow.
