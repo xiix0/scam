@@ -1,1 +1,1 @@
-Is that really YOU that is reading this?
+Live in a world of your own, but always welcome visitors.
