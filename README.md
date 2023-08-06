@@ -1,1 +1,1 @@
-Never reveal your best argument.
+Don't get to bragging.
