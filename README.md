@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+You enjoy the company of other people.
