@@ -1,1 +1,1 @@
-You will have a long and unpleasant discussion with your supervisor.
+Everything will be just tickety-boo today.
