@@ -1,1 +1,2 @@
-Be security conscious -- National defense is at stake.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
