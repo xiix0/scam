@@ -1,1 +1,2 @@
-Perfect day for scrubbing the floor and other exciting things.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
