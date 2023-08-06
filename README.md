@@ -1,2 +1,2 @@
-You're growing out of some of your problems, but there are others that
-you're growing into.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
