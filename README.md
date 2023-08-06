@@ -1,2 +1,2 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
