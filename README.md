@@ -1,1 +1,1 @@
-You're at the end of the road again.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
