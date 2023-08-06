@@ -1,1 +1,1 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
