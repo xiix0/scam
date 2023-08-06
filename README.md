@@ -1,2 +1,2 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
