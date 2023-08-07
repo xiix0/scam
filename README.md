@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+You too can wear a nose mitten.
