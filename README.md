@@ -1,1 +1,2 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
