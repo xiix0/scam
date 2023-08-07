@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+You may get an opportunity for advancement today.  Watch it!
