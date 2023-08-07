@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+You will have long and healthy life.
