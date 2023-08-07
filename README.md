@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+You will be honored for contributing your time and skill to a worthy cause.
