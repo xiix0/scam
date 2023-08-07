@@ -1,1 +1,3 @@
-You will have long and healthy life.
+Someone is speaking well of you.
+
+How unusual!
