@@ -1,1 +1,2 @@
-Caution: breathing may be hazardous to your health.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
