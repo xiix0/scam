@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+Go to a movie tonight.  Darkness becomes you.
