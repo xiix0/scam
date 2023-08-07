@@ -1,1 +1,2 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
