@@ -1,2 +1,1 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+You are sick, twisted and perverted.  I like that in a person.
