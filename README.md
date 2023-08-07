@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Tonight's the night: Sleep in a eucalyptus tree.
