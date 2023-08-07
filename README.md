@@ -1,1 +1,3 @@
-You seek to shield those you love and you like the role of the provider.
+"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
+for you and me."
+		-- J. R. R. Tolkien
