@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+An exotic journey in downtown Newark is in your future.
