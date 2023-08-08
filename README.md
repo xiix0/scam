@@ -1,2 +1,2 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
