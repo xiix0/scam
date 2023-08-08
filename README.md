@@ -1,1 +1,2 @@
-Your heart is pure, and your mind clear, and your soul devout.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
