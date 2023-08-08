@@ -1,2 +1,1 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
