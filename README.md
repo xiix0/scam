@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+Q:	How do you keep a moron in suspense?
