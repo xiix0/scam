@@ -1,1 +1,2 @@
-You will forget that you ever knew me.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
