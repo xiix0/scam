@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
