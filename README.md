@@ -1,2 +1,1 @@
-You have a reputation for being thoroughly reliable and trustworthy.
-A pity that it's totally undeserved.
+You are number 6!  Who is number one?
