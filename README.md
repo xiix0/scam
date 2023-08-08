@@ -1,1 +1,1 @@
-You're at the end of the road again.
+Your depth of comprehension may tend to make you lax in worldly ways.
