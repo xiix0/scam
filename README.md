@@ -1,2 +1,1 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+All the troubles you have will pass away very quickly.
