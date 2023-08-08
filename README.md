@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
