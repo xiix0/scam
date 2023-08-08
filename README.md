@@ -1,1 +1,1 @@
-You will step on the night soil of many countries.
+You will have domestic happiness and faithful friends.
