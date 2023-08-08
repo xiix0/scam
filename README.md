@@ -1,1 +1,2 @@
-You are number 6!  Who is number one?
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
