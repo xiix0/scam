@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+Save energy: be apathetic.
