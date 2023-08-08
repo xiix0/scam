@@ -1,1 +1,2 @@
-Don't read any sky-writing for the next two weeks.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
