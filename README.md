@@ -1,1 +1,2 @@
-You will be run over by a bus.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
