@@ -1,2 +1,1 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
