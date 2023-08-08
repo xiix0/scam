@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+You will be a winner today.  Pick a fight with a four-year-old.
