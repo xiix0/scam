@@ -1,2 +1,2 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
