@@ -1,2 +1,1 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+Of course you have a purpose -- to find a purpose.
