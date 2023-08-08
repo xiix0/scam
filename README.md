@@ -1,1 +1,2 @@
-Excellent day for putting Slinkies on an escalator.
+Q:	Are we not men?
+A:	We are Vaxen.
