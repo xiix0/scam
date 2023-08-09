@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
