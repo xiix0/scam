@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Among the lucky, you are the chosen one.
