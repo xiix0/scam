@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+Excellent day to have a rotten day.
