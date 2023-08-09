@@ -1,3 +1,2 @@
-The only way to keep your health is to eat what you don't want, drink what
-you don't like, and do what you'd rather not.
-		-- Mark Twain
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
