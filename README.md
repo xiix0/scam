@@ -1,1 +1,1 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+Increased knowledge will help you now.  Have mate's phone bugged.
