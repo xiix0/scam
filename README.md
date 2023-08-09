@@ -1,2 +1,1 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+You will overcome the attacks of jealous associates.
