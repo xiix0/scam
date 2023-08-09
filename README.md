@@ -1,47 +1,16 @@
-"Good afternoon, madam.  How may I help you?"
+The Bulwer-Lytton fiction contest is held ever year at San Jose State
+Univ.  by Professor Scott Rice.  It is held in memory of Edward George
+Earle Bulwer-Lytton (1803-1873), a rather prolific and popular (in his
+time) novelist.  He is best known today for having written "The Last
+Days of Pompeii."
 
-"Good afternoon.  I'd like a FrintArms HandCannon, please."
+Whenever Snoopy starts typing his novel from the top of his doghouse,
+beginning "It was a dark and stormy night..." he is borrowing from Lord
+Bulwer-Lytton.  This was the line that opened his novel, "Paul Clifford,"
+written in 1830.  The full line reveals why it is so bad:
 
-"A--?  Oh, now, that's an awfully big gun for such a lovely lady.  I
-mean, not everybody thinks ladies should carry guns at all, though I
-say they have a right to.  But I think... I might... Let's have a look
-down here.  I might have just the thing for you.  Yes, here we are!
-Look at that, isn't it neat?  Now that is a FrintArms product as well,
-but it's what's called a laser -- a light-pistol some people call
-them.  Very small, as you see; fits easily into a pocket or bag; won't
-spoil the line of a jacket; and you won't feel you're lugging half a
-tonne of iron around with you.  We do a range of matching accessories,
-including -- if I may say so -- a rather saucy garter holster.  Wish I
-got to do the fitting for that!  Ha -- just my little joke.  And
-there's *even*... here we are -- this special presentation pack: gun,
-charged battery, charging unit, beautiful glider-hide shoulder holster
-with adjustable fitting and contrast stitching, and a discount on your
-next battery.  Full instructions, of course, and a voucher for free
-lessons at your local gun club or range.  Or there's the *special*
-presentation pack; it has all the other one's got but with *two*
-charged batteries and a night-sight, too.  Here, feel that -- don't
-worry, it's a dummy battery -- isn't it neat?  Feel how light it is?
-Smooth, see?  No bits to stick out and catch on your clothes, *and*
-beautifully balanced.  And of course the beauty of a laser is, there's
-no recoil.  Because it's shooting light, you see?  Beautiful gun,
-beautiful gun; my wife has one.  Really.  That's not a line, she
-really has.  Now, I can do you that one -- with a battery and a free
-charge -- for ninety-five; or the presentation pack on a special
-offer for one-nineteen; or this, the special presentation pack, for
-one-forty-nine."
-
-"I'll take the special."
-
-"Sound choice, madam, *sound* choice.  Now, do--?"
-
-"And a HandCannon, with the eighty-mill silencer, five GP clips, three
-six-five AP/wire-fl'echettes clips, two bipropellant HE clips, and a
-Special Projectile Pack if you have one -- the one with the embedding
-rounds, not the signalers.  I assume the night-sight on this toy is
-compatible?"
-
-"Aah... yes,  And how does madam wish to pay?"
-
-She slapped her credit card on the counter.  "Eventually."
-
-		-- Iain M. Banks, "Against a Dark Background"
+	It was a dark and stormy night; the rain fell in torrents -- except
+	at occasional intervals, when it was checked by a violent gust of
+	wind which swept up the streets (for it is in London that our scene
+	lies), rattling along the housetops, and fiercely agitating the scanty
+	flame of the lamps that struggled against the darkness.
