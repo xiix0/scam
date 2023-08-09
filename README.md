@@ -1,1 +1,2 @@
-Among the lucky, you are the chosen one.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
