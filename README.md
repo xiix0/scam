@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Your aim is high and to the right.
