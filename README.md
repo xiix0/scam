@@ -1,8 +1,1 @@
-To be or not to be.
-		-- Shakespeare
-To do is to be.
-		-- Nietzsche
-To be is to do.
-		-- Sartre
-Do be do be do.
-		-- Sinatra
+Ships are safe in harbor, but they were never meant to stay there.
