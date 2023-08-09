@@ -1,2 +1,1 @@
-Q:	What's the difference between a Mac and an Etch-a-Sketch?
-A:	You don't have to shake the Mac to clear the screen.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
