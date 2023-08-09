@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+Never look up when dragons fly overhead.
