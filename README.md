@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
