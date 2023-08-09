@@ -1,3 +1,3 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
-A:	Chicken Teriyaki.
-Q:	What is the name of the world's oldest kamikaze pilot?
+He draweth out the thread of his verbosity finer than the staple of his
+argument.
+		-- William Shakespeare, "Love's Labour's Lost"
