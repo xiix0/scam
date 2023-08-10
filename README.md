@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
