@@ -1,4 +1,2 @@
-O, it is excellent
-To have a giant's strength; but it is tyrannous
-To use it like a giant.
-		-- Shakespeare, "Measure for Measure", II, 2
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
