@@ -1,5 +1,5 @@
-April 1
+Q:	Where's the Lone Ranger take his garbage?
+A:	To the dump, to the dump, to the dump dump dump!
 
-This is the day upon which we are reminded of what we are on the other three
-hundred and sixty-four.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	What's the Pink Panther say when he steps on an ant hill?
+A:	Dead ant, dead ant, dead ant dead ant dead ant...
