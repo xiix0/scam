@@ -1,1 +1,3 @@
-You will live a long, healthy, happy life and make bags of money.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
