@@ -1,2 +1,1 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+Ships are safe in harbor, but they were never meant to stay there.
