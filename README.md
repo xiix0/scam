@@ -1,1 +1,1 @@
-You work very hard.  Don't try to think as well.
+You will obey or molten silver will be poured into your ears.
