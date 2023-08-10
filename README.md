@@ -1,3 +1,3 @@
-Q:	What's the difference between a dead dog in the road and a dead
-	lawyer in the road?
-A:	There are skid marks in front of the dog.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
