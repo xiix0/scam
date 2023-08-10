@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+You are destined to become the commandant of the fighting men of the
+department of transportation.
