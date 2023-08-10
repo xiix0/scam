@@ -1,1 +1,2 @@
-You will be called upon to help a friend in trouble.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
