@@ -1,2 +1,1 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+After your lover has gone you will still have PEANUT BUTTER!
