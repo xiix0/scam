@@ -1,1 +1,2 @@
-Your heart is pure, and your mind clear, and your soul devout.
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
