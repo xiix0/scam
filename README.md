@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+You are not dead yet.  But watch for further reports.
