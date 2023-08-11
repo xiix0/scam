@@ -1,1 +1,2 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
