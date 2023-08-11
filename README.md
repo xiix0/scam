@@ -1,1 +1,2 @@
-You are number 6!  Who is number one?
+I fell asleep reading a dull book, and I dreamt that I was reading on,
+so I woke up from sheer boredom.
