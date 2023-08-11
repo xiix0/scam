@@ -1,1 +1,2 @@
-You are number 6!  Who is number one?
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
