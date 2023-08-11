@@ -1,2 +1,1 @@
-Never laugh at live dragons.
-		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
+You will visit the Dung Pits of Glive soon.
