@@ -1,1 +1,2 @@
-It was all so different before everything changed.
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
