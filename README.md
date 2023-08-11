@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+Go to a movie tonight.  Darkness becomes you.
