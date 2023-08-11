@@ -1,1 +1,2 @@
-Don't let your mind wander -- it's too little to be let out alone.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
