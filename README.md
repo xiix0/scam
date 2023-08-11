@@ -1,1 +1,2 @@
-You will soon forget this.
+"... all the modern inconveniences ..."
+		-- Mark Twain
