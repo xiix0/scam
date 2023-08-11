@@ -1,3 +1,3 @@
-Q:	How many Oregonians does it take to screw in a light bulb?
-A:	Three.  One to screw in the light bulb and two to fend off all those
-	Californians trying to share the experience.
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
