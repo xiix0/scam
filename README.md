@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You seek to shield those you love and you like the role of the provider.
