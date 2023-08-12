@@ -1,2 +1,2 @@
-Q:	What is the difference between Texas and yogurt?
-A:	Yogurt has culture.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
