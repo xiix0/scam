@@ -1,1 +1,1 @@
-You'd like to do it instantaneously, but that's too slow.
+Excellent time to become a missing person.
