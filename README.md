@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
