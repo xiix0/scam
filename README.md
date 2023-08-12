@@ -1,2 +1,2 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
