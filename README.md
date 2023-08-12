@@ -1,1 +1,3 @@
-You are dishonest, but never to the point of hurting a friend.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
