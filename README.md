@@ -1,1 +1,1 @@
-Of course you have a purpose -- to find a purpose.
+You will meet an important person who will help you advance professionally.
