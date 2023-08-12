@@ -1,2 +1,2 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
