@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+Don't read everything you believe.
