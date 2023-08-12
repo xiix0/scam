@@ -1,2 +1,2 @@
-If you tell the truth you don't have to remember anything.
+The Public is merely a multiplied "me."
 		-- Mark Twain
