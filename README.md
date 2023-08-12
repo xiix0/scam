@@ -1,2 +1,1 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+If you sow your wild oats, hope for a crop failure.
