@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Don't you feel more like you do now than you did when you came in?
