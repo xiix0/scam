@@ -1,3 +1,1 @@
-Zounds!  I was never so bethumped with words
-since I first called my brother's father dad.
-		-- William Shakespeare, "Kind John"
+In the stairway of life, you'd best take the elevator.
