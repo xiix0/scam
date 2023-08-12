@@ -1,2 +1,2 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
