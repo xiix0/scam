@@ -1,1 +1,1 @@
-Bank error in your favor.  Collect $200.
+You are a bundle of energy, always on the go.
