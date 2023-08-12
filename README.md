@@ -1,1 +1,1 @@
-In the stairway of life, you'd best take the elevator.
+You may get an opportunity for advancement today.  Watch it!
