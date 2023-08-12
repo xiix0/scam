@@ -1,1 +1,2 @@
-You will be recognized and honored as a community leader.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
