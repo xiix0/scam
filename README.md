@@ -1,2 +1,3 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
