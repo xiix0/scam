@@ -1,1 +1,1 @@
-Don't feed the bats tonight.
+Be security conscious -- National defense is at stake.
