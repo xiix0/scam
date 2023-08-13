@@ -1,1 +1,2 @@
-You will remember something that you should not have forgotten.
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
