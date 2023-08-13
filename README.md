@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+You will triumph over your enemy.
