@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+All generalizations are false, including this one.
+		-- Mark Twain
