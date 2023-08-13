@@ -1,3 +1,1 @@
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
-Some think it is the voice of God.
-		-- Mark Twain
+Your society will be sought by people of taste and refinement.
