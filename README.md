@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Just to have it is enough.
