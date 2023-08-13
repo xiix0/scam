@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+You will remember something that you should not have forgotten.
