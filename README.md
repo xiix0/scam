@@ -1,2 +1,2 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
