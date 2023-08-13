@@ -1,1 +1,2 @@
-Break into jail and claim police brutality.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
