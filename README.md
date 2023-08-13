@@ -1,2 +1,2 @@
-Every why hath a wherefore.
-		-- William Shakespeare, "A Comedy of Errors"
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
