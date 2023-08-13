@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
