@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+Your lucky number has been disconnected.
