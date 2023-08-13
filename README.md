@@ -1,2 +1,2 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
