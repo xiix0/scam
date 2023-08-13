@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
