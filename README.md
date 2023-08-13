@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
