@@ -1,1 +1,1 @@
-You will attract cultured and artistic people to your home.
+Future looks spotty.  You will spill soup in late evening.
