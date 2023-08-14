@@ -1,2 +1,2 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
