@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+Afternoon very favorable for romance.  Try a single person for a change.
