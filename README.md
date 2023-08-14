@@ -1,1 +1,1 @@
-There is a fly on your nose.
+You will attract cultured and artistic people to your home.
