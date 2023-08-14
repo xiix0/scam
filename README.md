@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+People are beginning to notice you.  Try dressing before you leave the house.
