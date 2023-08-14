@@ -1,2 +1,1 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+You will be awarded the Nobel Peace Prize... posthumously.
