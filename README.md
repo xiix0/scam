@@ -1,2 +1,2 @@
-When angry, count four; when very angry, swear.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
