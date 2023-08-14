@@ -1,3 +1,3 @@
-Have a place for everything and keep the thing somewhere else; this is not
-advice, it is merely custom.
-		-- Mark Twain
+Q:	How many Zen masters does it take to screw in a light bulb?
+A:	None.  The Universe spins the bulb, and the Zen master stays out
+	of the way.
