@@ -1,1 +1,3 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+It were not best that we should all think alike; it is difference of opinion
+that makes horse-races.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
