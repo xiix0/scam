@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+Today is the tomorrow you worried about yesterday.
