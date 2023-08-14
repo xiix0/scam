@@ -1,2 +1,3 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
 		-- Mark Twain
