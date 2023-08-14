@@ -1,3 +1,3 @@
-You never have to change anything you got up in the middle of the night
-to write.
-		-- Saul Bellow
+Q:	Why is it that the more accuracy you demand from an interpolation
+	function, the more expensive it becomes to compute?
+A:	That's the Law of Spline Demand.
