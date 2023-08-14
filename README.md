@@ -1,1 +1,1 @@
-Your object is to save the world, while still leading a pleasant life.
+You have an unusual equipment for success.  Be sure to use it properly.
