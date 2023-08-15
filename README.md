@@ -1,1 +1,1 @@
-Long life is in store for you.
+Your lover will never wish to leave you.
