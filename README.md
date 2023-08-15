@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
