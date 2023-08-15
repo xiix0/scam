@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
