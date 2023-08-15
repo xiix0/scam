@@ -1,1 +1,2 @@
-Fine day to work off excess energy.  Steal something heavy.
+If you tell the truth you don't have to remember anything.
+		-- Mark Twain
