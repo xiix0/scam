@@ -1,1 +1,1 @@
-Future looks spotty.  You will spill soup in late evening.
+You prefer the company of the opposite sex, but are well liked by your own.
