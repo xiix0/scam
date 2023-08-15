@@ -1,3 +1,8 @@
-It is so very hard to be an
-on-your-own-take-care-of-yourself-because-there-is-no-one-else-to-do-it-for-you
-grown-up.
+October.
+
+This is one of the peculiarly dangerous months to speculate in stocks in.
+
+The others are July, January, September, April, November, May, March, June,
+December, August, and February.
+
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
