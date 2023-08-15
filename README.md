@@ -1,1 +1,1 @@
-Just to have it is enough.
+Long life is in store for you.
