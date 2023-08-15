@@ -1,2 +1,3 @@
-Q:	What's the difference between a duck and an elephant?
-A:	You can't get down off an elephant.
+In the Spring, I have counted 136 different kinds of weather inside of
+24 hours.
+		-- Mark Twain, on New England weather
