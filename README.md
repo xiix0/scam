@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+Try to value useful qualities in one who loves you.
