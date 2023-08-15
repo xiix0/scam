@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+All the troubles you have will pass away very quickly.
