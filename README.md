@@ -1,2 +1,2 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
