@@ -1,2 +1,2 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+Q:	What's the difference between a duck and an elephant?
+A:	You can't get down off an elephant.
