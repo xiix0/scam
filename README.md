@@ -1,1 +1,1 @@
-You will pass away very quickly.
+You will give someone a piece of your mind, which you can ill afford.
