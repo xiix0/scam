@@ -1,1 +1,2 @@
-Your fly might be open (but don't check it just now).
+Q:	What is the sound of one cat napping?
+A:	Mu.
