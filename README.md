@@ -1,2 +1,1 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+Good day to let down old friends who need help.
