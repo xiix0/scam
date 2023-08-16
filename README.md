@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
