@@ -1,2 +1,1 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+You are fighting for survival in your own sweet and gentle way.
