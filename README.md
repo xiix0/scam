@@ -1,1 +1,2 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
