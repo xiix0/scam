@@ -1,2 +1,2 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
