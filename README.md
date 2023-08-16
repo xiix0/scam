@@ -1,2 +1,1 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Afternoon very favorable for romance.  Try a single person for a change.
