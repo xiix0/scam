@@ -1,1 +1,1 @@
-Never give an inch!
+Don't read any sky-writing for the next two weeks.
