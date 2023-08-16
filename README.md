@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+In the stairway of life, you'd best take the elevator.
