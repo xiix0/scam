@@ -1,1 +1,1 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+You are a very redundant person, that's what kind of person you are.
