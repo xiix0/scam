@@ -1,1 +1,1 @@
-You will soon forget this.
+Future looks spotty.  You will spill soup in late evening.
