@@ -1,3 +1,5 @@
-This is the first age that's paid much attention to the future, which is a
-little ironic since we may not have one.
-		-- Arthur Clarke
+Knucklehead:	"Knock, knock"
+Pee Wee:	"Who's there?"
+Knucklehead:	"Little ol' lady."
+Pee Wee:	"Liddle ol' lady who?"
+Knucklehead:	"I didn't know you could yodel"
