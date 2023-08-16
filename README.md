@@ -1,2 +1,2 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
