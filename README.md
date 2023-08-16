@@ -1,2 +1,2 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
