@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+After all, all he did was string together a lot of old, well-known quotations.
+		-- H. L. Mencken, on Shakespeare
