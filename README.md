@@ -1,2 +1,2 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
