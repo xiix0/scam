@@ -1,2 +1,1 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+Things will be bright in P.M.  A cop will shine a light in your face.
