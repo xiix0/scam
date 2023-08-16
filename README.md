@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
