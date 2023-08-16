@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+You're at the end of the road again.
