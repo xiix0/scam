@@ -1,2 +1,2 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+I have never let my schooling interfere with my education.
+		-- Mark Twain
