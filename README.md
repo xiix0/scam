@@ -1,1 +1,2 @@
-Domestic happiness and faithful friends.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
