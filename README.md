@@ -1,2 +1,3 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+Perilous to all of us are the devices of an art deeper than we ourselves
+possess.
+		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
