@@ -1,1 +1,2 @@
-Your love life will be... interesting.
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
