@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+You have a strong desire for a home and your family interests come first.
