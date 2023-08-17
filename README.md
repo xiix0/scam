@@ -1,1 +1,2 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
