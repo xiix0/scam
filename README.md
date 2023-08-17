@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+Change your thoughts and you change your world.
