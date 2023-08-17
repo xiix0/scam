@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Q:	Do you know what the death rate around here is?
+A:	One per person.
