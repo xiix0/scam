@@ -1,2 +1,1 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
