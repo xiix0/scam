@@ -1,1 +1,1 @@
-You are number 6!  Who is number one?
+All the troubles you have will pass away very quickly.
