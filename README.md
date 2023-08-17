@@ -1,1 +1,1 @@
-You'll be called to a post requiring ability in handling groups of people.
+Beware of a dark-haired man with a loud tie.
