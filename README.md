@@ -1,1 +1,1 @@
-You dialed 5483.
+You are a very redundant person, that's what kind of person you are.
