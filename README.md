@@ -1,1 +1,2 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
