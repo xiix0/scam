@@ -1,1 +1,2 @@
-You will have long and healthy life.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
