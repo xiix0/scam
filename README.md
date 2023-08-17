@@ -1,2 +1,1 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+Tonight's the night: Sleep in a eucalyptus tree.
