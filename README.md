@@ -1,1 +1,2 @@
-You are a bundle of energy, always on the go.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
