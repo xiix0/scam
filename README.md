@@ -1,1 +1,2 @@
-You plan things that you do not even attempt because of your extreme caution.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
