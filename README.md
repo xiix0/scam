@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+Fine day to work off excess energy.  Steal something heavy.
