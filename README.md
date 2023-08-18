@@ -1,1 +1,2 @@
-Change your thoughts and you change your world.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
