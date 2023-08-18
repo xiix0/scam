@@ -1,1 +1,1 @@
-Of course you have a purpose -- to find a purpose.
+You will hear good news from one you thought unfriendly to you.
