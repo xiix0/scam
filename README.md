@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+Your life would be very empty if you had nothing to regret.
