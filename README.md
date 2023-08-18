@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+Don't get stuck in a closet -- wear yourself out.
