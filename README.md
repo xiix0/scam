@@ -1,4 +1,3 @@
-Whenever the literary German dives into a sentence, that is the last
-you are going to see of him until he emerges on the other side of his
-Atlantic with his verb in his mouth.
-		-- Mark Twain "A Connecticut Yankee in King Arthur's Court"
+Writing is easy; all you do is sit staring at the blank sheet of paper until
+drops of blood form on your forehead.
+		-- Gene Fowler
