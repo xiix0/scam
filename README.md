@@ -1,1 +1,2 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
