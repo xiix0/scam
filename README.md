@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+It's lucky you're going so slowly, because you're going in the wrong direction.
