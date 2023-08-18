@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
