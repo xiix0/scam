@@ -1,2 +1,2 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
