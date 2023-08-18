@@ -1,3 +1,4 @@
-Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
-A:	Easy.  It's because they can't figure out how to get the little
-	bottles into the typewriter.
+All I know is what the words know, and dead things, and that
+makes a handsome little sum, with a beginning and a middle and
+an end, as in the well-built phrase and the long sonata of the dead.
+		-- Samuel Beckett
