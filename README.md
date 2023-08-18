@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+If you stand on your head, you will get footprints in your hair.
