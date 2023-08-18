@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+Your own qualities will help prevent your advancement in the world.
