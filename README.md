@@ -1,1 +1,2 @@
-You'll never be the man your mother was!
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
