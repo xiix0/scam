@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+You have Egyptian flu: you're going to be a mummy.
