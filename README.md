@@ -1,2 +1,2 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
