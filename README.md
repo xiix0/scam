@@ -1,1 +1,1 @@
-It may or may not be worthwhile, but it still has to be done.
+Best of all is never to have been born.  Second best is to die soon.
