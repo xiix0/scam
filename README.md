@@ -1,2 +1,2 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
