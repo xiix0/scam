@@ -1,1 +1,2 @@
-Avert misunderstanding by calm, poise, and balance.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
