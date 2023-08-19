@@ -1,1 +1,2 @@
-Excellent time to become a missing person.
+When in doubt, tell the truth.
+		-- Mark Twain
