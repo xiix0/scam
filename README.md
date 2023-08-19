@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+People are beginning to notice you.  Try dressing before you leave the house.
