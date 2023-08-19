@@ -1,2 +1,2 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
