@@ -1,1 +1,1 @@
-Beware of Bigfoot!
+Your love life will be... interesting.
