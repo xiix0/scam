@@ -1,1 +1,2 @@
-You will be run over by a beer truck.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
