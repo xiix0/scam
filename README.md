@@ -1,1 +1,2 @@
-You like to form new friendships and make new acquaintances.
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
