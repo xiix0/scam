@@ -1,1 +1,1 @@
-In the stairway of life, you'd best take the elevator.
+Living your life is a task so difficult, it has never been attempted before.
