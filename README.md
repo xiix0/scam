@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+Blow it out your ear.
