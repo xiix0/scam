@@ -1,1 +1,3 @@
-You will be held hostage by a radical group.
+Q:	Why is it that the more accuracy you demand from an interpolation
+	function, the more expensive it becomes to compute?
+A:	That's the Law of Spline Demand.
