@@ -1,2 +1,3 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Consider well the proportions of things.  It is better to be a young June-bug
+than an old bird of paradise.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
