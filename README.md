@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+Of course you have a purpose -- to find a purpose.
