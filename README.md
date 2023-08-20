@@ -1,2 +1,3 @@
-Q:	What do you get when you cross a mobster with an international standard?
-A:	You get someone who makes you an offer that you can't understand!
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
