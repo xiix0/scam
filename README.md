@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+Do nothing unless you must, and when you must act -- hesitate.
