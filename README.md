@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+Many changes of mind and mood; do not hesitate too long.
