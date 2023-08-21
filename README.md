@@ -1,1 +1,2 @@
-You will reach the highest possible point in your business or profession.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
