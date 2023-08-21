@@ -1,2 +1,1 @@
-Q:	What's tiny and yellow and very, very, dangerous?
-A:	A canary with the super-user password.
+Live in a world of your own, but always welcome visitors.
