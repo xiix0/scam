@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+So this is it.  We're going to die.
