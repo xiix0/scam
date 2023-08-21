@@ -1,2 +1,2 @@
-Q:	Why do firemen wear red suspenders?
-A:	To conform with departmental regulations concerning uniform dress.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
