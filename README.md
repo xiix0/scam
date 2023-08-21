@@ -1,1 +1,2 @@
-You will reach the highest possible point in your business or profession.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
