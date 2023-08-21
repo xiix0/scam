@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+You will overcome the attacks of jealous associates.
