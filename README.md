@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
