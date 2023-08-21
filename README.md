@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
