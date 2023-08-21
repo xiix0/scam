@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
