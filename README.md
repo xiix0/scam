@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+You will be reincarnated as a toad; and you will be much happier.
