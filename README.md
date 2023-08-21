@@ -1,2 +1,2 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
 		-- Mark Twain
