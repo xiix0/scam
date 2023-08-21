@@ -1,2 +1,1 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+Do what comes naturally.  Seethe and fume and throw a tantrum.
