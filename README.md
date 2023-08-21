@@ -1,1 +1,2 @@
-Tuesday is the Wednesday of the rest of your life.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
