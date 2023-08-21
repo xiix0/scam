@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+You have a deep appreciation of the arts and music.
