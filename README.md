@@ -1,3 +1,1 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+Good news.  Ten weeks from Friday will be a pretty good day.
