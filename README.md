@@ -1,1 +1,2 @@
-You'll feel much better once you've given up hope.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
