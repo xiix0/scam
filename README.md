@@ -1,2 +1,1 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+Things will be bright in P.M.  A cop will shine a light in your face.
