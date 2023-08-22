@@ -1,2 +1,2 @@
-Q:	Why do mountain climbers rope themselves together?
-A:	To prevent the sensible ones from going home.
+No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
+		-- Sherlock Holmes
