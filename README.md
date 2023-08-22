@@ -1,2 +1,1 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+Fine day to work off excess energy.  Steal something heavy.
