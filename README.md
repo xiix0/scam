@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+You will be imprisoned for contributing your time and skill to a bank robbery.
