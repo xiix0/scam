@@ -1,2 +1,1 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+Don't look now, but the man in the moon is laughing at you.
