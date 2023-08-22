@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+You will hear good news from one you thought unfriendly to you.
