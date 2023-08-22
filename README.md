@@ -1,1 +1,2 @@
-Never give an inch!
+Big book, big bore.
+		-- Callimachus
