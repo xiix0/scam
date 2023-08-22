@@ -1,4 +1,2 @@
-AWAKE! FEAR! FIRE! FOES! AWAKE!
-	FEAR! FIRE! FOES!
-		AWAKE! AWAKE!
-		-- J. R. R. Tolkien
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
