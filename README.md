@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
