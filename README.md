@@ -1,2 +1,3 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
