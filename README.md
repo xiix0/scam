@@ -1,2 +1,2 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
