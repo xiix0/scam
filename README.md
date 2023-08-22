@@ -1,2 +1,2 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
