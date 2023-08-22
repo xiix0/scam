@@ -1,2 +1,2 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
