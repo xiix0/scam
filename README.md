@@ -1,2 +1,1 @@
-Big book, big bore.
-		-- Callimachus
+You will be audited by the Internal Revenue Service.
