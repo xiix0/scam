@@ -1,4 +1,1 @@
-In Marseilles they make half the toilet soap we consume in America, but
-the Marseillaise only have a vague theoretical idea of its use, which they
-have obtained from books of travel.
-		-- Mark Twain
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
