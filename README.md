@@ -1,2 +1,2 @@
-No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
-		-- Sherlock Holmes
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
