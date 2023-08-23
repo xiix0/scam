@@ -1,1 +1,1 @@
-It may or may not be worthwhile, but it still has to be done.
+You will have good luck and overcome many hardships.
