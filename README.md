@@ -1,1 +1,2 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
