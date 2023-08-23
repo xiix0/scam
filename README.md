@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
