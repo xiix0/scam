@@ -1,2 +1,3 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
