@@ -1,2 +1,1 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+You look like a million dollars.  All green and wrinkled.
