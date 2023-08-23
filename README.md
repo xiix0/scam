@@ -1,3 +1,1 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+Are you making all this up as you go along?
