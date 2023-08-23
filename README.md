@@ -1,3 +1,1 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #4
-A:	Go west, young man, go west!
-Q:	What do wabbits do when they get tiwed of wunning awound?
+You could live a better life, if you had a better mind and a better body.
