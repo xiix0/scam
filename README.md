@@ -1,1 +1,2 @@
-Don't look back, the lemmings are gaining on you.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
