@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
