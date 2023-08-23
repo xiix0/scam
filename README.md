@@ -1,1 +1,2 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
