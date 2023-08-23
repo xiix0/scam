@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+You are magnetic in your bearing.
