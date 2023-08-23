@@ -1,1 +1,3 @@
-You're ugly and your mother dresses you funny.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
