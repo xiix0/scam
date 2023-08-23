@@ -1,1 +1,2 @@
-It may or may not be worthwhile, but it still has to be done.
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
