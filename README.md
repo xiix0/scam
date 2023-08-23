@@ -1,1 +1,1 @@
-You are not dead yet.  But watch for further reports.
+Don't look back, the lemmings are gaining on you.
