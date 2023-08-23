@@ -1,3 +1,2 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
