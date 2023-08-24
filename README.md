@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
