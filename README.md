@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+Today is the last day of your life so far.
