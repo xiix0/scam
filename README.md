@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+You will obey or molten silver will be poured into your ears.
