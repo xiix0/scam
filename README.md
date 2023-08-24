@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Among the lucky, you are the chosen one.
