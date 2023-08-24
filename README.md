@@ -1,2 +1,1 @@
-Q:	What is the difference between Texas and yogurt?
-A:	Yogurt has culture.
+Do nothing unless you must, and when you must act -- hesitate.
