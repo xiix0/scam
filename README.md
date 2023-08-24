@@ -1,1 +1,1 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+You are so boring that when I see you my feet go to sleep.
