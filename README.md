@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+You will pioneer the first Martian colony.
