@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+You are fairminded, just and loving.
