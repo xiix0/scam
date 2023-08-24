@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+Afternoon very favorable for romance.  Try a single person for a change.
