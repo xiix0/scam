@@ -1,2 +1,2 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
