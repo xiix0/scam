@@ -1,1 +1,1 @@
-You will be divorced within a year.
+You like to form new friendships and make new acquaintances.
