@@ -1,2 +1,3 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+Q:	What does a WASP Mom make for dinner?
+A:	A crisp salad, a hearty soup, a lovely entree, followed by
+	a delicious dessert.
