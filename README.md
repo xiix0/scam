@@ -1,1 +1,2 @@
-Save energy: be apathetic.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
