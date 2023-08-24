@@ -1,1 +1,2 @@
-Snow Day -- stay home.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
