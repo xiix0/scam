@@ -1,2 +1,3 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #4
+A:	Go west, young man, go west!
+Q:	What do wabbits do when they get tiwed of wunning awound?
