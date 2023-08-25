@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+You're definitely on their list.  The question to ask next is what list it is.
