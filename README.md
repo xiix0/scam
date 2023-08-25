@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+I'll burn my books.
+		-- Christopher Marlowe
