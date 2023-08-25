@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+A gift of a flower will soon be made to you.
