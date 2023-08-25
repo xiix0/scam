@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+Q:	How do you keep a moron in suspense?
