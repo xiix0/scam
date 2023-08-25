@@ -1,1 +1,2 @@
-Your business will assume vast proportions.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
