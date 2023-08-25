@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+Today is the last day of your life so far.
