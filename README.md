@@ -1,1 +1,2 @@
-What happened last night can happen again.
+Big book, big bore.
+		-- Callimachus
