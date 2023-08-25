@@ -1,1 +1,1 @@
-You have many friends and very few living enemies.
+You will be traveling and coming into a fortune.
