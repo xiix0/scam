@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+You are a very redundant person, that's what kind of person you are.
