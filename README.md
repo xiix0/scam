@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
