@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+Tuesday After Lunch is the cosmic time of the week.
