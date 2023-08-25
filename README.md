@@ -1,3 +1,2 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
+Be careful of reading health books, you might die of a misprint.
 		-- Mark Twain
