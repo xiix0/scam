@@ -1,2 +1,3 @@
-I fell asleep reading a dull book, and I dreamt that I was reading on,
-so I woke up from sheer boredom.
+Writing is easy; all you do is sit staring at the blank sheet of paper until
+drops of blood form on your forehead.
+		-- Gene Fowler
