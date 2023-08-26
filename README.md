@@ -1,3 +1,2 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
