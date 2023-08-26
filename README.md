@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+You will be aided greatly by a person whom you thought to be unimportant.
