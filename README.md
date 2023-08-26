@@ -1,2 +1,2 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
