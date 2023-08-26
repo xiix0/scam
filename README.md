@@ -1,5 +1,2 @@
-Q:	How do you catch a unique rabbit?
-A:	Unique up on it!
-
-Q:	How do you catch a tame rabbit?
-A:	The tame way!
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
