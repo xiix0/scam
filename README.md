@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
