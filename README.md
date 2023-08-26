@@ -1,1 +1,2 @@
-Never reveal your best argument.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
