@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+Your object is to save the world, while still leading a pleasant life.
