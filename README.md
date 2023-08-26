@@ -1,1 +1,3 @@
-You have an ambitious nature and may make a name for yourself.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
