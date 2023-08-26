@@ -1,1 +1,1 @@
-Your object is to save the world, while still leading a pleasant life.
+You're almost as happy as you think you are.
