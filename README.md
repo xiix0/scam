@@ -1,2 +1,3 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+Q:	What do you call the money you pay to the government when
+	you ride into the country on the back of an elephant?
+A:	A howdah duty.
