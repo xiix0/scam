@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+Expect a letter from a friend who will ask a favor of you.
