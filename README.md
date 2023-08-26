@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+You will meet an important person who will help you advance professionally.
