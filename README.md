@@ -1,1 +1,2 @@
-Your reasoning powers are good, and you are a fairly good planner.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
