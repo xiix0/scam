@@ -1,2 +1,1 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+You display the wonderful traits of charm and courtesy.
