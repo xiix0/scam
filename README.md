@@ -1,2 +1,5 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Q:	How do you catch a unique rabbit?
+A:	Unique up on it!
+
+Q:	How do you catch a tame rabbit?
+A:	The tame way!
