@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+You own a dog, but you can only feed a cat.
