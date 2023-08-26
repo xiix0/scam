@@ -1,1 +1,2 @@
-You have a deep interest in all that is artistic.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
