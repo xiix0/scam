@@ -1,1 +1,2 @@
-Generosity and perfection are your everlasting goals.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
