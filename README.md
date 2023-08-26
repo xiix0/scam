@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You're ugly and your mother dresses you funny.
