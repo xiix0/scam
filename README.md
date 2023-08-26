@@ -1,1 +1,1 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+Don't get stuck in a closet -- wear yourself out.
