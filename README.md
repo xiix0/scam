@@ -1,2 +1,2 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+Q:	What do little WASPs want to be when they grow up?
+A:	The very best person they can possibly be.
