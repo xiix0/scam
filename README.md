@@ -1,3 +1,5 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
+
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
