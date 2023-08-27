@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
