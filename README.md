@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+Future looks spotty.  You will spill soup in late evening.
