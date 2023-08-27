@@ -1,3 +1,1 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+Afternoon very favorable for romance.  Try a single person for a change.
