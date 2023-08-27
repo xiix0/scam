@@ -1,1 +1,3 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
