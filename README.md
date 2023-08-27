@@ -1,1 +1,3 @@
-You'll feel much better once you've given up hope.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #4
+A:	Go west, young man, go west!
+Q:	What do wabbits do when they get tiwed of wunning awound?
