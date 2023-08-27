@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
