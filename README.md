@@ -1,2 +1,1 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+You prefer the company of the opposite sex, but are well liked by your own.
