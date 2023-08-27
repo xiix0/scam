@@ -1,2 +1,2 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
