@@ -1,1 +1,2 @@
-Today is National Existential Ennui Awareness Day.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
