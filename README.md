@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
