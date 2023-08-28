@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+Your present plans will be successful.
