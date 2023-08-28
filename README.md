@@ -1,1 +1,2 @@
-You're almost as happy as you think you are.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
