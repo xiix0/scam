@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+Today is what happened to yesterday.
