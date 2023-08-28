@@ -1,1 +1,1 @@
-You would if you could but you can't so you won't.
+An avocado-tone refrigerator would look good on your resume.
