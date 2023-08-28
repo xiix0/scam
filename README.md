@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
