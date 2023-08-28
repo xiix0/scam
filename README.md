@@ -1,1 +1,1 @@
-You've been leading a dog's life.  Stay off the furniture.
+Alimony and bribes will engage a large share of your wealth.
