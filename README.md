@@ -1,3 +1,2 @@
-Q:	Why is it that the more accuracy you demand from an interpolation
-	function, the more expensive it becomes to compute?
-A:	That's the Law of Spline Demand.
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
