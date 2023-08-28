@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
