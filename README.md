@@ -1,1 +1,2 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
