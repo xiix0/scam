@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+Slow day.  Practice crawling.
