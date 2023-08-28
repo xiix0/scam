@@ -1,1 +1,2 @@
-Your aims are high, and you are capable of much.
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
