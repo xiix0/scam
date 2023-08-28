@@ -1,1 +1,2 @@
-Don't go surfing in South Dakota for a while.
+Wagner's music is better than it sounds.
+		-- Mark Twain
