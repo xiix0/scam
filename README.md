@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+You're a card which will have to be dealt with.
