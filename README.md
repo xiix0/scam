@@ -1,1 +1,1 @@
-Your object is to save the world, while still leading a pleasant life.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
