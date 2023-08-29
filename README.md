@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+You will have good luck and overcome many hardships.
