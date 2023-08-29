@@ -1,2 +1,3 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
