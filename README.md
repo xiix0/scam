@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Don't feed the bats tonight.
