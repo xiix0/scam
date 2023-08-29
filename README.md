@@ -1,1 +1,2 @@
-You will have a long and boring life.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
