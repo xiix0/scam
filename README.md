@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
