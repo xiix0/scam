@@ -1,3 +1,1 @@
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
-		-- Mark Twain
+You seek to shield those you love and you like the role of the provider.
