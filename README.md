@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
