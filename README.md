@@ -1,2 +1,2 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
