@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+Just to have it is enough.
