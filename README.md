@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+Don't you feel more like you do now than you did when you came in?
