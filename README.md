@@ -1,1 +1,2 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
