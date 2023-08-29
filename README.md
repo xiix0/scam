@@ -1,1 +1,1 @@
-Don't get to bragging.
+You recoil from the crude; you tend naturally toward the exquisite.
