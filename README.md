@@ -1,2 +1,3 @@
-Q:	What is the difference between Texas and yogurt?
-A:	Yogurt has culture.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
