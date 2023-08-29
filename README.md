@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+You will have a long and boring life.
