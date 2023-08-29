@@ -1,2 +1,2 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
