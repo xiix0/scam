@@ -1,1 +1,1 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+You will overcome the attacks of jealous associates.
