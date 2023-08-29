@@ -1,1 +1,2 @@
-You will be advanced socially, without any special effort on your part.
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
