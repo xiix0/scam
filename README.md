@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
