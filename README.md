@@ -1,1 +1,1 @@
-Are you making all this up as you go along?
+If you sow your wild oats, hope for a crop failure.
