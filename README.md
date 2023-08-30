@@ -1,1 +1,3 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
