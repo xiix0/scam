@@ -1,1 +1,3 @@
-Your boyfriend takes chocolate from strangers.
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
