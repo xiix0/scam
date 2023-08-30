@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+You will live a long, healthy, happy life and make bags of money.
