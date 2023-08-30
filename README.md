@@ -1,3 +1,2 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
+Familiarity breeds contempt -- and children.
 		-- Mark Twain
