@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+Live in a world of your own, but always welcome visitors.
