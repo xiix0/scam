@@ -1,5 +1,2 @@
-Q:	What do you call a blind pre-historic animal?
-A:	Diyathinkhesaurus.
-
-Q:	What do you call a blind pre-historic animal with a dog?
-A:	Diyathinkhesaurus Rex.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
