@@ -1,1 +1,2 @@
-You will be honored for contributing your time and skill to a worthy cause.
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
