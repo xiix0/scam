@@ -1,2 +1,2 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
