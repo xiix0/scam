@@ -1,1 +1,2 @@
-Today is the tomorrow you worried about yesterday.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
