@@ -1,1 +1,2 @@
-You'll be called to a post requiring ability in handling groups of people.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
