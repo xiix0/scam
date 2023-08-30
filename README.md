@@ -1,1 +1,2 @@
-If you sow your wild oats, hope for a crop failure.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
