@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+Today is the tomorrow you worried about yesterday.
