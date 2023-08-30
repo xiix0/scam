@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+Today is the tomorrow you worried about yesterday.
