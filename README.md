@@ -1,4 +1,6 @@
-Q:	Why don't Scotsmen ever have coffee the way they like it?
-A:	Well, they like it with two lumps of sugar.  If they drink
-	it at home, they only take one, and if they drink it while
-	visiting, they always take three.
+There is no character, howsoever good and fine, but it can be destroyed by
+ridicule, howsoever poor and witless.  Observe the ass, for instance: his
+character is about perfect, he is the choicest spirit among all the humbler
+animals, yet see what ridicule has brought him to.  Instead of feeling
+complimented when we are called an ass, we are left in doubt.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
