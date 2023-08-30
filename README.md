@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+You never know how many friends you have until you rent a house on the beach.
