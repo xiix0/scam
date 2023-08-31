@@ -1,2 +1,1 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+You will experience a strong urge to do good; but it will pass.
