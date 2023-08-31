@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+You like to form new friendships and make new acquaintances.
