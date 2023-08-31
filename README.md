@@ -1,1 +1,2 @@
-Many pages make a thick book.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
