@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+In the stairway of life, you'd best take the elevator.
