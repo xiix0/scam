@@ -1,1 +1,3 @@
-Many changes of mind and mood; do not hesitate too long.
+In the Spring, I have counted 136 different kinds of weather inside of
+24 hours.
+		-- Mark Twain, on New England weather
