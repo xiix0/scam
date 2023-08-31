@@ -1,1 +1,2 @@
-Are you sure the back door is locked?
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
