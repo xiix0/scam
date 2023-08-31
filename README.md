@@ -1,2 +1,2 @@
-"Life, loathe it or ignore it, you can't like it."
-		-- Marvin, "Hitchhiker's Guide to the Galaxy"
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
