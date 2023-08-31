@@ -1,1 +1,2 @@
-You are taking yourself far too seriously.
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
