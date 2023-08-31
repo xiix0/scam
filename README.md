@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+An exotic journey in downtown Newark is in your future.
