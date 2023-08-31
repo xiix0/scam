@@ -1,2 +1,5 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Q:	What do monsters eat?
+A:	Things.
+
+Q:	What do monsters drink?
+A:	Coke.  (Because Things go better with Coke.)
