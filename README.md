@@ -1,1 +1,1 @@
-Give him an evasive answer.
+Your aim is high and to the right.
