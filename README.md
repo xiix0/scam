@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+You dialed 5483.
