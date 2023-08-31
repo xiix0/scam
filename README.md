@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
