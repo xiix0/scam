@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+You are taking yourself far too seriously.
