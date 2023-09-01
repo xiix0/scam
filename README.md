@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+Look afar and see the end from the beginning.
