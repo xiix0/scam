@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Look afar and see the end from the beginning.
