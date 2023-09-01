@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
