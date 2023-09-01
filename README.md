@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+Your mode of life will be changed for the better because of new developments.
