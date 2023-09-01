@@ -1,3 +1,1 @@
-You never have to change anything you got up in the middle of the night
-to write.
-		-- Saul Bellow
+Tuesday After Lunch is the cosmic time of the week.
