@@ -1,2 +1,1 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+Try to get all of your posthumous medals in advance.
