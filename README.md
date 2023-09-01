@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
