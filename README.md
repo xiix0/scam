@@ -1,2 +1,2 @@
-Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
-A:	Trustworthy.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
