@@ -1,2 +1,1 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+Don't worry so loud, your roommate can't think.
