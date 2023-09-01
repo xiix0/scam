@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
