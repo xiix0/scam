@@ -1,2 +1,2 @@
-Fine day for friends.
-So-so day for you.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
