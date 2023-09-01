@@ -1,1 +1,2 @@
-Look afar and see the end from the beginning.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
