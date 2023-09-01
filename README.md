@@ -1,2 +1,1 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+You have an unusual equipment for success.  Be sure to use it properly.
