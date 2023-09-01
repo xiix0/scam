@@ -1,1 +1,2 @@
-You are magnetic in your bearing.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
