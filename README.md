@@ -1,2 +1,1 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+Beauty and harmony are as necessary to you as the very breath of life.
