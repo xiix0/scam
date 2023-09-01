@@ -1,2 +1,3 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
