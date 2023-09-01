@@ -1,2 +1,2 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
