@@ -1,2 +1,3 @@
-Q:	What do you have when you have a lawyer buried up to his neck in sand?
-A:	Not enough sand.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
