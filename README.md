@@ -1,1 +1,2 @@
-Today is the tomorrow you worried about yesterday.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
