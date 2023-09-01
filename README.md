@@ -1,1 +1,3 @@
-You will step on the night soil of many countries.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
