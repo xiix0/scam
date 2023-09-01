@@ -1,1 +1,2 @@
-Look afar and see the end from the beginning.
+Q:	What do you call a half-dozen Indians with Asian flu?
+A:	Six sick Sikhs (sic).
