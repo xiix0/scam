@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+You don't become a failure until you're satisfied with being one.
