@@ -1,4 +1,2 @@
-F.S. Fitzgerald to Hemingway:
-	"Ernest, the rich are different from us."
-Hemingway:
-	"Yes.  They have more money."
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
