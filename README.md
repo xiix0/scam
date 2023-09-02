@@ -1,2 +1,2 @@
-Patch griefs with proverbs.
-		-- William Shakespeare, "Much Ado About Nothing"
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
