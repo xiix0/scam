@@ -1,1 +1,2 @@
-After your lover has gone you will still have PEANUT BUTTER!
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
