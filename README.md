@@ -1,1 +1,2 @@
-Tomorrow will be cancelled due to lack of interest.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
