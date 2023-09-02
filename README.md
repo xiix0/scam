@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+Tomorrow will be cancelled due to lack of interest.
