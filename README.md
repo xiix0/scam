@@ -1,1 +1,2 @@
-Don't kiss an elephant on the lips today.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
