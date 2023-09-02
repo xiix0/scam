@@ -1,2 +1,4 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
