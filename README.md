@@ -1,2 +1,2 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+Q:	What is purple and commutes?
+A:	An Abelian grape.
