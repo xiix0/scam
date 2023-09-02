@@ -1,1 +1,2 @@
-You have a will that can be influenced by all with whom you come in contact.
+Q:	What is the sound of one cat napping?
+A:	Mu.
