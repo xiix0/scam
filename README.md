@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
