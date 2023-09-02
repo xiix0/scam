@@ -1,1 +1,2 @@
-If you stand on your head, you will get footprints in your hair.
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
