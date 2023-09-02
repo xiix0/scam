@@ -1,2 +1,3 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
