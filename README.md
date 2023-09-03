@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
