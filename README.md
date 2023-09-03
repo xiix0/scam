@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
