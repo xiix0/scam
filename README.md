@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+Your business will assume vast proportions.
