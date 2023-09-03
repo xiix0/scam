@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
