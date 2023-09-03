@@ -1,1 +1,2 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
