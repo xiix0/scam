@@ -1,2 +1,1 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+Your boss climbed the corporate ladder, wrong by wrong.
