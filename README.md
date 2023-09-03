@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+Beware of a tall blond man with one black shoe.
