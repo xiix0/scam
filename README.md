@@ -1,2 +1,2 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
