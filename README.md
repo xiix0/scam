@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+Don't look now, but the man in the moon is laughing at you.
