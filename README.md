@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+You will always get the greatest recognition for the job you least like.
