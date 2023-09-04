@@ -1,7 +1,14 @@
-Sheriff Chameleotoptor sighed with an air of weary sadness, and then
-turned to Doppelgutt and said 'The Senator must really have been on a
-bender this time -- he left a party in Cleveland, Ohio, at 11:30 last
-night, and they found his car this morning in the smokestack of a British
-aircraft carrier in the Formosa Straits.'
-		-- Grand Panjandrum's Special Award, 1985 Bulwer-Lytton
-		   bad fiction contest.
+Q:	What's the contour integral around Western Europe?
+A:	Zero, because all the Poles are in Eastern Europe!
+
+Addendum: Actually, there ARE some Poles in Western Europe, but they
+	are removable!
+
+Q:	An English mathematician (I forgot who) was asked by his
+	very religious colleague: Do you believe in one God?
+A:	Yes, up to isomorphism!
+
+Q:	What is a compact city?
+A:	It's a city that can be guarded by finitely many near-sighted
+	policemen!
+		-- Peter Lax
