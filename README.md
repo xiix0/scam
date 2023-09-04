@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+You're currently going through a difficult transition period called "Life."
