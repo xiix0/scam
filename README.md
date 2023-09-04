@@ -1,3 +1,2 @@
-You may my glories and my state dispose,
-But not my griefs; still am I king of those.
-		-- William Shakespeare, "Richard II"
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
