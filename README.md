@@ -1,1 +1,2 @@
-You will wish you hadn't.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
