@@ -1,1 +1,2 @@
-You will be held hostage by a radical group.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
