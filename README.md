@@ -1,2 +1,2 @@
-When you are about to die, a wombat is better than no company at all.
-		-- Roger Zelazny, "Doorways in the Sand"
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
