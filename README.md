@@ -1,5 +1,2 @@
-Knock, knock!
-	Who's there?
-Sam and Janet.
-	Sam and Janet who?
-Sam and Janet Evening...
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
