@@ -1,14 +1,3 @@
-Gone With The Wind LITE(tm)
-	-- by Margaret Mitchell
-
-	A woman only likes men she can't have and the South gets trashed.
-
-Gift of the Magi LITE(tm)
-	-- by O. Henry
-
-	A husband and wife forget to register their gift preferences.
-
-The Old Man and the Sea LITE(tm)
-	-- by Ernest Hemingway
-
-	An old man goes fishing, but doesn't have much luck.
+If you pick up a starving dog and make him prosperous, he will not bite you.
+This is the principal difference between a dog and a man.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
