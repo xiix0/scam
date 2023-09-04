@@ -1,2 +1,3 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
