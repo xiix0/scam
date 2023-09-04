@@ -1,1 +1,2 @@
-Accent on helpful side of your nature.  Drain the moat.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
