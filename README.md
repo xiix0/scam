@@ -1,1 +1,1 @@
-Be different: conform.
+You are confused; but this is your normal state.
