@@ -1,3 +1,1 @@
-If one cannot enjoy reading a book over and over again, there is no use
-in reading it at all.
-		-- Oscar Wilde
+Don't hate yourself in the morning -- sleep till noon.
