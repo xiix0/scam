@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
