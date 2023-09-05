@@ -1,2 +1,2 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
