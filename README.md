@@ -1,2 +1,2 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
