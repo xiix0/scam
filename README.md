@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+Don't look now, but the man in the moon is laughing at you.
