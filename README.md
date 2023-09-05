@@ -1,2 +1,1 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+You will have a long and unpleasant discussion with your supervisor.
