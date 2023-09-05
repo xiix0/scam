@@ -1,1 +1,3 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Q:	How do you play religious roulette?
+A:	You stand around in a circle and blaspheme and see who gets
+	struck by lightning first.
