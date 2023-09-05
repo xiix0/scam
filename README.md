@@ -1,2 +1,1 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
