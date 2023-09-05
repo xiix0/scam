@@ -1,1 +1,1 @@
-You will have a long and unpleasant discussion with your supervisor.
+Exercise caution in your daily affairs.
