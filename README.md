@@ -1,1 +1,1 @@
-You may be recognized soon.  Hide.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
