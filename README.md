@@ -1,2 +1,2 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
