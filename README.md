@@ -1,2 +1,2 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	One.  Only it's his light bulb when he's done.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
