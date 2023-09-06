@@ -1,4 +1,2 @@
-Persons attempting to find a motive in this narrative will be prosecuted;
-persons attempting to find a moral in it will be banished; persons attempting
-to find a plot in it will be shot.  By Order of the Author
-		-- Mark Twain, "The Adventures of Huckleberry Finn"
+Q:	What's the difference between a Mac and an Etch-a-Sketch?
+A:	You don't have to shake the Mac to clear the screen.
