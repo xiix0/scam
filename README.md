@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+A few hours grace before the madness begins again.
