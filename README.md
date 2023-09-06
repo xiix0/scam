@@ -1,1 +1,1 @@
-There is a fly on your nose.
+Live in a world of your own, but always welcome visitors.
