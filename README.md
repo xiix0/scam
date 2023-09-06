@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
