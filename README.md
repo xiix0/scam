@@ -1,1 +1,2 @@
-You have a strong desire for a home and your family interests come first.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
