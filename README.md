@@ -1,2 +1,2 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
