@@ -1,2 +1,2 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
