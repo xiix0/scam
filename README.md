@@ -1,2 +1,3 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
