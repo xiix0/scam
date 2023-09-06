@@ -1,1 +1,2 @@
-You have been selected for a secret mission.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
