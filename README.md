@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+Q:	What do you call a half-dozen Indians with Asian flu?
+A:	Six sick Sikhs (sic).
