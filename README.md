@@ -1,1 +1,1 @@
-Your step will soil many countries.
+You are fairminded, just and loving.
