@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+So this is it.  We're going to die.
