@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
