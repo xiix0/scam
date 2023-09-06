@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+You're working under a slight handicap.  You happen to be human.
