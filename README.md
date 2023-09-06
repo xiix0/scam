@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
