@@ -1,2 +1,1 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+You attempt things that you do not even plan because of your extreme stupidity.
