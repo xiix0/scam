@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+Your ignorance cramps my conversation.
