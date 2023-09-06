@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+You possess a mind not merely twisted, but actually sprained.
