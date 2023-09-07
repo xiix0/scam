@@ -1,3 +1,3 @@
-Have a place for everything and keep the thing somewhere else; this is not
-advice, it is merely custom.
-		-- Mark Twain
+In the Spring, I have counted 136 different kinds of weather inside of
+24 hours.
+		-- Mark Twain, on New England weather
