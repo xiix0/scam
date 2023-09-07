@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+Your domestic life may be harmonious.
