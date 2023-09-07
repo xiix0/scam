@@ -1,1 +1,2 @@
-A few hours grace before the madness begins again.
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
