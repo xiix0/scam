@@ -1,2 +1,1 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+You recoil from the crude; you tend naturally toward the exquisite.
