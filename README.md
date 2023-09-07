@@ -1,3 +1,2 @@
-In the Spring, I have counted 136 different kinds of weather inside of
-24 hours.
-		-- Mark Twain, on New England weather
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
