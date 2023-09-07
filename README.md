@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+You display the wonderful traits of charm and courtesy.
