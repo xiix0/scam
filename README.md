@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+You will be recognized and honored as a community leader.
