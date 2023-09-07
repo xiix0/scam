@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
