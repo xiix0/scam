@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
