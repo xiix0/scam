@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+You will contract a rare disease.
