@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+You will receive a legacy which will place you above want.
