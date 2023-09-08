@@ -1,2 +1,3 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
