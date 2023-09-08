@@ -1,2 +1,1 @@
-Q:	How many IBM 370's does it take to execute a job?
-A:	Four, three to hold it down, and one to rip its head off.
+You are a fluke of the universe; you have no right to be here.
