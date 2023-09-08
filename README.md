@@ -1,3 +1,2 @@
-Noise proves nothing.  Often a hen who has merely laid an egg cackles
-as if she laid an asteroid.
-		-- Mark Twain
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
