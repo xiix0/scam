@@ -1,2 +1,1 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+Don't look now, but there is a multi-legged creature on your shoulder.
