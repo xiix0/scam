@@ -1,1 +1,2 @@
-You will be singled out for promotion in your work.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
