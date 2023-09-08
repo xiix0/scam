@@ -1,2 +1,2 @@
-You have a reputation for being thoroughly reliable and trustworthy.
-A pity that it's totally undeserved.
+Q:	How many Harvard MBA's does it take to screw in a light bulb?
+A:	Just one.  He grasps it firmly and the universe revolves around him.
