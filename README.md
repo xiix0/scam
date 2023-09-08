@@ -1,2 +1,1 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+Best of all is never to have been born.  Second best is to die soon.
