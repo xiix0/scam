@@ -1,1 +1,3 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
+are not the person involved.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
