@@ -1,2 +1,2 @@
-Q:	How many Harvard MBA's does it take to screw in a light bulb?
-A:	Just one.  He grasps it firmly and the universe revolves around him.
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
