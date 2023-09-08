@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+The time is right to make new friends.
