@@ -1,2 +1,2 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
