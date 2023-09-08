@@ -1,2 +1,2 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
