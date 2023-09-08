@@ -1,2 +1,2 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
