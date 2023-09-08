@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+You never hesitate to tackle the most difficult problems.
