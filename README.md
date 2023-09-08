@@ -1,1 +1,1 @@
-You seek to shield those you love and you like the role of the provider.
+Today is the last day of your life so far.
