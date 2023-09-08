@@ -1,2 +1,2 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
