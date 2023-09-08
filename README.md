@@ -1,1 +1,1 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+You're at the end of the road again.
