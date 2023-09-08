@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+You will experience a strong urge to do good; but it will pass.
