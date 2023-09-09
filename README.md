@@ -1,1 +1,1 @@
-There was a phone call for you.
+You are capable of planning your future.
