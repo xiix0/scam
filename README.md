@@ -1,2 +1,2 @@
-Troubled day for virgins over 16 who are beautiful and wealthy and live
-in eucalyptus trees.
+Q:	What is the sound of one cat napping?
+A:	Mu.
