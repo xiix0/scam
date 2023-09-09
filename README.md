@@ -1,1 +1,1 @@
-There was a phone call for you.
+Good day to deal with people in high places; particularly lonely stewardesses.
