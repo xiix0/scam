@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+You would if you could but you can't so you won't.
