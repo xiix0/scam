@@ -1,1 +1,2 @@
-You have a strong appeal for members of your own sex.
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
