@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Today is the first day of the rest of the mess.
