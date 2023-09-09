@@ -1,2 +1,1 @@
-question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+Don't look now, but there is a multi-legged creature on your shoulder.
