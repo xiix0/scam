@@ -1,1 +1,2 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
