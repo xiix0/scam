@@ -1,1 +1,1 @@
-You've been leading a dog's life.  Stay off the furniture.
+You will inherit millions of dollars.
