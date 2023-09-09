@@ -1,1 +1,1 @@
-You have many friends and very few living enemies.
+So this is it.  We're going to die.
