@@ -1,1 +1,1 @@
-You will have long and healthy life.
+There was a phone call for you.
