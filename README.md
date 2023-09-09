@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
