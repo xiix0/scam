@@ -1,6 +1,8 @@
-Many enraged psychiatrists are inciting a weary butcher.  The butcher is
-weary and tired because he has cut meat and steak and lamb for hours and
-weeks.  He does not desire to chant about anything with raving psychiatrists,
-but he sings about his gingivectomist, he dreams about a single cosmologist,
-he thinks about his dog.  The dog is named Herbert.
-		-- Racter, "The Policeman's Beard is Half-Constructed"
+Delores breezed along the surface of her life like a flat stone forever
+skipping along smooth water, rippling reality sporadically but oblivious
+to it consistently, until she finally lost momentum, sank, and due to an
+overdose of flouride as a child which caused her to suffer from chronic
+apathy, doomed herself to lie forever on the floor of her life as useless
+as an appendix and as lonely as a five-hundred pound barbell in a
+steroid-free fitness center.
+		-- Winning sentence, 1990 Bulwer-Lytton bad fiction contest.
