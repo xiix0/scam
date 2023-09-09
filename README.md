@@ -1,2 +1,2 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
