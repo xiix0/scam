@@ -1,2 +1,1 @@
-Always the dullness of the fool is the whetstone of the wits.
-		-- William Shakespeare, "As You Like It"
+You have many friends and very few living enemies.
