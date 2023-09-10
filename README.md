@@ -1,5 +1,3 @@
-Q:	Where's the Lone Ranger take his garbage?
-A:	To the dump, to the dump, to the dump dump dump!
-
-Q:	What's the Pink Panther say when he steps on an ant hill?
-A:	Dead ant, dead ant, dead ant dead ant dead ant...
+Grief can take care of itself; but to get the full value of a joy you must
+have somebody to divide it with.
+		-- Mark Twain
