@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+What happened last night can happen again.
