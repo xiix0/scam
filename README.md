@@ -1,1 +1,3 @@
-You will probably marry after a very brief courtship.
+Q:	Why do the police always travel in threes?
+A:	One to do the reading, one to do the writing, and the other keeps
+	an eye on the two intellectuals.
