@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+A gift of a flower will soon be made to you.
