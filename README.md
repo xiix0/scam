@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+Q:	How do you keep a moron in suspense?
