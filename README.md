@@ -1,2 +1,2 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+Q:	What is the sound of one cat napping?
+A:	Mu.
