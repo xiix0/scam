@@ -1,1 +1,1 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+Your aims are high, and you are capable of much.
