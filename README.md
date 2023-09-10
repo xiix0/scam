@@ -1,3 +1,2 @@
-Anyone who has had a bull by the tail knows five or six more things
-than someone who hasn't.
-		-- Mark Twain
+You're growing out of some of your problems, but there are others that
+you're growing into.
