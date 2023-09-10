@@ -1,1 +1,2 @@
-Don't worry so loud, your roommate can't think.
+The Public is merely a multiplied "me."
+		-- Mark Twain
