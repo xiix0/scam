@@ -1,1 +1,2 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
