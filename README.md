@@ -1,1 +1,2 @@
-Today is the tomorrow you worried about yesterday.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
