@@ -1,2 +1,1 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+Increased knowledge will help you now.  Have mate's phone bugged.
