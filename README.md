@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+Perfect day for scrubbing the floor and other exciting things.
