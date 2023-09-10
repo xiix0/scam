@@ -1,5 +1,2 @@
-Q:	How do you catch a unique rabbit?
-A:	Unique up on it!
-
-Q:	How do you catch a tame rabbit?
-A:	The tame way!
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
