@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Everything that you know is wrong, but you can be straightened out.
