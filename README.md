@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Don't kiss an elephant on the lips today.
