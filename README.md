@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+You're not my type.  For that matter, you're not even my species!!!
