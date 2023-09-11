@@ -1,1 +1,2 @@
-Don't kiss an elephant on the lips today.
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
