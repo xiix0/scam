@@ -1,2 +1,1 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+You will give someone a piece of your mind, which you can ill afford.
