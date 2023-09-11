@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
