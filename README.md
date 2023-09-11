@@ -1,2 +1,2 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+Q:	What's the difference between a Mac and an Etch-a-Sketch?
+A:	You don't have to shake the Mac to clear the screen.
