@@ -1,6 +1,2 @@
-Q:	What did Tarzan say when he saw the elephants coming over the hill?
-A:	"The elephants are coming over the hill."
-
-Q:	What did he say when saw them coming over the hill wearing
-		sunglasses?
-A:	Nothing, for he didn't recognize them.
+Just because the message may never be received does not mean it is
+not worth sending.
