@@ -1,2 +1,3 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+Reader, suppose you were an idiot.  And suppose you were a member of
+Congress.  But I repeat myself.
+		-- Mark Twain
