@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+Life is to you a dashing and bold adventure.
