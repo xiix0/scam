@@ -1,5 +1,3 @@
-When I was younger, I could remember anything, whether it had happened
-or not; but my faculties are decaying now and soon I shall be so I
-cannot remember any but the things that never happened.  It is sad to
-go to pieces like this but we all have to do it.
-		-- Mark Twain
+Q:	What do you call a principal female opera singer whose high C
+	is lower than those of other principal female opera singers?
+A:	A deep C diva.
