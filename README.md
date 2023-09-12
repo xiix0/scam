@@ -1,2 +1,2 @@
-Q:	How many Marxists does it take to screw in a light bulb?
-A:	None:  The light bulb contains the seeds of its own revolution.
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
