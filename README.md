@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+You will be awarded the Nobel Peace Prize... posthumously.
