@@ -1,1 +1,2 @@
-Everything that you know is wrong, but you can be straightened out.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
