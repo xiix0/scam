@@ -1,2 +1,2 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
