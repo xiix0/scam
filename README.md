@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+"... all the modern inconveniences ..."
+		-- Mark Twain
