@@ -1,3 +1,3 @@
-Q:	How do you play religious roulette?
-A:	You stand around in a circle and blaspheme and see who gets
-	struck by lightning first.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
