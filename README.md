@@ -1,1 +1,1 @@
-You love peace.
+You will pass away very quickly.
