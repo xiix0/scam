@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+Fine day to work off excess energy.  Steal something heavy.
