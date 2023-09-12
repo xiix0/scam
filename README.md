@@ -1,1 +1,2 @@
-Think twice before speaking, but don't say "think think click click".
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
