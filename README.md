@@ -1,2 +1,2 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+You will pay for your sins.  If you have already paid, please disregard
+this message.
