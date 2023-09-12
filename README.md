@@ -1,2 +1,3 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
