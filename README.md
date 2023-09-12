@@ -1,1 +1,2 @@
-You are going to have a new love affair.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
