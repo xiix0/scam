@@ -1,1 +1,2 @@
-Give your very best today.  Heaven knows it's little enough.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
