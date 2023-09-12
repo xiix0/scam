@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
