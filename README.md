@@ -1,4 +1,2 @@
-All I know is what the words know, and dead things, and that
-makes a handsome little sum, with a beginning and a middle and
-an end, as in the well-built phrase and the long sonata of the dead.
-		-- Samuel Beckett
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
