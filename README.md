@@ -1,1 +1,2 @@
-You never hesitate to tackle the most difficult problems.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
