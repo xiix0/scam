@@ -1,1 +1,2 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
