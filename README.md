@@ -1,1 +1,2 @@
-You will triumph over your enemy.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
