@@ -1,1 +1,1 @@
-Beware the one behind you.
+You single-handedly fought your way into this hopeless mess.
