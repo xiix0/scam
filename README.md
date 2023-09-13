@@ -1,2 +1,1 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+Cold hands, no gloves.
