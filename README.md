@@ -1,6 +1,3 @@
-	The Priest's grey nimbus in a niche where he dressed discreetly.
-I will not sleep here tonight. Home also I cannot go.
-	A voice, sweetened and sustained, called to him from the sea.
-Turning the curve he waved his hand.  A sleek brown head, a seal's, far
-out on the water, round.  Usurper.
-		-- James Joyce, "Ulysses"
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
