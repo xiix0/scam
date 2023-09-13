@@ -1,2 +1,1 @@
-What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+Don't read any sky-writing for the next two weeks.
