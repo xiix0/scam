@@ -1,1 +1,1 @@
-Best of all is never to have been born.  Second best is to die soon.
+You have had a long-term stimulation relative to business.
