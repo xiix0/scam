@@ -1,1 +1,1 @@
-You will be married within a year.
+You will triumph over your enemy.
