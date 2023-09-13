@@ -1,2 +1,1 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+Beware of a tall blond man with one black shoe.
