@@ -1,2 +1,1 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+All the troubles you have will pass away very quickly.
