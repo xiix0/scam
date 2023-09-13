@@ -1,1 +1,1 @@
-Day of inquiry.  You will be subpoenaed.
+Try the Moo Shu Pork.  It is especially good today.
