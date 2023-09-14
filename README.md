@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+Good news.  Ten weeks from Friday will be a pretty good day.
