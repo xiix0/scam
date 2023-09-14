@@ -1,2 +1,1 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Good day for a change of scene.  Repaper the bedroom wall.
