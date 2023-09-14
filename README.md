@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
