@@ -1,2 +1,2 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
