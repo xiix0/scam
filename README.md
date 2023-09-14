@@ -1,1 +1,1 @@
-You now have Asian Flu.
+You will visit the Dung Pits of Glive soon.
