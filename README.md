@@ -1,1 +1,1 @@
-Best of all is never to have been born.  Second best is to die soon.
+Your heart is pure, and your mind clear, and your soul devout.
