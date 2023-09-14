@@ -1,3 +1,6 @@
-A classic is something that everyone wants to have read
-and nobody wants to read.
-		-- Mark Twain, "The Disappearance of Literature"
+Q:	How many journalists does it take to screw in a light bulb?
+A:	Three.  One to report it as an inspired government program to bring
+	light to the people, one to report it as a diabolical government plot
+	to deprive the poor of darkness, and one to win a Pulitzer prize for
+	reporting that Electric Company hired a light bulb-assassin to break
+	the bulb in the first place.
