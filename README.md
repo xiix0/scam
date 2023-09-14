@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+Good news from afar can bring you a welcome visitor.
