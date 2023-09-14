@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+Give your very best today.  Heaven knows it's little enough.
