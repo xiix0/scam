@@ -1,5 +1,2 @@
-Knock, knock!
-	Who's there?
-Sam and Janet.
-	Sam and Janet who?
-Sam and Janet Evening...
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
