@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Hope that the day after you die is a nice day.
