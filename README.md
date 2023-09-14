@@ -1,1 +1,2 @@
-Everything will be just tickety-boo today.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
