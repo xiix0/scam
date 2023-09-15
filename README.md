@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
