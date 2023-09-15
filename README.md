@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+You will be married within a year, and divorced within two.
