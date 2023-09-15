@@ -1,1 +1,2 @@
-All the troubles you have will pass away very quickly.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
