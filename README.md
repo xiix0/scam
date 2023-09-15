@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
