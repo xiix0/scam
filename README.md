@@ -1,1 +1,1 @@
-Are you ever going to do the dishes?  Or will you change your major to biology?
+Good day to deal with people in high places; particularly lonely stewardesses.
