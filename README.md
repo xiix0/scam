@@ -1,2 +1,2 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+Q:	How many marketing people does it take to change a light bulb?
+A:	I'll have to get back to you on that.
