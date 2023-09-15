@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+An avocado-tone refrigerator would look good on your resume.
