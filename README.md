@@ -1,2 +1,2 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
