@@ -1,2 +1,2 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
