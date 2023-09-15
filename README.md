@@ -1,3 +1,2 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
