@@ -1,1 +1,2 @@
-A tall, dark stranger will have more fun than you.
+What I tell you three times is true.
+		-- Lewis Carroll
