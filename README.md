@@ -1,1 +1,2 @@
-Don't you wish you had more energy... or less ambition?
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
