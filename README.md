@@ -1,1 +1,2 @@
-Hope that the day after you die is a nice day.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
