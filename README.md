@@ -1,2 +1,3 @@
-Q:	What do agnostic, insomniac dyslexics do at night?
-A:	Stay awake and wonder if there's a dog.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
