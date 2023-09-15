@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+You have many friends and very few living enemies.
