@@ -1,1 +1,2 @@
-Everything that you know is wrong, but you can be straightened out.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
