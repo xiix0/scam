@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+Are you sure the back door is locked?
