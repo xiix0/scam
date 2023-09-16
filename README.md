@@ -1,3 +1,2 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
