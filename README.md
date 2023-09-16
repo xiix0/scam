@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+You will be given a post of trust and responsibility.
