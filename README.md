@@ -1,1 +1,1 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+You love your home and want it to be beautiful.
