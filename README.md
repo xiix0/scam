@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
