@@ -1,5 +1,1 @@
-Q:	What do monsters eat?
-A:	Things.
-
-Q:	What do monsters drink?
-A:	Coke.  (Because Things go better with Coke.)
+People are beginning to notice you.  Try dressing before you leave the house.
