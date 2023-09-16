@@ -1,2 +1,1 @@
-There is always one thing to remember: writers are always selling somebody out.
-		-- Joan Didion, "Slouching Towards Bethlehem"
+Good day to let down old friends who need help.
