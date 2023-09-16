@@ -1,3 +1,4 @@
-Q:	What do you call a principal female opera singer whose high C
-	is lower than those of other principal female opera singers?
-A:	A deep C diva.
+All I know is what the words know, and dead things, and that
+makes a handsome little sum, with a beginning and a middle and
+an end, as in the well-built phrase and the long sonata of the dead.
+		-- Samuel Beckett
