@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
