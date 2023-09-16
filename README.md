@@ -1,2 +1,1 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+Do not sleep in a eucalyptus tree tonight.
