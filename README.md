@@ -1,5 +1,5 @@
-October 12, the Discovery.
+Q:	What do monsters eat?
+A:	Things.
 
-It was wonderful to find America, but it would have been more wonderful to miss
-it.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	What do monsters drink?
+A:	Coke.  (Because Things go better with Coke.)
