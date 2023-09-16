@@ -1,1 +1,1 @@
-Give him an evasive answer.
+That secret you've been guarding, isn't.
