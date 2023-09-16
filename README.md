@@ -1,1 +1,3 @@
-You will experience a strong urge to do good; but it will pass.
+Questionable day.
+
+Ask somebody something.
