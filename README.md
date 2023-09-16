@@ -1,1 +1,2 @@
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+Q:	What do little WASPs want to be when they grow up?
+A:	The very best person they can possibly be.
