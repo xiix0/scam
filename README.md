@@ -1,3 +1,2 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
+Go not to the elves for counsel, for they will say both yes and no.
 		-- J.R.R. Tolkien
