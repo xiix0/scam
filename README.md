@@ -1,1 +1,1 @@
-You will pass away very quickly.
+Your present plans will be successful.
