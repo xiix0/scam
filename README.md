@@ -1,1 +1,2 @@
-Executive ability is prominent in your make-up.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
