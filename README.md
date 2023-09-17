@@ -1,2 +1,2 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
