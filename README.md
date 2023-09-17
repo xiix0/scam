@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
