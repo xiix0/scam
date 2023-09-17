@@ -1,1 +1,2 @@
-You will be recognized and honored as a community leader.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
