@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+Go to a movie tonight.  Darkness becomes you.
