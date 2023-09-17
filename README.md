@@ -1,2 +1,3 @@
-Q:	What's the difference between a Mac and an Etch-a-Sketch?
-A:	You don't have to shake the Mac to clear the screen.
+Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
+are not the person involved.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
