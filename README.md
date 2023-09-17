@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
