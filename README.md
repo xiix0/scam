@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+Exercise caution in your daily affairs.
