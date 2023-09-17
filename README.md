@@ -1,2 +1,2 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+Q:	What's the difference between a duck and an elephant?
+A:	You can't get down off an elephant.
