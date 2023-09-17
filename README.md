@@ -1,2 +1,3 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
