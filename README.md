@@ -1,2 +1,5 @@
-If you learn one useless thing every day, in a single year you'll learn
-365 useless things.
+I got a hint of things to come when I overheard my boss lamenting, 'The
+books are done and we still don't have an author! I must sign someone
+today!
+		-- Tamim Ansary, "Edutopia Magazine, Issue 2, November 2004"
+		   on the topic of school textbooks
