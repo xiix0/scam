@@ -1,1 +1,2 @@
-Your domestic life may be harmonious.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
