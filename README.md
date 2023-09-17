@@ -1,1 +1,1 @@
-Chicken Little was right.
+After your lover has gone you will still have PEANUT BUTTER!
