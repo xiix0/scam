@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
