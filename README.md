@@ -1,2 +1,1 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+You like to form new friendships and make new acquaintances.
