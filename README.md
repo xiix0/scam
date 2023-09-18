@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+A visit to a fresh place will bring strange work.
