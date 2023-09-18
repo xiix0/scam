@@ -1,1 +1,2 @@
-A tall, dark stranger will have more fun than you.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
