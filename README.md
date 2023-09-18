@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+Never look up when dragons fly overhead.
