@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+You will have long and healthy life.
