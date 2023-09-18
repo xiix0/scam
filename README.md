@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+A tall, dark stranger will have more fun than you.
