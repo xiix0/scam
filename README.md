@@ -1,1 +1,2 @@
-You're definitely on their list.  The question to ask next is what list it is.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
