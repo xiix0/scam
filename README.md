@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
