@@ -1,2 +1,2 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
