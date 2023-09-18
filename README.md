@@ -1,1 +1,2 @@
-You'll be sorry...
+Something's rotten in the state of Denmark.
+		-- Shakespeare
