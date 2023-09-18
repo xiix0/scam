@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Abandon the search for Truth; settle for a good fantasy.
