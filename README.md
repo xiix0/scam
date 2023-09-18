@@ -1,2 +1,2 @@
-Q:	What's tiny and yellow and very, very, dangerous?
-A:	A canary with the super-user password.
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
