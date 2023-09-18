@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+After your lover has gone you will still have PEANUT BUTTER!
