@@ -1,3 +1,3 @@
-Q:	Know what the difference between your latest project
-	and putting wings on an elephant is?
-A:	Who knows?  The elephant *might* fly, heh, heh...
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
