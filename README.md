@@ -1,2 +1,1 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+You would if you could but you can't so you won't.
