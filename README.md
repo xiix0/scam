@@ -1,1 +1,1 @@
-You will attract cultured and artistic people to your home.
+Courage is your greatest present need.
