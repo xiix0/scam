@@ -1,1 +1,1 @@
-Are you making all this up as you go along?
+Good day to let down old friends who need help.
