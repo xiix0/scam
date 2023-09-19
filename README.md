@@ -1,2 +1,2 @@
-He that is giddy thinks the world turns round.
-		-- William Shakespeare, "The Taming of the Shrew"
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
