@@ -1,1 +1,1 @@
-A day for firm decisions!!!!!  Or is it?
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
