@@ -1,1 +1,1 @@
-You will contract a rare disease.
+Today is what happened to yesterday.
