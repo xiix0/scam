@@ -1,3 +1,3 @@
-Q:	Why should you always serve a Southern Carolina football man
-	soup in a plate?
-A:	'Cause if you give him a bowl, he'll throw it away.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
+A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
+Q:	Who were the Democratic presidential candidates?
