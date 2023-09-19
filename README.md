@@ -1,2 +1,2 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
