@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+Are you making all this up as you go along?
