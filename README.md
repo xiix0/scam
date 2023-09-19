@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You will have good luck and overcome many hardships.
