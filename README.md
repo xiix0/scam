@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+A day for firm decisions!!!!!  Or is it?
