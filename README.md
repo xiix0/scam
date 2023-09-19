@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Your aims are high, and you are capable of much.
