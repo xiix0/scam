@@ -1,2 +1,3 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
