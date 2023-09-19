@@ -1,2 +1,3 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+He draweth out the thread of his verbosity finer than the staple of his
+argument.
+		-- William Shakespeare, "Love's Labour's Lost"
