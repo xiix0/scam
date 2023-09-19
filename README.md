@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+Good day for overcoming obstacles.  Try a steeplechase.
