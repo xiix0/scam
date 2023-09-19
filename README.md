@@ -1,2 +1,2 @@
-No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
-		-- Sherlock Holmes
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
