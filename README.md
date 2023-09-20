@@ -1,1 +1,1 @@
-You are standing on my toes.
+Be security conscious -- National defense is at stake.
