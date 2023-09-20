@@ -1,2 +1,3 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+Someone is speaking well of you.
+
+How unusual!
