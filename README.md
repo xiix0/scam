@@ -1,1 +1,2 @@
-Your talents will be recognized and suitably rewarded.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
