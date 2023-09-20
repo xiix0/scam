@@ -1,1 +1,1 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+You look like a million dollars.  All green and wrinkled.
