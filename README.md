@@ -1,3 +1,2 @@
-The mind is its own place, and in itself
-Can make a Heav'n of Hell, a Hell of Heav'n.
-		-- John Milton
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
