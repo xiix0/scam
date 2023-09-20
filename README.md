@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+Among the lucky, you are the chosen one.
