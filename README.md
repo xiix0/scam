@@ -1,1 +1,3 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+The mind is its own place, and in itself
+Can make a Heav'n of Hell, a Hell of Heav'n.
+		-- John Milton
