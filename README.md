@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+Today is National Existential Ennui Awareness Day.
