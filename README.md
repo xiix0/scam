@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+Your ignorance cramps my conversation.
