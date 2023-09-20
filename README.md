@@ -1,1 +1,2 @@
-Your aims are high, and you are capable of much.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
