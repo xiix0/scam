@@ -1,1 +1,2 @@
-What happened last night can happen again.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
