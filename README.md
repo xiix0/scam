@@ -1,1 +1,2 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+Q:	Are we not men?
+A:	We are Vaxen.
