@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
