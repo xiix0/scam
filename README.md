@@ -1,1 +1,1 @@
-Tuesday is the Wednesday of the rest of your life.
+Of course you have a purpose -- to find a purpose.
