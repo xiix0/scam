@@ -1,3 +1,2 @@
-You may my glories and my state dispose,
-But not my griefs; still am I king of those.
-		-- William Shakespeare, "Richard II"
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
