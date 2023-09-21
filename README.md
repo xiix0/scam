@@ -1,2 +1,2 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
