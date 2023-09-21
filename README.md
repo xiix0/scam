@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
