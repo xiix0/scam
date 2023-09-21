@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You will gain money by a speculation or lottery.
