@@ -1,1 +1,1 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+Your boss is a few sandwiches short of a picnic.
