@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+All the troubles you have will pass away very quickly.
