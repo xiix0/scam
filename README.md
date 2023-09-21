@@ -1,2 +1,1 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+Things will be bright in P.M.  A cop will shine a light in your face.
