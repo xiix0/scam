@@ -1,1 +1,2 @@
-You will be reincarnated as a toad; and you will be much happier.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
