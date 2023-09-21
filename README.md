@@ -1,1 +1,3 @@
-Day of inquiry.  You will be subpoenaed.
+You may my glories and my state dispose,
+But not my griefs; still am I king of those.
+		-- William Shakespeare, "Richard II"
