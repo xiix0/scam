@@ -1,2 +1,1 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+Be cautious in your daily affairs.
