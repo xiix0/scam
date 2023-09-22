@@ -1,1 +1,2 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
