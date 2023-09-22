@@ -1,1 +1,2 @@
-Everything will be just tickety-boo today.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
