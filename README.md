@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+Learn to pause -- or nothing worthwhile can catch up to you.
