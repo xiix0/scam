@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+You are as I am with You.
