@@ -1,1 +1,1 @@
-There is a fly on your nose.
+You are fairminded, just and loving.
