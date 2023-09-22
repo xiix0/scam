@@ -1,1 +1,1 @@
-You have no real enemies.
+Everything will be just tickety-boo today.
