@@ -1,1 +1,2 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
