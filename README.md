@@ -1,1 +1,2 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
