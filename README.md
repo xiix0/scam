@@ -1,1 +1,1 @@
-You work very hard.  Don't try to think as well.
+Day of inquiry.  You will be subpoenaed.
