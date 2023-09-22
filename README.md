@@ -1,2 +1,1 @@
-Q:	Why did the WASP cross the road?
-A:	To get to the middle.
+Things will be bright in P.M.  A cop will shine a light in your face.
