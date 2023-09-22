@@ -1,1 +1,1 @@
-Many pages make a thick book.
+Save energy: be apathetic.
