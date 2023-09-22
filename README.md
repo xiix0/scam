@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
