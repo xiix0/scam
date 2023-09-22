@@ -1,1 +1,1 @@
-Perfect day for scrubbing the floor and other exciting things.
+There is a fly on your nose.
