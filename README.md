@@ -1,2 +1,1 @@
-You're growing out of some of your problems, but there are others that
-you're growing into.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
