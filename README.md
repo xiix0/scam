@@ -1,2 +1,1 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Avoid gunfire in the bathroom tonight.
