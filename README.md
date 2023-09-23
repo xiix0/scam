@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+It was all so different before everything changed.
