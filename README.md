@@ -1,1 +1,3 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
