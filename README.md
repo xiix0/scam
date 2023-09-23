@@ -1,2 +1,1 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+Abandon the search for Truth; settle for a good fantasy.
