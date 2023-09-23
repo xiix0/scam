@@ -1,2 +1,1 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+Good day for a change of scene.  Repaper the bedroom wall.
