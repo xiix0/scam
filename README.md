@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+Many changes of mind and mood; do not hesitate too long.
