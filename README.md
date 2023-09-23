@@ -1,1 +1,2 @@
-You have a strong appeal for members of your own sex.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
