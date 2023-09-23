@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+You have a strong appeal for members of your own sex.
