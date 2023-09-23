@@ -1,1 +1,2 @@
-Bank error in your favor.  Collect $200.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
