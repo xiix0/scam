@@ -1,2 +1,3 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
