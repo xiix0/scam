@@ -1,1 +1,1 @@
-Your boyfriend takes chocolate from strangers.
+Your object is to save the world, while still leading a pleasant life.
