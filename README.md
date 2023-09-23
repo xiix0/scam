@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+Avert misunderstanding by calm, poise, and balance.
