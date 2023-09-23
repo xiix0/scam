@@ -1,2 +1,2 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
