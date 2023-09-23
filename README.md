@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+You will be awarded some great honor.
