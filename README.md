@@ -1,3 +1,5 @@
-It is by the fortune of God that, in this country, we have three benefits:
-freedom of speech, freedom of thought, and the wisdom never to use either.
-		-- Mark Twain
+Q:	Why is Poland just like the United States?
+A:	In the United States you can't buy anything for zlotys and in
+	Poland you can't either, while in the U.S. you can get whatever
+	you want for dollars, just as you can in Poland.
+		-- being told in Poland, 1987
