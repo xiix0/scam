@@ -1,2 +1,1 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+You have a will that can be influenced by all with whom you come in contact.
