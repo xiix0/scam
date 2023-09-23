@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+Is that really YOU that is reading this?
