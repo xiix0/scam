@@ -1,2 +1,1 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+Your business will go through a period of considerable expansion.
