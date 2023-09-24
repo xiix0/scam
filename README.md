@@ -1,2 +1,1 @@
-He that breaks a thing to find out what it is has left the path of wisdom.
-		-- J.R.R. Tolkien
+You have the power to influence all with whom you come in contact.
