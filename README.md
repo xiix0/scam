@@ -1,3 +1,3 @@
-Zounds!  I was never so bethumped with words
-since I first called my brother's father dad.
-		-- William Shakespeare, "Kind John"
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
