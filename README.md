@@ -1,1 +1,1 @@
-You've been leading a dog's life.  Stay off the furniture.
+Good day to deal with people in high places; particularly lonely stewardesses.
