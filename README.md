@@ -1,1 +1,2 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
