@@ -1,1 +1,2 @@
-Beware of a tall blond man with one black shoe.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
