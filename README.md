@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+Beware of a tall blond man with one black shoe.
