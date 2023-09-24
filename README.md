@@ -1,2 +1,1 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+Be cautious in your daily affairs.
