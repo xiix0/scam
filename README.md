@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Don't get to bragging.
