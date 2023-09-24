@@ -1,1 +1,1 @@
-You will contract a rare disease.
+You will be the victim of a bizarre joke.
