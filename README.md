@@ -1,2 +1,2 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
