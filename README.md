@@ -1,1 +1,2 @@
-You have an unusual understanding of the problems of human relationships.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
