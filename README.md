@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+Try to get all of your posthumous medals in advance.
