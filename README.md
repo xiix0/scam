@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
