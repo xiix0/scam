@@ -1,2 +1,3 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+Anyone who has had a bull by the tail knows five or six more things
+than someone who hasn't.
+		-- Mark Twain
