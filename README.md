@@ -1,2 +1,1 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+Stay away from flying saucers today.
