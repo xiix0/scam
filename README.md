@@ -1,1 +1,1 @@
-Are you making all this up as you go along?
+Bank error in your favor.  Collect $200.
