@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Be careful!  UGLY strikes 9 out of 10!
