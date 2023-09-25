@@ -1,2 +1,3 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
