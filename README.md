@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+You will be advanced socially, without any special effort on your part.
