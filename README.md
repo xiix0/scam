@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
