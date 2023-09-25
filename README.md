@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Lady Luck brings added income today.  Lady friend takes it away tonight.
