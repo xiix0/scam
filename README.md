@@ -1,3 +1,2 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
