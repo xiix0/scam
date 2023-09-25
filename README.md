@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Today is the tomorrow you worried about yesterday.
