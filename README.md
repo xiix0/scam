@@ -1,3 +1,1 @@
-Zounds!  I was never so bethumped with words
-since I first called my brother's father dad.
-		-- William Shakespeare, "Kind John"
+Beauty and harmony are as necessary to you as the very breath of life.
