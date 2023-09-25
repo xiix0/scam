@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
