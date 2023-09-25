@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+Someone whom you reject today, will reject you tomorrow.
