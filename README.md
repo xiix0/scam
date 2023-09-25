@@ -1,1 +1,1 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Give your very best today.  Heaven knows it's little enough.
