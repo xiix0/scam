@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+Live in a world of your own, but always welcome visitors.
