@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
