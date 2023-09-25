@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+Are you making all this up as you go along?
