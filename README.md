@@ -1,1 +1,2 @@
-You are magnetic in your bearing.
+What I tell you three times is true.
+		-- Lewis Carroll
