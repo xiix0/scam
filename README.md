@@ -1,1 +1,3 @@
-Don't look now, but the man in the moon is laughing at you.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
