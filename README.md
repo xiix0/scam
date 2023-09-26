@@ -1,2 +1,1 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Your heart is pure, and your mind clear, and your soul devout.
