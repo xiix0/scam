@@ -1,2 +1,2 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
