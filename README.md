@@ -1,1 +1,1 @@
-Don't let your mind wander -- it's too little to be let out alone.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
