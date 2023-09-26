@@ -1,1 +1,1 @@
-You will have long and healthy life.
+You like to form new friendships and make new acquaintances.
