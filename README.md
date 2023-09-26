@@ -1,1 +1,1 @@
-Bank error in your favor.  Collect $200.
+Chicken Little was right.
