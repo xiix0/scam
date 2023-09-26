@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+You'll feel much better once you've given up hope.
