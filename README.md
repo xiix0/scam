@@ -1,1 +1,2 @@
-Don't let your mind wander -- it's too little to be let out alone.
+Q:	What is the sound of one cat napping?
+A:	Mu.
