@@ -1,2 +1,3 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
+for you and me."
+		-- J. R. R. Tolkien
