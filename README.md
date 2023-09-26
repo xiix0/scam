@@ -1,1 +1,2 @@
-You like to form new friendships and make new acquaintances.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
