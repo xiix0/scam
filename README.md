@@ -1,2 +1,3 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+Q:	Why should you always serve a Southern Carolina football man
+	soup in a plate?
+A:	'Cause if you give him a bowl, he'll throw it away.
