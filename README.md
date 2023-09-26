@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+There is a 20% chance of tomorrow.
