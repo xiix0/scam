@@ -1,1 +1,1 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+Ships are safe in harbor, but they were never meant to stay there.
