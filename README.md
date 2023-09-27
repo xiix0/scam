@@ -1,1 +1,2 @@
-Think twice before speaking, but don't say "think think click click".
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
