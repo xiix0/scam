@@ -1,1 +1,2 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+Q:	How many marketing people does it take to change a light bulb?
+A:	I'll have to get back to you on that.
