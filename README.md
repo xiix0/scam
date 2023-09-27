@@ -1,1 +1,2 @@
-All the troubles you have will pass away very quickly.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
