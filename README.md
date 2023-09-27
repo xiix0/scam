@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+All the troubles you have will pass away very quickly.
