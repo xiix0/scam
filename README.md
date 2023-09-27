@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+Think twice before speaking, but don't say "think think click click".
