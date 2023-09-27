@@ -1,2 +1,1 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+Good day to let down old friends who need help.
