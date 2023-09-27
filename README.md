@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+You will always get the greatest recognition for the job you least like.
