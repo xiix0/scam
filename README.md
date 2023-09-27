@@ -1,2 +1,2 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
