@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+You will reach the highest possible point in your business or profession.
