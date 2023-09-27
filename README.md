@@ -1,2 +1,1 @@
-Big book, big bore.
-		-- Callimachus
+Your aim is high and to the right.
