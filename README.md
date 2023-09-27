@@ -1,1 +1,2 @@
-You love your home and want it to be beautiful.
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
