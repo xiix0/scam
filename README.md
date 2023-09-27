@@ -1,1 +1,2 @@
-Executive ability is prominent in your make-up.
+Big book, big bore.
+		-- Callimachus
