@@ -1,2 +1,1 @@
-If you tell the truth you don't have to remember anything.
-		-- Mark Twain
+Excellent day to have a rotten day.
