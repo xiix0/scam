@@ -1,2 +1,2 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+If you tell the truth you don't have to remember anything.
+		-- Mark Twain
