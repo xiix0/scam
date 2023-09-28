@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+You are deeply attached to your friends and acquaintances.
