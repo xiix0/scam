@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
