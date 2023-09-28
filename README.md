@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+Don't read everything you believe.
