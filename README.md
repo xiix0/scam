@@ -1,1 +1,2 @@
-You could live a better life, if you had a better mind and a better body.
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
