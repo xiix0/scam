@@ -1,8 +1,3 @@
-October.
-
-This is one of the peculiarly dangerous months to speculate in stocks in.
-
-The others are July, January, September, April, November, May, March, June,
-December, August, and February.
-
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
+A:	That's proprietary information.  Answer available from AT&T on payment
+	of license fee (binary only).
