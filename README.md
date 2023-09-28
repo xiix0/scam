@@ -1,3 +1,1 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+You could live a better life, if you had a better mind and a better body.
