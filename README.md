@@ -1,1 +1,2 @@
-Stay away from flying saucers today.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
