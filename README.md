@@ -1,2 +1,3 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
