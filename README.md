@@ -1,2 +1,1 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+Stay away from flying saucers today.
