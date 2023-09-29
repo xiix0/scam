@@ -1,1 +1,2 @@
-You are taking yourself far too seriously.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
