@@ -1,1 +1,2 @@
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
