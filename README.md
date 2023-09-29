@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+Your fly might be open (but don't check it just now).
