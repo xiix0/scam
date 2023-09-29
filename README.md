@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Of course you have a purpose -- to find a purpose.
