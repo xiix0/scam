@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+Avoid reality at all costs.
