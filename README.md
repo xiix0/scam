@@ -1,2 +1,2 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
