@@ -1,1 +1,2 @@
-Look afar and see the end from the beginning.
+All generalizations are false, including this one.
+		-- Mark Twain
