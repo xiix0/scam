@@ -1,1 +1,2 @@
-Make a wish, it might come true.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
