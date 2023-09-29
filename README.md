@@ -1,1 +1,2 @@
-Avoid reality at all costs.
+A is for Apple.
+		-- Hester Pryne
