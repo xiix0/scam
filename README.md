@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+Your nature demands love and your happiness depends on it.
