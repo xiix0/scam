@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+Beauty and harmony are as necessary to you as the very breath of life.
