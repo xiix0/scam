@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+You will become rich and famous unless you don't.
