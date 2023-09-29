@@ -1,1 +1,2 @@
-Reply hazy, ask again later.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
