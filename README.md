@@ -1,1 +1,1 @@
-Day of inquiry.  You will be subpoenaed.
+Love is in the offing.  Be affectionate to one who adores you.
