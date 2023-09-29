@@ -1,6 +1,8 @@
-Even the clearest and most perfect circumstantial evidence is likely to be at
-fault, after all, and therefore ought to be received with great caution.  Take
-the case of any pencil, sharpened by any woman; if you have witnesses, you will
-find she did it with a knife; but if you take simply the aspect of the pencil,
-you will say that she did it with her teeth.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Delores breezed along the surface of her life like a flat stone forever
+skipping along smooth water, rippling reality sporadically but oblivious
+to it consistently, until she finally lost momentum, sank, and due to an
+overdose of flouride as a child which caused her to suffer from chronic
+apathy, doomed herself to lie forever on the floor of her life as useless
+as an appendix and as lonely as a five-hundred pound barbell in a
+steroid-free fitness center.
+		-- Winning sentence, 1990 Bulwer-Lytton bad fiction contest.
