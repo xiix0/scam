@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+You learn to write as if to someone else because NEXT YEAR YOU WILL BE
+"SOMEONE ELSE."
