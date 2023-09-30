@@ -1,3 +1,3 @@
-Don't go around saying the world owes you a living.  The world owes you
-nothing.  It was here first.
-		-- Mark Twain
+Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
+A:	Easy.  It's because they can't figure out how to get the little
+	bottles into the typewriter.
