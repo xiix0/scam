@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
