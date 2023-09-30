@@ -1,1 +1,2 @@
-Excellent time to become a missing person.
+Q:	Are we not men?
+A:	We are Vaxen.
