@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Tuesday is the Wednesday of the rest of your life.
