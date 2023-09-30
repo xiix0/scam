@@ -1,1 +1,3 @@
-You could live a better life, if you had a better mind and a better body.
+Don't go around saying the world owes you a living.  The world owes you
+nothing.  It was here first.
+		-- Mark Twain
