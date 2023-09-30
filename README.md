@@ -1,1 +1,2 @@
-You will be advanced socially, without any special effort on your part.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
