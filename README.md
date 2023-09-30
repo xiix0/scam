@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+Your fly might be open (but don't check it just now).
