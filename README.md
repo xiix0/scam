@@ -1,1 +1,1 @@
-Are you making all this up as you go along?
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
