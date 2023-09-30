@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+Excellent time to become a missing person.
