@@ -1,1 +1,2 @@
-You will always get the greatest recognition for the job you least like.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
