@@ -1,2 +1,1 @@
-Fine day for friends.
-So-so day for you.
+You will be traveling and coming into a fortune.
