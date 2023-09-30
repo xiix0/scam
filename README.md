@@ -1,2 +1,2 @@
-Q:	What do agnostic, insomniac dyslexics do at night?
-A:	Stay awake and wonder if there's a dog.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
