@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+Don't worry so loud, your roommate can't think.
