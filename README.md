@@ -1,1 +1,2 @@
-Today is National Existential Ennui Awareness Day.
+Your goose is cooked.
+(Your current chick is burned up too!)
