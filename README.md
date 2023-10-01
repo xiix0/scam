@@ -1,2 +1,3 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+Habit is habit, and not to be flung out of the window by any man, but coaxed
+down-stairs a step at a time.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar
