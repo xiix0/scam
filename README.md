@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+Cold hands, no gloves.
