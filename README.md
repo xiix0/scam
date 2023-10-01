@@ -1,3 +1,2 @@
-Q:	Know what the difference between your latest project
-	and putting wings on an elephant is?
-A:	Who knows?  The elephant *might* fly, heh, heh...
+You're growing out of some of your problems, but there are others that
+you're growing into.
