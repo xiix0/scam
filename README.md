@@ -1,1 +1,2 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
