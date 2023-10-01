@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Never reveal your best argument.
