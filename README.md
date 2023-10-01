@@ -1,1 +1,1 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+You will be reincarnated as a toad; and you will be much happier.
