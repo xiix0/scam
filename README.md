@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
