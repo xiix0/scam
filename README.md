@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+You will win success in whatever calling you adopt.
