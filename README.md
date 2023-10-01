@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+Do not sleep in a eucalyptus tree tonight.
