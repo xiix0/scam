@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+Good news from afar can bring you a welcome visitor.
