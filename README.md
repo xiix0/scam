@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+You're not my type.  For that matter, you're not even my species!!!
