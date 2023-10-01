@@ -1,1 +1,2 @@
-You are only young once, but you can stay immature indefinitely.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
