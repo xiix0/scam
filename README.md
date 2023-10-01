@@ -1,1 +1,2 @@
-Never reveal your best argument.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
