@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+You have a strong appeal for members of your own sex.
