@@ -1,1 +1,1 @@
-You are number 6!  Who is number one?
+Increased knowledge will help you now.  Have mate's phone bugged.
