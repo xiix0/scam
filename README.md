@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
