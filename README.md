@@ -1,1 +1,2 @@
-You never hesitate to tackle the most difficult problems.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
