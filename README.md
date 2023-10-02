@@ -1,3 +1,2 @@
-... A solemn, unsmiling, sanctimonious old iceberg who looked like he
-was waiting for a vacancy in the Trinity.
-		-- Mark Twain
+After all, all he did was string together a lot of old, well-known quotations.
+		-- H. L. Mencken, on Shakespeare
