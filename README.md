@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+You've been leading a dog's life.  Stay off the furniture.
