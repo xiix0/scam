@@ -1,1 +1,1 @@
-You will be honored for contributing your time and skill to a worthy cause.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
