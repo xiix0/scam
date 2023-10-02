@@ -1,3 +1,1 @@
-Q:	What looks like a cat, flies like a bat, brays like a donkey, and
-	plays like a monkey?
-A:	Nothing.
+You're definitely on their list.  The question to ask next is what list it is.
