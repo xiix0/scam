@@ -1,1 +1,1 @@
-You will pass away very quickly.
+You will not be elected to public office this year.
