@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+A vivid and creative mind characterizes you.
