@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+There is a 20% chance of tomorrow.
