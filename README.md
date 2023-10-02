@@ -1,2 +1,2 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
