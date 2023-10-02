@@ -1,2 +1,3 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+Q:	How many bureaucrats does it take to screw in a light bulb?
+A:	Two.  One to assure everyone that everything possible is being
+	done while the other screws the bulb into the water faucet.
