@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+You will be awarded a medal for disregarding safety in saving someone.
