@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+Stay away from flying saucers today.
