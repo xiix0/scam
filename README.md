@@ -1,1 +1,3 @@
-You will be advanced socially, without any special effort on your part.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
