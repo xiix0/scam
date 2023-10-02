@@ -1,2 +1,2 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
