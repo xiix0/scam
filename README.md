@@ -1,2 +1,1 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+Expect the worst, it's the least you can do.
