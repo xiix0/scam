@@ -1,1 +1,2 @@
-You will be awarded a medal for disregarding safety in saving someone.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
