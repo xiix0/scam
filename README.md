@@ -1,2 +1,1 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+You never know how many friends you have until you rent a house on the beach.
