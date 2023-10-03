@@ -1,5 +1,2 @@
-Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
-sword wielding purple fish glued to Harley-Davidson motorcycles.
-
-Oh, and have a nice day!
-		-- Bryce Nesbitt '84
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
