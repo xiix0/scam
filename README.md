@@ -1,2 +1,1 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
