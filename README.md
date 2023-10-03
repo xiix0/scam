@@ -1,1 +1,2 @@
-Excellent day to have a rotten day.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
