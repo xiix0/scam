@@ -1,2 +1,3 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
