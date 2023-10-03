@@ -1,1 +1,1 @@
-You will be audited by the Internal Revenue Service.
+You possess a mind not merely twisted, but actually sprained.
