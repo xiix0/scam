@@ -1,5 +1,5 @@
-Q:	What do you call a blind pre-historic animal?
-A:	Diyathinkhesaurus.
+Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
+sword wielding purple fish glued to Harley-Davidson motorcycles.
 
-Q:	What do you call a blind pre-historic animal with a dog?
-A:	Diyathinkhesaurus Rex.
+Oh, and have a nice day!
+		-- Bryce Nesbitt '84
