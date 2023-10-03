@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+Be cautious in your daily affairs.
