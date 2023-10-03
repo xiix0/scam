@@ -1,3 +1,3 @@
-ROMEO:		Courage, man; the hurt cannot be much.
-MERCUTIO:	No, 'tis not so deep as a well, nor so wide
-			as a church-door; but 'tis enough, 'twill serve.
+If you pick up a starving dog and make him prosperous, he will not bite you.
+This is the principal difference between a dog and a man.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
