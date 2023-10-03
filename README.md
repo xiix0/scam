@@ -1,2 +1,2 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
