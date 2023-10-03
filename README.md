@@ -1,2 +1,3 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
