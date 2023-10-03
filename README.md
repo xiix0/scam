@@ -1,1 +1,2 @@
-Be cautious in your daily affairs.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
