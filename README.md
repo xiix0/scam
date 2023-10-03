@@ -1,1 +1,2 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
