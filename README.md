@@ -1,1 +1,2 @@
-You will be married within a year, and divorced within two.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
