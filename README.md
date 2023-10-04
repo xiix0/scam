@@ -1,1 +1,1 @@
-Long life is in store for you.
+Increased knowledge will help you now.  Have mate's phone bugged.
