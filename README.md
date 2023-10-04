@@ -1,1 +1,2 @@
-You will win success in whatever calling you adopt.
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
