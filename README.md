@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+Change your thoughts and you change your world.
