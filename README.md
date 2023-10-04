@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+Life is to you a dashing and bold adventure.
