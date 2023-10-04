@@ -1,2 +1,2 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
