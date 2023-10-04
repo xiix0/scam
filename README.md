@@ -1,1 +1,3 @@
-Best of all is never to have been born.  Second best is to die soon.
+It is by the fortune of God that, in this country, we have three benefits:
+freedom of speech, freedom of thought, and the wisdom never to use either.
+		-- Mark Twain
