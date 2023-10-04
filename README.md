@@ -1,1 +1,2 @@
-Of course you have a purpose -- to find a purpose.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
