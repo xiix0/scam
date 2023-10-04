@@ -1,1 +1,2 @@
-You will probably marry after a very brief courtship.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
