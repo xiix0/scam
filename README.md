@@ -1,1 +1,1 @@
-Your object is to save the world, while still leading a pleasant life.
+Chicken Little only has to be right once.
