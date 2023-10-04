@@ -1,2 +1,1 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
