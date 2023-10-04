@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+An avocado-tone refrigerator would look good on your resume.
