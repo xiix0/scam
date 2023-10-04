@@ -1,1 +1,1 @@
-An exotic journey in downtown Newark is in your future.
+Of course you have a purpose -- to find a purpose.
