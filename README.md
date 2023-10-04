@@ -1,2 +1,3 @@
-The very ink with which all history is written is merely fluid prejudice.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
 		-- Mark Twain
