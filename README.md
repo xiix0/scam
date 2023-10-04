@@ -1,2 +1,1 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+Day of inquiry.  You will be subpoenaed.
