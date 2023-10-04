@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Something's rotten in the state of Denmark.
+		-- Shakespeare
