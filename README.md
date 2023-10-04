@@ -1,2 +1,2 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
