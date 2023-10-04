@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+Best of all is never to have been born.  Second best is to die soon.
