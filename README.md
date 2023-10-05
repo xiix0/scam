@@ -1,3 +1,2 @@
-ROMEO:		Courage, man; the hurt cannot be much.
-MERCUTIO:	No, 'tis not so deep as a well, nor so wide
-			as a church-door; but 'tis enough, 'twill serve.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
