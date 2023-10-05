@@ -1,1 +1,2 @@
-The time is right to make new friends.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
