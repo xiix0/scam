@@ -1,1 +1,1 @@
-What happened last night can happen again.
+Think twice before speaking, but don't say "think think click click".
