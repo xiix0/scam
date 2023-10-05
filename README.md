@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Save energy: be apathetic.
