@@ -1,1 +1,2 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
