@@ -1,2 +1,3 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
