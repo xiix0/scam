@@ -1,2 +1,2 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
