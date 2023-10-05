@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
-A:	Chicken Teriyaki.
-Q:	What is the name of the world's oldest kamikaze pilot?
+He is now rising from affluence to poverty.
+		-- Mark Twain
