@@ -1,2 +1,2 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+Q:	Are we not men?
+A:	We are Vaxen.
