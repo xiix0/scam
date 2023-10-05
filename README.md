@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+You seek to shield those you love and you like the role of the provider.
