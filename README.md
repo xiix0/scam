@@ -1,1 +1,2 @@
-You have the power to influence all with whom you come in contact.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
