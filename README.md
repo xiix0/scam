@@ -1,1 +1,3 @@
-You have many friends and very few living enemies.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
