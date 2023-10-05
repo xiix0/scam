@@ -1,2 +1,2 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
