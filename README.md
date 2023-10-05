@@ -1,2 +1,2 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
