@@ -1,2 +1,1 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
