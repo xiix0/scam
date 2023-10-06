@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+You get along very well with everyone except animals and people.
