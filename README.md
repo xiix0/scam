@@ -1,1 +1,2 @@
-It was all so different before everything changed.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
