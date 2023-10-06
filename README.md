@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+You will be married within a year, and divorced within two.
