@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+Fine day to work off excess energy.  Steal something heavy.
