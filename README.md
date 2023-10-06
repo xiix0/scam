@@ -1,1 +1,3 @@
-You are number 6!  Who is number one?
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
