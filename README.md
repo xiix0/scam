@@ -1,1 +1,2 @@
-A gift of a flower will soon be made to you.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
