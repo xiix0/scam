@@ -1,2 +1,2 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
