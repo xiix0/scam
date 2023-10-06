@@ -1,2 +1,2 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
