@@ -1,1 +1,2 @@
-You are so boring that when I see you my feet go to sleep.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
