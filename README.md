@@ -1,1 +1,2 @@
-Fine day to work off excess energy.  Steal something heavy.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
