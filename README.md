@@ -1,1 +1,1 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
