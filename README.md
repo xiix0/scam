@@ -1,1 +1,1 @@
-Be different: conform.
+You will have good luck and overcome many hardships.
