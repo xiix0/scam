@@ -1,2 +1,1 @@
-You are wise, witty, and wonderful, but you spend too much time reading
-this sort of trash.
+You single-handedly fought your way into this hopeless mess.
