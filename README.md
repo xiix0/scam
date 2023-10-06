@@ -1,1 +1,2 @@
-You're a card which will have to be dealt with.
+All generalizations are false, including this one.
+		-- Mark Twain
