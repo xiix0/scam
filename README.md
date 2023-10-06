@@ -1,1 +1,2 @@
-You will have good luck and overcome many hardships.
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
