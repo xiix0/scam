@@ -1,2 +1,1 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+Beware of a tall blond man with one black shoe.
