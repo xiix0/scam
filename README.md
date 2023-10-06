@@ -1,2 +1,3 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
+A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
+Q:	Who were the Democratic presidential candidates?
