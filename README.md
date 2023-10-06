@@ -1,1 +1,1 @@
-You enjoy the company of other people.
+Your boss climbed the corporate ladder, wrong by wrong.
