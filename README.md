@@ -1,2 +1,2 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
