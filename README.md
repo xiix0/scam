@@ -1,1 +1,2 @@
-You will overcome the attacks of jealous associates.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
