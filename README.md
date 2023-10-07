@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+Future looks spotty.  You will spill soup in late evening.
