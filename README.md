@@ -1,1 +1,2 @@
-You will gain money by a fattening action.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
