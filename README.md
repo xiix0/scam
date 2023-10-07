@@ -1,1 +1,2 @@
-You will be the last person to buy a Chrysler.
+You'll wish that you had done some of the hard things when they were easier
+to do.
