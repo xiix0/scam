@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+If you can read this, you're too close.
