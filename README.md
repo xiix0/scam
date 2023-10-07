@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
