@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+Tuesday After Lunch is the cosmic time of the week.
