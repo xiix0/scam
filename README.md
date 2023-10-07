@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+You are so boring that when I see you my feet go to sleep.
