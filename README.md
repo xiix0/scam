@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
