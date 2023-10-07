@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Everything that you know is wrong, but you can be straightened out.
