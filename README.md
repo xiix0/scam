@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+Your reasoning powers are good, and you are a fairly good planner.
