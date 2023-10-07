@@ -1,2 +1,2 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
