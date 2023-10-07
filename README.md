@@ -1,1 +1,2 @@
-Your reasoning powers are good, and you are a fairly good planner.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
