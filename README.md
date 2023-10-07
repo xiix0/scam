@@ -1,2 +1,2 @@
-He is now rising from affluence to poverty.
+Water, taken in moderation cannot hurt anybody.
 		-- Mark Twain
