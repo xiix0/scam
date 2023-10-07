@@ -1,3 +1,2 @@
-It has long been an axiom of mine that the little things are infinitely
-the most important.
-		-- Sir Arthur Conan Doyle, "A Case of Identity"
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
