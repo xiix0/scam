@@ -1,2 +1,1 @@
-Always the dullness of the fool is the whetstone of the wits.
-		-- William Shakespeare, "As You Like It"
+This life is yours.  Some of it was given to you; the rest, you made yourself.
