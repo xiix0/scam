@@ -1,1 +1,2 @@
-You will experience a strong urge to do good; but it will pass.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
