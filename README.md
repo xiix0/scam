@@ -1,2 +1,5 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
+
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
