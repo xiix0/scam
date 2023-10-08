@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+You are magnetic in your bearing.
