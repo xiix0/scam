@@ -1,2 +1,2 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
