@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+Look afar and see the end from the beginning.
