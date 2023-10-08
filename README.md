@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Your own qualities will help prevent your advancement in the world.
