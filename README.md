@@ -1,1 +1,3 @@
-Your object is to save the world, while still leading a pleasant life.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
+A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
+Q:	Who were the Democratic presidential candidates?
