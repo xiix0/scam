@@ -1,1 +1,2 @@
-If you sow your wild oats, hope for a crop failure.
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
