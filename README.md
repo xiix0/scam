@@ -1,2 +1,2 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
