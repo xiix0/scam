@@ -1,1 +1,2 @@
-You will be the last person to buy a Chrysler.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
