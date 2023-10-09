@@ -1,1 +1,2 @@
-Stay away from hurricanes for a while.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
