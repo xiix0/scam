@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+The time is right to make new friends.
