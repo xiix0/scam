@@ -1,2 +1,2 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
