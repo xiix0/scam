@@ -1,2 +1,2 @@
-Q:	Why do WASPs play golf ?
-A:	So they can dress like pimps.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
