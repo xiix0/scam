@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+Among the lucky, you are the chosen one.
