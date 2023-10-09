@@ -1,1 +1,1 @@
-You will pass away very quickly.
+Someone is speaking well of you.
