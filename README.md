@@ -1,1 +1,2 @@
-Never reveal your best argument.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
