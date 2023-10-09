@@ -1,1 +1,5 @@
-You could live a better life, if you had a better mind and a better body.
+Q:	What do monsters eat?
+A:	Things.
+
+Q:	What do monsters drink?
+A:	Coke.  (Because Things go better with Coke.)
