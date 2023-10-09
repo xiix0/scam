@@ -1,2 +1,2 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
