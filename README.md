@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
