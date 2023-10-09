@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+A tall, dark stranger will have more fun than you.
