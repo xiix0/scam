@@ -1,1 +1,2 @@
-You will have long and healthy life.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
