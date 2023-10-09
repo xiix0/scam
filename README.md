@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+You'd like to do it instantaneously, but that's too slow.
