@@ -1,2 +1,1 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+This life is yours.  Some of it was given to you; the rest, you made yourself.
