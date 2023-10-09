@@ -1,1 +1,2 @@
-Are you sure the back door is locked?
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
