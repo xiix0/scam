@@ -1,1 +1,2 @@
-You teach best what you most need to learn.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
