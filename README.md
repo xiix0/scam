@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
