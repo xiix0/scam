@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
