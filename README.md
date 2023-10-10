@@ -1,2 +1,2 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
