@@ -1,1 +1,2 @@
-Expect the worst, it's the least you can do.
+Fine day for friends.
+So-so day for you.
