@@ -1,1 +1,3 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Questionable day.
+
+Ask somebody something.
