@@ -1,2 +1,2 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+Q:	What is purple and commutes?
+A:	An Abelian grape.
