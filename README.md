@@ -1,3 +1,2 @@
-Have a place for everything and keep the thing somewhere else; this is not
-advice, it is merely custom.
-		-- Mark Twain
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
