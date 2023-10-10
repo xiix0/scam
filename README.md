@@ -1,1 +1,1 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+Expect the worst, it's the least you can do.
