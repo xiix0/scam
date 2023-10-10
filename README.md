@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+Good news from afar can bring you a welcome visitor.
