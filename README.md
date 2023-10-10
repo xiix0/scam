@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
