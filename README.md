@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+Your own qualities will help prevent your advancement in the world.
