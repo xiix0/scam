@@ -1,3 +1,1 @@
-In a museum in Havana, there are two skulls of Christopher Columbus,
-"one when he was a boy and one when he was a man."
-		-- Mark Twain
+Your mode of life will be changed for the better because of good news soon.
