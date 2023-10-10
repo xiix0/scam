@@ -1,1 +1,2 @@
-Someone is speaking well of you.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
