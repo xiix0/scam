@@ -1,1 +1,3 @@
-Your business will go through a period of considerable expansion.
+In a museum in Havana, there are two skulls of Christopher Columbus,
+"one when he was a boy and one when he was a man."
+		-- Mark Twain
