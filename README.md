@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+You are confused; but this is your normal state.
