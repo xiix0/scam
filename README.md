@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
