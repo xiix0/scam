@@ -1,1 +1,5 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Knucklehead:	"Knock, knock"
+Pee Wee:	"Who's there?"
+Knucklehead:	"Little ol' lady."
+Pee Wee:	"Liddle ol' lady who?"
+Knucklehead:	"I didn't know you could yodel"
