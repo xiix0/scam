@@ -1,1 +1,3 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
