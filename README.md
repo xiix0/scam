@@ -1,5 +1,1 @@
-Q:	Why did the chicken cross the road?
-A:	To see his friend Gregory peck.
-
-Q:	Why did the chicken cross the playground?
-A:	To get to the other slide.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
