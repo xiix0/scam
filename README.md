@@ -1,2 +1,3 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
