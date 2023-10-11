@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+Your depth of comprehension may tend to make you lax in worldly ways.
