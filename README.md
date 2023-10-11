@@ -1,2 +1,2 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
