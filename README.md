@@ -1,2 +1,2 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
