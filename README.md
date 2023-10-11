@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+Expect the worst, it's the least you can do.
