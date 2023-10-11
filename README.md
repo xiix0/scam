@@ -1,1 +1,2 @@
-Expect the worst, it's the least you can do.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
