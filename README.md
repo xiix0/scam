@@ -1,6 +1,5 @@
-Q:	What did Tarzan say when he saw the elephants coming over the hill?
-A:	"The elephants are coming over the hill."
-
-Q:	What did he say when saw them coming over the hill wearing
-		sunglasses?
-A:	Nothing, for he didn't recognize them.
+It is right that he too should have his little chronicle, his memories,
+his reason, and be able to recognize the good in the bad, the bad in the
+worst, and so grow gently old all down the unchanging days and die one
+day like any other day, only shorter.
+		-- Samuel Beckett, "Malone Dies"
