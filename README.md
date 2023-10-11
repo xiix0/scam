@@ -1,3 +1,4 @@
-A classic is something that everyone wants to have read
-and nobody wants to read.
-		-- Mark Twain, "The Disappearance of Literature"
+Whoever has lived long enough to find out what life is, knows how deep a debt
+of gratitude we owe to Adam, the first great benefactor of our race.  He
+brought death into the world.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
