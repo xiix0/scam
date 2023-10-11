@@ -1,1 +1,3 @@
-You are a fluke of the universe; you have no right to be here.
+A classic is something that everyone wants to have read
+and nobody wants to read.
+		-- Mark Twain, "The Disappearance of Literature"
