@@ -1,2 +1,1 @@
-Q:	How many marketing people does it take to change a light bulb?
-A:	I'll have to get back to you on that.
+Don't let your mind wander -- it's too little to be let out alone.
