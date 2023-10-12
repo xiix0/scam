@@ -1,1 +1,1 @@
-You will contract a rare disease.
+Be cautious in your daily affairs.
