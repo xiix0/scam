@@ -1,1 +1,2 @@
-You enjoy the company of other people.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
