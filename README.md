@@ -1,5 +1,3 @@
-Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
-sword wielding purple fish glued to Harley-Davidson motorcycles.
-
-Oh, and have a nice day!
-		-- Bryce Nesbitt '84
+Don't go around saying the world owes you a living.  The world owes you
+nothing.  It was here first.
+		-- Mark Twain
