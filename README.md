@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You're at the end of the road again.
