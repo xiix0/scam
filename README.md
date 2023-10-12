@@ -1,2 +1,2 @@
-Q:	What is the difference between Texas and yogurt?
-A:	Yogurt has culture.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
