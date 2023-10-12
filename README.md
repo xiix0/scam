@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
