@@ -1,2 +1,3 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+In a museum in Havana, there are two skulls of Christopher Columbus,
+"one when he was a boy and one when he was a man."
+		-- Mark Twain
