@@ -1,3 +1,2 @@
-Soap and education are not as sudden as a massacre, but they are more
-deadly in the long run.
-		-- Mark Twain
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
