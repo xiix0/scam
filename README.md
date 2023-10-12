@@ -1,1 +1,2 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+Just because the message may never be received does not mean it is
+not worth sending.
