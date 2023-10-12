@@ -1,1 +1,1 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
