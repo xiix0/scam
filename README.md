@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+Beware of a tall black man with one blond shoe.
