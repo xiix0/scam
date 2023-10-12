@@ -1,3 +1,1 @@
-Q:	What do you call the scratches that you get when a female
-	sheep bites you?
-A:	Ewe nicks.
+You are so boring that when I see you my feet go to sleep.
