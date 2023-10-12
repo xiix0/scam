@@ -1,1 +1,1 @@
-You will wish you hadn't.
+You will overcome the attacks of jealous associates.
