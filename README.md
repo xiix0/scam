@@ -1,1 +1,2 @@
-You will be run over by a bus.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
