@@ -1,3 +1,3 @@
-Don't go around saying the world owes you a living.  The world owes you
-nothing.  It was here first.
-		-- Mark Twain
+Q:	What do you call a WASP who doesn't work for his father, isn't a
+	lawyer, and believes in social causes?
+A:	A failure.
