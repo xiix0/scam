@@ -1,1 +1,1 @@
-Beware of a tall black man with one blond shoe.
+This will be a memorable month -- no matter how hard you try to forget it.
