@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+You'll feel much better once you've given up hope.
