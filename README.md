@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+You are so boring that when I see you my feet go to sleep.
