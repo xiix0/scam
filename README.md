@@ -1,1 +1,1 @@
-You're at the end of the road again.
+Change your thoughts and you change your world.
