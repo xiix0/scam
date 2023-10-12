@@ -1,1 +1,1 @@
-You have a strong appeal for members of your own sex.
+Don't go surfing in South Dakota for a while.
