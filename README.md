@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Your aims are high, and you are capable of much.
