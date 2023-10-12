@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+Excellent time to become a missing person.
