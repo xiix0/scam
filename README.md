@@ -1,1 +1,1 @@
-You enjoy the company of other people.
+You have an unusual equipment for success.  Be sure to use it properly.
