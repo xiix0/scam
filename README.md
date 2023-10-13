@@ -1,2 +1,2 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+Q:	What is the sound of one cat napping?
+A:	Mu.
