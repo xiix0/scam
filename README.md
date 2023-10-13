@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+Keep it short for pithy sake.
