@@ -1,2 +1,2 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+You are destined to become the commandant of the fighting men of the
+department of transportation.
