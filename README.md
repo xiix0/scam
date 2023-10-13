@@ -1,2 +1,1 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+You feel a whole lot more like you do now than you did when you used to.
