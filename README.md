@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
