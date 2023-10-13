@@ -1,1 +1,2 @@
-If you can read this, you're too close.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
