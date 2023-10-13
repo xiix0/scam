@@ -1,1 +1,2 @@
-Don't kiss an elephant on the lips today.
+Your goose is cooked.
+(Your current chick is burned up too!)
