@@ -1,2 +1,2 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
