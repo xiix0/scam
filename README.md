@@ -1,1 +1,1 @@
-Chicken Little was right.
+Another good night not to sleep in a eucalyptus tree.
