@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
