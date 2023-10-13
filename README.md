@@ -1,1 +1,2 @@
-You like to form new friendships and make new acquaintances.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
