@@ -1,1 +1,1 @@
-You will be successful in love.
+If you can read this, you're too close.
