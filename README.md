@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+You will outgrow your usefulness.
