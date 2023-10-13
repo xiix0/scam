@@ -1,1 +1,2 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
