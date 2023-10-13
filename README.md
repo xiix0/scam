@@ -1,1 +1,3 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
