@@ -1,4 +1,2 @@
-F.S. Fitzgerald to Hemingway:
-	"Ernest, the rich are different from us."
-Hemingway:
-	"Yes.  They have more money."
+You will pay for your sins.  If you have already paid, please disregard
+this message.
