@@ -1,1 +1,2 @@
-You're not my type.  For that matter, you're not even my species!!!
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
