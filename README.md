@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
