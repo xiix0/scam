@@ -1,1 +1,2 @@
-You will triumph over your enemy.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
