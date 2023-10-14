@@ -1,1 +1,3 @@
-Your present plans will be successful.
+Someone is speaking well of you.
+
+How unusual!
