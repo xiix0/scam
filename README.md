@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+You display the wonderful traits of charm and courtesy.
