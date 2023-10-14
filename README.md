@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Try to have as good a life as you can under the circumstances.
