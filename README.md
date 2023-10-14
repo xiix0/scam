@@ -1,1 +1,2 @@
-You will forget that you ever knew me.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
