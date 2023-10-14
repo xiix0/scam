@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+You have a strong desire for a home and your family interests come first.
