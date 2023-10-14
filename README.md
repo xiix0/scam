@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+Your present plans will be successful.
