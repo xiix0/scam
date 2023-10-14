@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+You're not my type.  For that matter, you're not even my species!!!
