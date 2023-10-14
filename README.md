@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+Write yourself a threatening letter and pen a defiant reply.
