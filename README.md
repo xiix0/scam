@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
