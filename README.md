@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+You will triumph over your enemy.
