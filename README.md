@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+You will be called upon to help a friend in trouble.
