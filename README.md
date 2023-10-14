@@ -1,3 +1,2 @@
-A classic is something that everyone wants to have read
-and nobody wants to read.
-		-- Mark Twain, "The Disappearance of Literature"
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
