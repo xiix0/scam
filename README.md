@@ -1,1 +1,2 @@
-You will be called upon to help a friend in trouble.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
