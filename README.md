@@ -1,1 +1,1 @@
-You have a strong desire for a home and your family interests come first.
+Live in a world of your own, but always welcome visitors.
