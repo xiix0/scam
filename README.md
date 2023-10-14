@@ -1,1 +1,2 @@
-You will probably marry after a very brief courtship.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
