@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+Future looks spotty.  You will spill soup in late evening.
