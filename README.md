@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+You are the only person to ever get this message.
