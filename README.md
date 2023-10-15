@@ -1,2 +1,2 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
