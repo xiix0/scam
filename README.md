@@ -1,1 +1,2 @@
-Everything will be just tickety-boo today.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
