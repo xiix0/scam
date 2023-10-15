@@ -1,1 +1,1 @@
-You enjoy the company of other people.
+Your aim is high and to the right.
