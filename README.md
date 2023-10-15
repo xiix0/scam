@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+You love your home and want it to be beautiful.
