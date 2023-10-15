@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+Don't look now, but the man in the moon is laughing at you.
