@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+You will visit the Dung Pits of Glive soon.
