@@ -1,1 +1,2 @@
-An exotic journey in downtown Newark is in your future.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
