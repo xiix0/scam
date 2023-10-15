@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+Your aim is high and to the right.
