@@ -1,2 +1,2 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
