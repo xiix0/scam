@@ -1,3 +1,3 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
