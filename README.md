@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+Expect a letter from a friend who will ask a favor of you.
