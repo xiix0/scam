@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+If you sow your wild oats, hope for a crop failure.
