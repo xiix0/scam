@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Learn to pause -- or nothing worthwhile can catch up to you.
