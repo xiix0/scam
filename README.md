@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+You will probably marry after a very brief courtship.
