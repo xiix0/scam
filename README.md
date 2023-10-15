@@ -1,2 +1,1 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+What happened last night can happen again.
