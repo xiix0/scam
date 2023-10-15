@@ -1,1 +1,2 @@
-Future looks spotty.  You will spill soup in late evening.
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
