@@ -1,1 +1,3 @@
-You will inherit some money or a small piece of land.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
