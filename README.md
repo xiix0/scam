@@ -1,1 +1,2 @@
-If you sow your wild oats, hope for a crop failure.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
