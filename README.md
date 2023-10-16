@@ -1,2 +1,2 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
