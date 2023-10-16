@@ -1,2 +1,1 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
