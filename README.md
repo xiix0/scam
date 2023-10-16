@@ -1,1 +1,2 @@
-You're a card which will have to be dealt with.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
