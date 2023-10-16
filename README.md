@@ -1,1 +1,3 @@
-Your object is to save the world, while still leading a pleasant life.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
