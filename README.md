@@ -1,1 +1,2 @@
-Today is the first day of the rest of the mess.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
