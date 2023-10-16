@@ -1,2 +1,1 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+Try to have as good a life as you can under the circumstances.
