@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+You may get an opportunity for advancement today.  Watch it!
