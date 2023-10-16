@@ -1,13 +1,12 @@
-Courage is resistance to fear, mastery of fear--not absence of fear.  Except a
-creature be part coward it is not a compliment to say it is brave; it is merely
-a loose misapplication of the word.  Consider the flea!--incomparably the
-bravest of all the creatures of God, if ignorance of fear were courage.
-Whether you are asleep or awake he will attack you, caring nothing for the fact
-that in bulk and strength you are to him as are the massed armies of the earth
-to a sucking child; he lives both day and night and all days and nights in the
-very lap of peril and the immediate presence of death, and yet is no more
-afraid than is the man who walks the streets of a city that was threatened by
-an earthquake ten centuries before.  When we speak of Clive, Nelson, and Putnam
-as men who "didn't know what fear was," we ought always to add the flea--and
-put him at the head of the procession.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+The Least Successful Collector
+	Betsy Baker played a central role in the history of collecting.  She
+was employed as a servant in the house of John Warburton (1682-1759) who had
+amassed a fine collection of 58 first edition plays, including most of the
+works of Shakespeare.
+	One day Warburton returned home to find 55 of them charred beyond
+legibility.  Betsy had either burned them or used them as pie bottoms.  The
+remaining three folios are now in the British Museum.
+	The only comparable literary figure was the maid who in 1835 burned
+the manuscript of the first volume of Thomas Carlyle's "The Hisory of the
+French Revolution", thinking it was wastepaper.
+		-- Stephen Pile, "The Book of Heroic Failures"
