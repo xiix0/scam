@@ -1,2 +1,3 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
