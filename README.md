@@ -1,2 +1,4 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+Whoever has lived long enough to find out what life is, knows how deep a debt
+of gratitude we owe to Adam, the first great benefactor of our race.  He
+brought death into the world.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
