@@ -1,2 +1,2 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
