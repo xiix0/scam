@@ -1,2 +1,1 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+Today is the first day of the rest of the mess.
