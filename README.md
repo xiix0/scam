@@ -1,1 +1,1 @@
-You will outgrow your usefulness.
+You will contract a rare disease.
