@@ -1,3 +1,3 @@
-The only way to keep your health is to eat what you don't want, drink what
-you don't like, and do what you'd rather not.
-		-- Mark Twain
+Q:	What do you call a WASP who doesn't work for his father, isn't a
+	lawyer, and believes in social causes?
+A:	A failure.
