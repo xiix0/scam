@@ -1,1 +1,2 @@
-You will be run over by a beer truck.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
