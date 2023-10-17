@@ -1,1 +1,1 @@
-Bridge ahead.  Pay troll.
+You may be recognized soon.  Hide.
