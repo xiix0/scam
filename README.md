@@ -1,2 +1,2 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
