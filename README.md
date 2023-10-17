@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+You have an ambitious nature and may make a name for yourself.
