@@ -1,1 +1,2 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
