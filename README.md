@@ -1,3 +1,3 @@
-Q:	Why haven't you graduated yet?
-A:	Well, Dad, I could have finished years ago, but I wanted
-	my dissertation to rhyme.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
