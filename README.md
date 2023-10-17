@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+Artistic ventures highlighted.  Rob a museum.
