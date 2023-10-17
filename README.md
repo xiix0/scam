@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+Ships are safe in harbor, but they were never meant to stay there.
