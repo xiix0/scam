@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Q:	How many Marxists does it take to screw in a light bulb?
+A:	None:  The light bulb contains the seeds of its own revolution.
