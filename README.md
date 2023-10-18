@@ -1,2 +1,3 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+I must have a prodigious quantity of mind; it takes me as much as a
+week sometimes to make it up.
+		-- Mark Twain, "The Innocents Abroad"
