@@ -1,2 +1,2 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
