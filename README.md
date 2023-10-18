@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+You display the wonderful traits of charm and courtesy.
