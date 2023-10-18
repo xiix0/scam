@@ -1,1 +1,2 @@
-You display the wonderful traits of charm and courtesy.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
