@@ -1,1 +1,1 @@
-Are you making all this up as you go along?
+Your own qualities will help prevent your advancement in the world.
