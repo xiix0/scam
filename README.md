@@ -1,3 +1,2 @@
-When I reflect upon the number of disagreeable people who I know who have gone
-to a better world, I am moved to lead a different life.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
