@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+You will be run over by a beer truck.
