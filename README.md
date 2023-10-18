@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
