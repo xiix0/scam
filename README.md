@@ -1,1 +1,1 @@
-Are you a turtle?
+Increased knowledge will help you now.  Have mate's phone bugged.
