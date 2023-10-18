@@ -1,2 +1,1 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+After your lover has gone you will still have PEANUT BUTTER!
