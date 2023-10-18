@@ -1,2 +1,3 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+Grief can take care of itself; but to get the full value of a joy you must
+have somebody to divide it with.
 		-- Mark Twain
