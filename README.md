@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+Cheer Up!  Things are getting worse at a slower rate.
