@@ -1,2 +1,2 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+Q:	What's the difference between a duck and an elephant?
+A:	You can't get down off an elephant.
