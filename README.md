@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+Avert misunderstanding by calm, poise, and balance.
