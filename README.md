@@ -1,6 +1,6 @@
-The true Southern watermelon is a boon apart, and not to be mentioned with
-commoner things.  It is chief of the world's luxuries, king by the grace of God
-over all the fruits of the earth.  When one has tasted it, he knows what the
-angels eat.  It was not a Southern watermelon that Eve took; we know it because
-she repented.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+The bay-trees in our country are all wither'd
+And meteors fright the fixed stars of heaven;
+The pale-faced moon looks bloody on the earth
+And lean-look'd prophets whisper fearful change.
+These signs forerun the death or fall of kings.
+		-- Wm. Shakespeare, "Richard II"
