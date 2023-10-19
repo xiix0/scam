@@ -1,2 +1,1 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+You're definitely on their list.  The question to ask next is what list it is.
