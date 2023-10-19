@@ -1,1 +1,2 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
