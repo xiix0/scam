@@ -1,6 +1,1 @@
-The bay-trees in our country are all wither'd
-And meteors fright the fixed stars of heaven;
-The pale-faced moon looks bloody on the earth
-And lean-look'd prophets whisper fearful change.
-These signs forerun the death or fall of kings.
-		-- Wm. Shakespeare, "Richard II"
+It's lucky you're going so slowly, because you're going in the wrong direction.
