@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+A tall, dark stranger will have more fun than you.
