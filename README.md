@@ -1,2 +1,1 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+Don't you wish you had more energy... or less ambition?
