@@ -1,1 +1,1 @@
-Do not overtax your powers.
+You will be the last person to buy a Chrysler.
