@@ -1,3 +1,1 @@
-Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
-A:	Easy.  It's because they can't figure out how to get the little
-	bottles into the typewriter.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
