@@ -1,1 +1,2 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+Q:	What do you get when you cross a mobster with an international standard?
+A:	You get someone who makes you an offer that you can't understand!
