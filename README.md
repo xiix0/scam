@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+Be careful!  Is it classified?
