@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Future looks spotty.  You will spill soup in late evening.
