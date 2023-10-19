@@ -1,2 +1,3 @@
-I fell asleep reading a dull book, and I dreamt that I was reading on,
-so I woke up from sheer boredom.
+Don't go around saying the world owes you a living.  The world owes you
+nothing.  It was here first.
+		-- Mark Twain
