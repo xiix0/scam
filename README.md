@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+I fell asleep reading a dull book, and I dreamt that I was reading on,
+so I woke up from sheer boredom.
