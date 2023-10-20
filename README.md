@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+Domestic happiness and faithful friends.
