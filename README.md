@@ -1,2 +1,2 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
