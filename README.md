@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+Excellent time to become a missing person.
