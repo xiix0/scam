@@ -1,2 +1,2 @@
-There is always one thing to remember: writers are always selling somebody out.
-		-- Joan Didion, "Slouching Towards Bethlehem"
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
