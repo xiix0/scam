@@ -1,3 +1,2 @@
-Anyone who has had a bull by the tail knows five or six more things
-than someone who hasn't.
-		-- Mark Twain
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
