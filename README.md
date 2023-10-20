@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Among the lucky, you are the chosen one.
