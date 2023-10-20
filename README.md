@@ -1,2 +1,2 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
