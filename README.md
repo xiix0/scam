@@ -1,1 +1,1 @@
-You dialed 5483.
+It was all so different before everything changed.
