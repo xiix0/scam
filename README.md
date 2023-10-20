@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+Expect the worst, it's the least you can do.
