@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+You will receive a legacy which will place you above want.
