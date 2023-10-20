@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Cold hands, no gloves.
