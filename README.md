@@ -1,2 +1,3 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
