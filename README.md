@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+Learn to pause -- or nothing worthwhile can catch up to you.
