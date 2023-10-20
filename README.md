@@ -1,2 +1,1 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+Be careful!  UGLY strikes 9 out of 10!
