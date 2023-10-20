@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+You will become rich and famous unless you don't.
