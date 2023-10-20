@@ -1,1 +1,2 @@
-You are a bundle of energy, always on the go.
+The Public is merely a multiplied "me."
+		-- Mark Twain
