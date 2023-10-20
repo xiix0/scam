@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+Q:	What do you call a half-dozen Indians with Asian flu?
+A:	Six sick Sikhs (sic).
