@@ -1,3 +1,4 @@
-Q:	Why do people who live near Niagara Falls have flat foreheads?
-A:	Because every morning they wake up thinking "What *is* that noise?
-	Oh, right, *of course*!
+The holy passion of Friendship is of so sweet and steady and loyal and
+enduring a nature that it will last through a whole lifetime, if not asked to
+lend money.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
