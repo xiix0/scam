@@ -1,1 +1,2 @@
-Excellent time to become a missing person.
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
