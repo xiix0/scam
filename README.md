@@ -1,3 +1,2 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
