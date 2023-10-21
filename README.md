@@ -1,1 +1,3 @@
-Of course you have a purpose -- to find a purpose.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
