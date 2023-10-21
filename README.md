@@ -1,1 +1,2 @@
-You will be held hostage by a radical group.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
