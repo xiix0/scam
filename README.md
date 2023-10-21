@@ -1,2 +1,1 @@
-There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+You're almost as happy as you think you are.
