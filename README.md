@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+You teach best what you most need to learn.
