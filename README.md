@@ -1,1 +1,2 @@
-You will win success in whatever calling you adopt.
+Q:	Are we not men?
+A:	We are Vaxen.
