@@ -1,2 +1,1 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+Live in a world of your own, but always welcome visitors.
