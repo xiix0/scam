@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+An avocado-tone refrigerator would look good on your resume.
