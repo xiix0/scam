@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+Don't kiss an elephant on the lips today.
