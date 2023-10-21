@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+You will become rich and famous unless you don't.
