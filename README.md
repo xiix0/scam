@@ -1,3 +1,3 @@
-Q:	How many psychiatrists does it take to change a light bulb?
-A:	Only one, but it takes a long time, and the light bulb has
-	to really want to change.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
