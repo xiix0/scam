@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
