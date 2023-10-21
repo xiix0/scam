@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+You're at the end of the road again.
