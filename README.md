@@ -1,1 +1,3 @@
-You will be called upon to help a friend in trouble.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
