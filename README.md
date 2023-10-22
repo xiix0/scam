@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Look afar and see the end from the beginning.
