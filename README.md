@@ -1,1 +1,1 @@
-Just to have it is enough.
+There is a 20% chance of tomorrow.
