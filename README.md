@@ -1,1 +1,2 @@
-You're not my type.  For that matter, you're not even my species!!!
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
