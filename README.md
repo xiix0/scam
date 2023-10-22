@@ -1,1 +1,1 @@
-Are you a turtle?
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
