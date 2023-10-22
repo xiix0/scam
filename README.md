@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+Your temporary financial embarrassment will be relieved in a surprising manner.
