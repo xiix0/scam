@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+You need more time; and you probably always will.
