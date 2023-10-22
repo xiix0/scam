@@ -1,2 +1,1 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
