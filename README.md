@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+Your love life will be happy and harmonious.
