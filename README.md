@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+You will be called upon to help a friend in trouble.
