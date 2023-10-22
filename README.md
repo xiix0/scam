@@ -1,1 +1,2 @@
-Life is to you a dashing and bold adventure.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
