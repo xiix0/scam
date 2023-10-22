@@ -1,1 +1,1 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+Good news.  Ten weeks from Friday will be a pretty good day.
