@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+You have literary talent that you should take pains to develop.
