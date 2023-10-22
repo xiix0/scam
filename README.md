@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
