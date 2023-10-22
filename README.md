@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+Too much is just enough.
+		-- Mark Twain, on whiskey
