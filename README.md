@@ -1,2 +1,2 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
