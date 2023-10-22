@@ -1,1 +1,1 @@
-Don't read everything you believe.
+You will attract cultured and artistic people to your home.
