@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+You work very hard.  Don't try to think as well.
