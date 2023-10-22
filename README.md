@@ -1,1 +1,1 @@
-You will have a long and boring life.
+You now have Asian Flu.
