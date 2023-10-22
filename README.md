@@ -1,1 +1,2 @@
-Perfect day for scrubbing the floor and other exciting things.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
