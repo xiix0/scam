@@ -1,2 +1,1 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+It may or may not be worthwhile, but it still has to be done.
