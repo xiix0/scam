@@ -1,1 +1,2 @@
-Your object is to save the world, while still leading a pleasant life.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
