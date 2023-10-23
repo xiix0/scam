@@ -1,1 +1,2 @@
-You will wish you hadn't.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
