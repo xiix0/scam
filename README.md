@@ -1,2 +1,1 @@
-Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
-		-- Shakespeare
+You have a strong appeal for members of your own sex.
