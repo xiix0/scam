@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+Never commit yourself!  Let someone else commit you.
