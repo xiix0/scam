@@ -1,1 +1,1 @@
-Try to have as good a life as you can under the circumstances.
+You feel a whole lot more like you do now than you did when you used to.
