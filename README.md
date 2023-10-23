@@ -1,1 +1,2 @@
-You will contract a rare disease.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
