@@ -1,5 +1,4 @@
-We know all about the habits of the ant, we know all about the habits of the
-bee, but we know nothing at all about the habits of the oyster.  It seems
-almost certain that we have been choosing the wrong time for studying the
-oyster.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You mentioned your name as if I should recognize it, but beyond the
+obvious facts that you are a bachelor, a solicitor, a freemason, and
+an asthmatic, I know nothing whatever about you.
+		-- Sherlock Holmes, "The Norwood Builder"
