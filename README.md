@@ -1,1 +1,2 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
