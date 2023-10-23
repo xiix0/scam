@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+Try to have as good a life as you can under the circumstances.
