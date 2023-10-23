@@ -1,1 +1,5 @@
-Beware of a tall blond man with one black shoe.
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
