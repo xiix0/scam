@@ -1,1 +1,2 @@
-Accent on helpful side of your nature.  Drain the moat.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
