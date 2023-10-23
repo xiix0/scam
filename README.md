@@ -1,1 +1,2 @@
-Your nature demands love and your happiness depends on it.
+Too much is just enough.
+		-- Mark Twain, on whiskey
