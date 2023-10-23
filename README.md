@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+You will gain money by an immoral action.
