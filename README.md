@@ -1,5 +1,1 @@
-Knock, knock!
-	Who's there?
-Sam and Janet.
-	Sam and Janet who?
-Sam and Janet Evening...
+A visit to a strange place will bring fresh work.
