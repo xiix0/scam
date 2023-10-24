@@ -1,2 +1,1 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+An exotic journey in downtown Newark is in your future.
