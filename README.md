@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+Artistic ventures highlighted.  Rob a museum.
