@@ -1,1 +1,2 @@
-Tuesday is the Wednesday of the rest of your life.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
