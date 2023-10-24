@@ -1,2 +1,2 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
