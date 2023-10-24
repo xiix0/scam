@@ -1,3 +1,3 @@
-It is so very hard to be an
-on-your-own-take-care-of-yourself-because-there-is-no-one-else-to-do-it-for-you
-grown-up.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
+A:	Chicken Teriyaki.
+Q:	What is the name of the world's oldest kamikaze pilot?
