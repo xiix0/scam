@@ -1,1 +1,2 @@
-Beware the one behind you.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
