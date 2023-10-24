@@ -1,2 +1,1 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+Do not overtax your powers.
