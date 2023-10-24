@@ -1,1 +1,2 @@
-An exotic journey in downtown Newark is in your future.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
