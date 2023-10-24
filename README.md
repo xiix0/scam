@@ -1,2 +1,8 @@
-Q:	Why do mountain climbers rope themselves together?
-A:	To prevent the sensible ones from going home.
+To be or not to be.
+		-- Shakespeare
+To do is to be.
+		-- Nietzsche
+To be is to do.
+		-- Sartre
+Do be do be do.
+		-- Sinatra
