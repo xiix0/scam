@@ -1,2 +1,2 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
