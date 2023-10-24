@@ -1,3 +1,2 @@
-Q:	What do you call a WASP who doesn't work for his father, isn't a
-	lawyer, and believes in social causes?
-A:	A failure.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
