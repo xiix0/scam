@@ -1,2 +1,3 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
