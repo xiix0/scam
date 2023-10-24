@@ -1,1 +1,3 @@
-Keep it short for pithy sake.
+Q:	Why is it that the more accuracy you demand from an interpolation
+	function, the more expensive it becomes to compute?
+A:	That's the Law of Spline Demand.
