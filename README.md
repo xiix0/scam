@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Tuesday is the Wednesday of the rest of your life.
