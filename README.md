@@ -1,1 +1,1 @@
-You will step on the night soil of many countries.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
