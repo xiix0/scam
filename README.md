@@ -1,3 +1,5 @@
-Grief can take care of itself; but to get the full value of a joy you must
-have somebody to divide it with.
-		-- Mark Twain
+October 12, the Discovery.
+
+It was wonderful to find America, but it would have been more wonderful to miss
+it.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
