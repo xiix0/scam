@@ -1,2 +1,2 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
