@@ -1,1 +1,2 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
