@@ -1,1 +1,2 @@
-Don't go surfing in South Dakota for a while.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
