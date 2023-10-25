@@ -1,2 +1,1 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+Someone whom you reject today, will reject you tomorrow.
