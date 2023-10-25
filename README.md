@@ -1,2 +1,1 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+Good day to deal with people in high places; particularly lonely stewardesses.
