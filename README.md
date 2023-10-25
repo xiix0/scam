@@ -1,1 +1,3 @@
-Someone whom you reject today, will reject you tomorrow.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
