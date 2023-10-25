@@ -1,2 +1,1 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+You are sick, twisted and perverted.  I like that in a person.
