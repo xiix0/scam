@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
