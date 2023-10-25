@@ -1,2 +1,3 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
