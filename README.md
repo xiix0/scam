@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+Q:	What is purple and commutes?
+A:	An Abelian grape.
