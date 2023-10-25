@@ -1,2 +1,3 @@
-You have a reputation for being thoroughly reliable and trustworthy.
-A pity that it's totally undeserved.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
