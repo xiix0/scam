@@ -1,3 +1,2 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
