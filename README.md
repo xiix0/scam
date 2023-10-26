@@ -1,2 +1,2 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
