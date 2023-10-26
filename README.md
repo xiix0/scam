@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
