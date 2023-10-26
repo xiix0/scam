@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+Abandon the search for Truth; settle for a good fantasy.
