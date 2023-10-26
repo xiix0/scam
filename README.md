@@ -1,1 +1,2 @@
-You have the power to influence all with whom you come in contact.
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
