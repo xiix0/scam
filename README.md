@@ -1,3 +1,2 @@
-Q:	Know what the difference between your latest project
-	and putting wings on an elephant is?
-A:	Who knows?  The elephant *might* fly, heh, heh...
+Just because the message may never be received does not mean it is
+not worth sending.
