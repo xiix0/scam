@@ -1,2 +1,2 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
