@@ -1,1 +1,3 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
