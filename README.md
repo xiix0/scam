@@ -1,3 +1,2 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
+Truth is the most valuable thing we have -- so let us economize it.
 		-- Mark Twain
