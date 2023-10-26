@@ -1,2 +1,4 @@
-Q:	How many IBM CPU's does it take to do a logical right shift?
-A:	33.  1 to hold the bits and 32 to push the register.
+Q:	What's the difference between the 1950's and the 1980's?
+A:	In the 80's, a man walks into a drugstore and states loudly, "I'd
+	like some condoms," and then, leaning over the counter, whispers,
+	"and some cigarettes."
