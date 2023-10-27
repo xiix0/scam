@@ -1,2 +1,2 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
