@@ -1,2 +1,1 @@
-Fine day for friends.
-So-so day for you.
+Do nothing unless you must, and when you must act -- hesitate.
