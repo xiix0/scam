@@ -1,2 +1,2 @@
-Fine day for friends.
-So-so day for you.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
