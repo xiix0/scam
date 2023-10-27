@@ -1,1 +1,1 @@
-You will attract cultured and artistic people to your home.
+You will forget that you ever knew me.
