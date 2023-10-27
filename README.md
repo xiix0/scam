@@ -1,2 +1,1 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Do what comes naturally.  Seethe and fume and throw a tantrum.
