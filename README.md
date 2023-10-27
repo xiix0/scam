@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
