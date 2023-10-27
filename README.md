@@ -1,5 +1,3 @@
-Q:	What do you call a blind pre-historic animal?
-A:	Diyathinkhesaurus.
-
-Q:	What do you call a blind pre-historic animal with a dog?
-A:	Diyathinkhesaurus Rex.
+Training is everything.  The peach was once a bitter almond; cauliflower is
+nothing but cabbage with a college education.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
