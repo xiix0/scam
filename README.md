@@ -1,1 +1,2 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
