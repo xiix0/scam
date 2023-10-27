@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+You're at the end of the road again.
