@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
