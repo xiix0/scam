@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Tomorrow will be cancelled due to lack of interest.
