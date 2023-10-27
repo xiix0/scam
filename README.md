@@ -1,1 +1,3 @@
-Beware of a tall blond man with one black shoe.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
