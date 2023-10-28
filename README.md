@@ -1,1 +1,2 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
