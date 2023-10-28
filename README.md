@@ -1,1 +1,2 @@
-Perfect day for scrubbing the floor and other exciting things.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
