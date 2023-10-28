@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
