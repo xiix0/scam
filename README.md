@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+You will be singled out for promotion in your work.
