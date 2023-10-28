@@ -1,2 +1,2 @@
-Never laugh at live dragons.
-		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
