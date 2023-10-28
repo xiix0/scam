@@ -1,1 +1,2 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
