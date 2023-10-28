@@ -1,1 +1,1 @@
-Beware of Bigfoot!
+Break into jail and claim police brutality.
