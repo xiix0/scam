@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
