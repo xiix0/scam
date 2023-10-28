@@ -1,1 +1,1 @@
-You will attract cultured and artistic people to your home.
+Love is in the offing.  Be affectionate to one who adores you.
