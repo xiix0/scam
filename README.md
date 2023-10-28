@@ -1,1 +1,1 @@
-You will contract a rare disease.
+The time is right to make new friends.
