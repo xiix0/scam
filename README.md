@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Good news.  Ten weeks from Friday will be a pretty good day.
