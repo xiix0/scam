@@ -1,1 +1,1 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+You're working under a slight handicap.  You happen to be human.
