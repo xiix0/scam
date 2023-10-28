@@ -1,2 +1,2 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
