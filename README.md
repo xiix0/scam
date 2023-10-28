@@ -1,2 +1,1 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+You will soon meet a person who will play an important role in your life.
