@@ -1,1 +1,1 @@
-Chicken Little was right.
+You will be singled out for promotion in your work.
