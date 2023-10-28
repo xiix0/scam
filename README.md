@@ -1,2 +1,2 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
