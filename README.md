@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+You need more time; and you probably always will.
