@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Something's rotten in the state of Denmark.
+		-- Shakespeare
