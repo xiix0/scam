@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+You have an ambitious nature and may make a name for yourself.
