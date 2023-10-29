@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
