@@ -1,1 +1,1 @@
-A day for firm decisions!!!!!  Or is it?
+Your present plans will be successful.
