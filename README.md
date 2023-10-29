@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+A day for firm decisions!!!!!  Or is it?
