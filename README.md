@@ -1,1 +1,2 @@
-You will gain money by a fattening action.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
