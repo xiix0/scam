@@ -1,1 +1,2 @@
-Do nothing unless you must, and when you must act -- hesitate.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
