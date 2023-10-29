@@ -1,2 +1,1 @@
-Q:	Why do WASPs play golf ?
-A:	So they can dress like pimps.
+Do nothing unless you must, and when you must act -- hesitate.
