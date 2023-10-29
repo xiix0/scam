@@ -1,2 +1,2 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
