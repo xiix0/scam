@@ -1,3 +1,2 @@
-Questionable day.
-
-Ask somebody something.
+Wagner's music is better than it sounds.
+		-- Mark Twain
