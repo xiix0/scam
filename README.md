@@ -1,2 +1,2 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
