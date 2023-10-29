@@ -1,1 +1,2 @@
-After your lover has gone you will still have PEANUT BUTTER!
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
