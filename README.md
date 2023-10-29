@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
