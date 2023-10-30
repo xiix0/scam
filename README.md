@@ -1,2 +1,3 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
