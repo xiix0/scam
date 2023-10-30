@@ -1,2 +1,2 @@
-Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
-		-- Shakespeare
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
