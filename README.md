@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Q:	How do you keep a moron in suspense?
