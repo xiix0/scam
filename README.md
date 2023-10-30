@@ -1,2 +1,1 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Your boss climbed the corporate ladder, wrong by wrong.
