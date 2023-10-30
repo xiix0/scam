@@ -1,2 +1,1 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+Alimony and bribes will engage a large share of your wealth.
