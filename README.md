@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
