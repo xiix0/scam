@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+An avocado-tone refrigerator would look good on your resume.
