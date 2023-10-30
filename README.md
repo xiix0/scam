@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
