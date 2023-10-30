@@ -1,1 +1,2 @@
-Beware of a tall black man with one blond shoe.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
