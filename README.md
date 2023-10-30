@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+Truth will out this morning.  (Which may really mess things up.)
