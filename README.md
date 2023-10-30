@@ -1,2 +1,1 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+You single-handedly fought your way into this hopeless mess.
