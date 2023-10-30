@@ -1,3 +1,3 @@
-The difference between a Miracle and a Fact is exactly the difference
-between a mermaid and a seal.
+Grief can take care of itself; but to get the full value of a joy you must
+have somebody to divide it with.
 		-- Mark Twain
