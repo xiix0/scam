@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
