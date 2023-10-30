@@ -1,1 +1,1 @@
-You'd like to do it instantaneously, but that's too slow.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
