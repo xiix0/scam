@@ -1,3 +1,4 @@
-This is the first age that's paid much attention to the future, which is a
-little ironic since we may not have one.
-		-- Arthur Clarke
+	You will remember, Watson, how the dreadful business of the
+Abernetty family was first brought to my notice by the depth which the
+parsley had sunk into the butter upon a hot day.
+		-- Sherlock Holmes
