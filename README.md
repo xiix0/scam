@@ -1,2 +1,5 @@
-If you learn one useless thing every day, in a single year you'll learn
-365 useless things.
+Q:	Why do ducks have big flat feet?
+A:	To stamp out forest fires.
+
+Q:	Why do elephants have big flat feet?
+A:	To stamp out flaming ducks.
