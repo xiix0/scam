@@ -1,1 +1,1 @@
-Don't feed the bats tonight.
+You will not be elected to public office this year.
