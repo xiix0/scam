@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Look afar and see the end from the beginning.
