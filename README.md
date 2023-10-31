@@ -1,2 +1,3 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
