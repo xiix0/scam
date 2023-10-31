@@ -1,2 +1,1 @@
-"... all the modern inconveniences ..."
-		-- Mark Twain
+Your boss is a few sandwiches short of a picnic.
