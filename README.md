@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
