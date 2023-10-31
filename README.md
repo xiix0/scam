@@ -1,1 +1,3 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+It is often the case that the man who can't tell a lie thinks he is the best
+judge of one.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
