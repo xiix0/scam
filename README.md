@@ -1,1 +1,2 @@
-Look afar and see the end from the beginning.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
