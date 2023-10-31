@@ -1,1 +1,1 @@
-You will be honored for contributing your time and skill to a worthy cause.
+Your business will go through a period of considerable expansion.
