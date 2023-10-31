@@ -1,1 +1,2 @@
-You love your home and want it to be beautiful.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
