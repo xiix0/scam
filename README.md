@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+You're not my type.  For that matter, you're not even my species!!!
