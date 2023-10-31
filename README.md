@@ -1,1 +1,3 @@
-You have Egyptian flu: you're going to be a mummy.
+Q:	How do you play religious roulette?
+A:	You stand around in a circle and blaspheme and see who gets
+	struck by lightning first.
