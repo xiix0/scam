@@ -1,2 +1,6 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Q:	How do you shoot a blue elephant?
+A:	With a blue-elephant gun.
+
+Q:	How do you shoot a pink elephant?
+A:	Twist its trunk until it turns blue, then shoot it with
+	a blue-elephant gun.
