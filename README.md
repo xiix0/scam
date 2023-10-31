@@ -1,1 +1,2 @@
-You have literary talent that you should take pains to develop.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
