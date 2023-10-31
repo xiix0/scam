@@ -1,2 +1,5 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
