@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+Today is National Existential Ennui Awareness Day.
