@@ -1,1 +1,1 @@
-You will be run over by a bus.
+Everything will be just tickety-boo today.
