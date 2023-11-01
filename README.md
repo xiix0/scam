@@ -1,2 +1,3 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
