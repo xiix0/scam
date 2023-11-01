@@ -1,1 +1,1 @@
-You have a strong appeal for members of your own sex.
+Love is in the offing.  Be affectionate to one who adores you.
