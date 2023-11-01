@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+Don't feed the bats tonight.
