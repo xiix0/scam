@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+Your step will soil many countries.
