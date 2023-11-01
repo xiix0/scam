@@ -1,1 +1,1 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Someone whom you reject today, will reject you tomorrow.
