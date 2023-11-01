@@ -1,2 +1,4 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+In Marseilles they make half the toilet soap we consume in America, but
+the Marseillaise only have a vague theoretical idea of its use, which they
+have obtained from books of travel.
+		-- Mark Twain
