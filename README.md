@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
