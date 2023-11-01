@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+You recoil from the crude; you tend naturally toward the exquisite.
