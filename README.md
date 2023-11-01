@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+Generosity and perfection are your everlasting goals.
