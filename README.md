@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+You will live to see your grandchildren.
