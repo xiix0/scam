@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+You will be traveling and coming into a fortune.
