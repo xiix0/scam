@@ -1,3 +1,2 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
