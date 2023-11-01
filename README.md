@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+Never look up when dragons fly overhead.
