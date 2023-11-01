@@ -1,2 +1,1 @@
-When angry, count four; when very angry, swear.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Learn to pause -- or nothing worthwhile can catch up to you.
