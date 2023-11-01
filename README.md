@@ -1,2 +1,1 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+Look afar and see the end from the beginning.
