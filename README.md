@@ -1,1 +1,2 @@
-Your business will assume vast proportions.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
