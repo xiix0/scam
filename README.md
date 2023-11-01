@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+There was a phone call for you.
