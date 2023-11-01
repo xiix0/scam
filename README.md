@@ -1,1 +1,2 @@
-You will never know hunger.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
