@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+Ships are safe in harbor, but they were never meant to stay there.
