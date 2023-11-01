@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
