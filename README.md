@@ -1,1 +1,2 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
