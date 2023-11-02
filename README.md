@@ -1,2 +1,2 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
