@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
