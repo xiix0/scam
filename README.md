@@ -1,1 +1,2 @@
-Love is in the offing.  Be affectionate to one who adores you.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
