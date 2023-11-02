@@ -1,1 +1,1 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+Love is in the offing.  Be affectionate to one who adores you.
