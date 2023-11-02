@@ -1,1 +1,2 @@
-Artistic ventures highlighted.  Rob a museum.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
