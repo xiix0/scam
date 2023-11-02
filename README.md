@@ -1,1 +1,3 @@
-Your lover will never wish to leave you.
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
