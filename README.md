@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
