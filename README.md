@@ -1,2 +1,3 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
+A:	Chicken Teriyaki.
+Q:	What is the name of the world's oldest kamikaze pilot?
