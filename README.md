@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+You have the power to influence all with whom you come in contact.
