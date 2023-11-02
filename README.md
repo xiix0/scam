@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+Bridge ahead.  Pay troll.
