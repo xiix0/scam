@@ -1,2 +1,2 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
