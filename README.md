@@ -1,1 +1,2 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+Q:	What do Winnie the Pooh and John the Baptist have in common?
+A:	The same middle name.
