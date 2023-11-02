@@ -1,2 +1,1 @@
-Always the dullness of the fool is the whetstone of the wits.
-		-- William Shakespeare, "As You Like It"
+You have the capacity to learn from mistakes.  You'll learn a lot today.
