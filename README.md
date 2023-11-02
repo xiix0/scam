@@ -1,1 +1,2 @@
-You will be given a post of trust and responsibility.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
