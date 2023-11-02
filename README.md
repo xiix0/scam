@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+You will be a winner today.  Pick a fight with a four-year-old.
