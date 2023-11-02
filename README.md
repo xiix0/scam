@@ -1,1 +1,1 @@
-You'll be called to a post requiring ability in handling groups of people.
+You're almost as happy as you think you are.
