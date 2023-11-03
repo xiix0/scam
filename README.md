@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+Perfect day for scrubbing the floor and other exciting things.
