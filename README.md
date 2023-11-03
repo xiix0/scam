@@ -1,2 +1,3 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+Q:	How many bureaucrats does it take to screw in a light bulb?
+A:	Two.  One to assure everyone that everything possible is being
+	done while the other screws the bulb into the water faucet.
