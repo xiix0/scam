@@ -1,1 +1,2 @@
-You have a strong appeal for members of the opposite sex.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
