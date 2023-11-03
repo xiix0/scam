@@ -1,1 +1,2 @@
-You're not my type.  For that matter, you're not even my species!!!
+Q:	Are we not men?
+A:	We are Vaxen.
