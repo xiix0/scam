@@ -1,2 +1,1 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+It's lucky you're going so slowly, because you're going in the wrong direction.
