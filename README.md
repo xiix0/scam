@@ -1,1 +1,2 @@
-Tomorrow, you can be anywhere.
+I'll burn my books.
+		-- Christopher Marlowe
