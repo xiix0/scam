@@ -1,1 +1,2 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
