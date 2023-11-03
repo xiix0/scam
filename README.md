@@ -1,2 +1,1 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+Everything will be just tickety-boo today.
