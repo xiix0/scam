@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+You're not my type.  For that matter, you're not even my species!!!
