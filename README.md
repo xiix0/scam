@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+What happened last night can happen again.
