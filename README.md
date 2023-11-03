@@ -1,1 +1,1 @@
-What happened last night can happen again.
+Never commit yourself!  Let someone else commit you.
