@@ -1,2 +1,1 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Bank error in your favor.  Collect $200.
