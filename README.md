@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Never commit yourself!  Let someone else commit you.
