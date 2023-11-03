@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+You display the wonderful traits of charm and courtesy.
