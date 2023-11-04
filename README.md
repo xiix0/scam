@@ -1,2 +1,1 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
