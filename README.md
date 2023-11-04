@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+You are only young once, but you can stay immature indefinitely.
