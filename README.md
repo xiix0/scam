@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+You tread upon my patience.
+		-- William Shakespeare, "Henry IV"
