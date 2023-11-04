@@ -1,2 +1,1 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Tuesday is the Wednesday of the rest of your life.
