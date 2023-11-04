@@ -1,1 +1,3 @@
-You will not be elected to public office this year.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
