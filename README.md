@@ -1,2 +1,1 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+Don't let your mind wander -- it's too little to be let out alone.
