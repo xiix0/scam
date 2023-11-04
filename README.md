@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+You have an unusual understanding of the problems of human relationships.
