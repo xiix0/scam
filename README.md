@@ -1,2 +1,2 @@
-Patch griefs with proverbs.
-		-- William Shakespeare, "Much Ado About Nothing"
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
