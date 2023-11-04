@@ -1,1 +1,2 @@
-Tuesday is the Wednesday of the rest of your life.
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
