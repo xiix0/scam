@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
-A:	The Royal Canadian Mounted Police.
-Q:	What was the greatest achievement in taxidermy?
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
