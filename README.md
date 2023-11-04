@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
