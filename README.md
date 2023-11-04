@@ -1,2 +1,1 @@
-Patch griefs with proverbs.
-		-- William Shakespeare, "Much Ado About Nothing"
+You are taking yourself far too seriously.
