@@ -1,1 +1,2 @@
-You are only young once, but you can stay immature indefinitely.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
