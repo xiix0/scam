@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+You're currently going through a difficult transition period called "Life."
