@@ -1,2 +1,2 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
