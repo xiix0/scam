@@ -1,2 +1,2 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
