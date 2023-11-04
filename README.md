@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+A visit to a strange place will bring fresh work.
