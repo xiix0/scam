@@ -1,2 +1,3 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+In the Spring, I have counted 136 different kinds of weather inside of
+24 hours.
+		-- Mark Twain, on New England weather
