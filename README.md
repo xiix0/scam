@@ -1,2 +1,2 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
