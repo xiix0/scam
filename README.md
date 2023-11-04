@@ -1,2 +1,2 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
