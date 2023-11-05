@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
