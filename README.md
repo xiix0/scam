@@ -1,1 +1,1 @@
-Give your very best today.  Heaven knows it's little enough.
+Your reasoning powers are good, and you are a fairly good planner.
