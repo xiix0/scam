@@ -1,1 +1,1 @@
-Love is in the offing.  Be affectionate to one who adores you.
+You'll never be the man your mother was!
