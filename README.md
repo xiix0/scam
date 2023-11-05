@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Keep emotionally active.  Cater to your favorite neurosis.
