@@ -1,2 +1,1 @@
-As to the Adjective: when in doubt, strike it out.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Increased knowledge will help you now.  Have mate's phone bugged.
