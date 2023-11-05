@@ -1,1 +1,2 @@
-You plan things that you do not even attempt because of your extreme caution.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
