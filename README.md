@@ -1,1 +1,4 @@
-Expect the worst, it's the least you can do.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
