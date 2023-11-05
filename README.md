@@ -1,2 +1,1 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
