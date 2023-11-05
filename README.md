@@ -1,1 +1,2 @@
-You will always have good luck in your personal affairs.
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
