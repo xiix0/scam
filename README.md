@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+There is a 20% chance of tomorrow.
