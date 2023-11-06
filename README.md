@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
