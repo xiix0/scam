@@ -1,2 +1,1 @@
-question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+Your life would be very empty if you had nothing to regret.
