@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
