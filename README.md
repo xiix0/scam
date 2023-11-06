@@ -1,1 +1,3 @@
-You will be married within a year, and divorced within two.
+It is by the fortune of God that, in this country, we have three benefits:
+freedom of speech, freedom of thought, and the wisdom never to use either.
+		-- Mark Twain
