@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
