@@ -1,2 +1,1 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+If you sow your wild oats, hope for a crop failure.
