@@ -1,1 +1,2 @@
-Never look up when dragons fly overhead.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
