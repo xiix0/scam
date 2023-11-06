@@ -1,1 +1,2 @@
-You feel a whole lot more like you do now than you did when you used to.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
