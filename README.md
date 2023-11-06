@@ -1,2 +1,1 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+You are dishonest, but never to the point of hurting a friend.
