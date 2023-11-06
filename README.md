@@ -1,1 +1,4 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
