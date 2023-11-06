@@ -1,2 +1,1 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+Beauty and harmony are as necessary to you as the very breath of life.
