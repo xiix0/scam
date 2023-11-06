@@ -1,1 +1,2 @@
-You will reach the highest possible point in your business or profession.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
