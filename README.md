@@ -1,1 +1,1 @@
-You'd like to do it instantaneously, but that's too slow.
+Good day to let down old friends who need help.
