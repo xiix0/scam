@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+Your nature demands love and your happiness depends on it.
