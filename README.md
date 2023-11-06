@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+A gift of a flower will soon be made to you.
