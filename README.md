@@ -1,1 +1,1 @@
-Of course you have a purpose -- to find a purpose.
+It's all in the mind, ya know.
