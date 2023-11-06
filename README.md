@@ -1,1 +1,2 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+The Public is merely a multiplied "me."
+		-- Mark Twain
