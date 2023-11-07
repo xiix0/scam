@@ -1,1 +1,2 @@
-You're definitely on their list.  The question to ask next is what list it is.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
