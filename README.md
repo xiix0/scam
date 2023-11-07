@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
