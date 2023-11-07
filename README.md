@@ -1,1 +1,2 @@
-Your talents will be recognized and suitably rewarded.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
