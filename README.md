@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+You will have a long and unpleasant discussion with your supervisor.
