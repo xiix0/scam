@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Accent on helpful side of your nature.  Drain the moat.
