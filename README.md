@@ -1,1 +1,1 @@
-Give your very best today.  Heaven knows it's little enough.
+Increased knowledge will help you now.  Have mate's phone bugged.
