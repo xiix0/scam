@@ -1,1 +1,3 @@
-You have been selected for a secret mission.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
