@@ -1,1 +1,1 @@
-Don't you feel more like you do now than you did when you came in?
+Give your very best today.  Heaven knows it's little enough.
