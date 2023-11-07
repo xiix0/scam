@@ -1,1 +1,3 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+My only love sprung from my only hate!
+Too early seen unknown, and known too late!
+		-- William Shakespeare, "Romeo and Juliet"
