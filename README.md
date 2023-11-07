@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+You will be recognized and honored as a community leader.
