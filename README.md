@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+Let me put it this way: today is going to be a learning experience.
