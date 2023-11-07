@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+Tomorrow, you can be anywhere.
