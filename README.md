@@ -1,1 +1,2 @@
-There is a fly on your nose.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
