@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+You enjoy the company of other people.
