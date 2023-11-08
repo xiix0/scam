@@ -1,2 +1,2 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
