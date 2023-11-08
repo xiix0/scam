@@ -1,2 +1,3 @@
-Q:	How many college football players does it take to screw in a light bulb?
-A:	Only one, but he gets three credits for it.
+Consider well the proportions of things.  It is better to be a young June-bug
+than an old bird of paradise.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
