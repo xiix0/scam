@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+You will be aided greatly by a person whom you thought to be unimportant.
