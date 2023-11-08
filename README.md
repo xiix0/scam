@@ -1,2 +1,1 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+Don't look now, but there is a multi-legged creature on your shoulder.
