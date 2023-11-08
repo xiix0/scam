@@ -1,1 +1,2 @@
-Your present plans will be successful.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
