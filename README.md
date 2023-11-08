@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+Your society will be sought by people of taste and refinement.
