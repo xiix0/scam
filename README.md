@@ -1,1 +1,2 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+What I tell you three times is true.
+		-- Lewis Carroll
