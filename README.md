@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+You will have a long and boring life.
