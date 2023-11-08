@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
