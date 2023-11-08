@@ -1,1 +1,2 @@
-You are a very redundant person, that's what kind of person you are.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
