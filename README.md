@@ -1,1 +1,2 @@
-You will have a long and boring life.
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
