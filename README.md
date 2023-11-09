@@ -1,2 +1,1 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+Don't relax!  It's only your tension that's holding you together.
