@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+Today is the tomorrow you worried about yesterday.
