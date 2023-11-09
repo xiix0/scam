@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
