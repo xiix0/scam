@@ -1,2 +1,1 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+Best of all is never to have been born.  Second best is to die soon.
