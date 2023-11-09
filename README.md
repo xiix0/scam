@@ -1,1 +1,3 @@
-Caution: Keep out of reach of children.
+Questionable day.
+
+Ask somebody something.
