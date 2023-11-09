@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+Q:	How do you keep a moron in suspense?
