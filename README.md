@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+You will hear good news from one you thought unfriendly to you.
