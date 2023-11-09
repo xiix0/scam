@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+A tall, dark stranger will have more fun than you.
