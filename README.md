@@ -1,3 +1,2 @@
-In the Spring, I have counted 136 different kinds of weather inside of
-24 hours.
-		-- Mark Twain, on New England weather
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
