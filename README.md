@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
