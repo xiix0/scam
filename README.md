@@ -1,2 +1,2 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
