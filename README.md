@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+Your sister swims out to meet troop ships.
