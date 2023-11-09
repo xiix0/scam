@@ -1,2 +1,1 @@
-English literature's performing flea.
-		-- Sean O'Casey on P. G. Wodehouse
+Your society will be sought by people of taste and refinement.
