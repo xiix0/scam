@@ -1,1 +1,1 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Tonight's the night: Sleep in a eucalyptus tree.
