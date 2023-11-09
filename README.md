@@ -1,3 +1,2 @@
-My only love sprung from my only hate!
-Too early seen unknown, and known too late!
-		-- William Shakespeare, "Romeo and Juliet"
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
