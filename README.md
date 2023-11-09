@@ -1,1 +1,2 @@
-You will feel hungry again in another hour.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
