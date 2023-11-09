@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+Caution: Keep out of reach of children.
