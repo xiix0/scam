@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
+Always do right.  This will gratify some people and astonish the rest.
 		-- Mark Twain
