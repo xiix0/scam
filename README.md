@@ -1,2 +1,3 @@
-Q:	How many Harvard MBA's does it take to screw in a light bulb?
-A:	Just one.  He grasps it firmly and the universe revolves around him.
+When I reflect upon the number of disagreeable people who I know who have gone
+to a better world, I am moved to lead a different life.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
