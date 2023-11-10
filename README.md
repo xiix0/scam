@@ -1,1 +1,3 @@
-You too can wear a nose mitten.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
