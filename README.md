@@ -1,2 +1,1 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Living your life is a task so difficult, it has never been attempted before.
