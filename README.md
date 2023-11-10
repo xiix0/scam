@@ -1,2 +1,2 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
