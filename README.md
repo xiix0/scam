@@ -1,1 +1,2 @@
-After your lover has gone you will still have PEANUT BUTTER!
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
