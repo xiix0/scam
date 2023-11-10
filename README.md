@@ -1,3 +1,2 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
