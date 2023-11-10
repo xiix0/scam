@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+Someone is speaking well of you.
