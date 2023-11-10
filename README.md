@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+You recoil from the crude; you tend naturally toward the exquisite.
