@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Expect a letter from a friend who will ask a favor of you.
