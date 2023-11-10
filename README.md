@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+Your ignorance cramps my conversation.
