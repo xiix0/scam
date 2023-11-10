@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+You're at the end of the road again.
