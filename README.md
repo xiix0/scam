@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+Day of inquiry.  You will be subpoenaed.
