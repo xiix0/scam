@@ -1,1 +1,2 @@
-You don't become a failure until you're satisfied with being one.
+Q:	What is the sound of one cat napping?
+A:	Mu.
