@@ -1,1 +1,2 @@
-Perfect day for scrubbing the floor and other exciting things.
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
