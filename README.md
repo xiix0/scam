@@ -1,1 +1,1 @@
-You plan things that you do not even attempt because of your extreme caution.
+You don't become a failure until you're satisfied with being one.
