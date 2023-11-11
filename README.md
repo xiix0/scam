@@ -1,1 +1,1 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+Tuesday After Lunch is the cosmic time of the week.
