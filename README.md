@@ -1,4 +1,2 @@
-AWAKE! FEAR! FIRE! FOES! AWAKE!
-	FEAR! FIRE! FOES!
-		AWAKE! AWAKE!
-		-- J. R. R. Tolkien
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
