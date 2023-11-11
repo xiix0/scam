@@ -1,1 +1,2 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
