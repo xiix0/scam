@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
