@@ -1,6 +1,6 @@
-The true Southern watermelon is a boon apart, and not to be mentioned with
-commoner things.  It is chief of the world's luxuries, king by the grace of God
-over all the fruits of the earth.  When one has tasted it, he knows what the
-angels eat.  It was not a Southern watermelon that Eve took; we know it because
-she repented.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Stop!  There was first a game of blindman's buff.  Of course there was.
+And I no more believe Topper was really blind than I believe he had eyes
+in his boots.  My opinion is, that it was a done thing between him and
+Scrooge's nephew; and that the Ghost of Christmas Present knew it.  The
+way he went after that plump sister in the lace tucker, was an outrage
+on the credulity of human nature.
