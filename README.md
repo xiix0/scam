@@ -1,1 +1,2 @@
-Try to have as good a life as you can under the circumstances.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
