@@ -1,3 +1,1 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+Hope that the day after you die is a nice day.
