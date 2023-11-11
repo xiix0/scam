@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+You have literary talent that you should take pains to develop.
