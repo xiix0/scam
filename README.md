@@ -1,2 +1,3 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
+for you and me."
+		-- J. R. R. Tolkien
