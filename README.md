@@ -1,1 +1,1 @@
-You will be successful in love.
+This will be a memorable month -- no matter how hard you try to forget it.
