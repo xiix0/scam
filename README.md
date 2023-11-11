@@ -1,1 +1,1 @@
-You have literary talent that you should take pains to develop.
+You have a strong appeal for members of the opposite sex.
