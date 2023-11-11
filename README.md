@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+Caution: Keep out of reach of children.
