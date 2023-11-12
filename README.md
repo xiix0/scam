@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+Accent on helpful side of your nature.  Drain the moat.
