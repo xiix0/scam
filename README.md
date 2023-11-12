@@ -1,1 +1,3 @@
-Avoid gunfire in the bathroom tonight.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
