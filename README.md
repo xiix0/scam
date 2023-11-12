@@ -1,1 +1,2 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
