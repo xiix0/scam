@@ -1,2 +1,1 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+Learn to pause -- or nothing worthwhile can catch up to you.
