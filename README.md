@@ -1,2 +1,2 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
