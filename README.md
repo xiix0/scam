@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+Stay away from hurricanes for a while.
