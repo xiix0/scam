@@ -1,2 +1,2 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
