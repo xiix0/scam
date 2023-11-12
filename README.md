@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+If you stand on your head, you will get footprints in your hair.
