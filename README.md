@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
