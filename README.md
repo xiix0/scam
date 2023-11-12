@@ -1,1 +1,2 @@
-If you stand on your head, you will get footprints in your hair.
+The first thing we do, let's kill all the lawyers.
+		-- Wm. Shakespeare, "Henry VI", Part IV
