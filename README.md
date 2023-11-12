@@ -1,2 +1,1 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+Don't plan any hasty moves.  You'll be evicted soon anyway.
