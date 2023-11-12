@@ -1,2 +1,1 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+You will reach the highest possible point in your business or profession.
