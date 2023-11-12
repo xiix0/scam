@@ -1,2 +1,1 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+Don't relax!  It's only your tension that's holding you together.
