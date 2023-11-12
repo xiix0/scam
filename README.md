@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+Your love life will be... interesting.
