@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+You have an unusual understanding of the problems of human relationships.
