@@ -1,2 +1,2 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
