@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+Never look up when dragons fly overhead.
