@@ -1,2 +1,1 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+You can rent this space for only $5 a week.
