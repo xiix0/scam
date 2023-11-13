@@ -1,2 +1,2 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+"Life, loathe it or ignore it, you can't like it."
+		-- Marvin, "Hitchhiker's Guide to the Galaxy"
