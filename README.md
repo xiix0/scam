@@ -1,2 +1,2 @@
-"Life, loathe it or ignore it, you can't like it."
-		-- Marvin, "Hitchhiker's Guide to the Galaxy"
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
