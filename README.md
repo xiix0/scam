@@ -1,1 +1,3 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
