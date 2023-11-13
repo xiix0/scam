@@ -1,1 +1,2 @@
-If you can read this, you're too close.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
