@@ -1,2 +1,1 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
