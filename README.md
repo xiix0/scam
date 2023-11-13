@@ -1,2 +1,1 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+Good news.  Ten weeks from Friday will be a pretty good day.
