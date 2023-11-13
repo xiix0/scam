@@ -1,4 +1,11 @@
-	You will remember, Watson, how the dreadful business of the
-Abernetty family was first brought to my notice by the depth which the
-parsley had sunk into the butter upon a hot day.
-		-- Sherlock Holmes
+Q:	How many hardware engineers does it take to change a light bulb?
+A:	None.  We'll fix it in software.
+
+Q:	How many system programmers does it take to change a light bulb?
+A:	None.  The application can work around it.
+
+Q:	How many software engineers does it take to change a light bulb?
+A:	None.  We'll document it in the manual.
+
+Q:	How many tech writers does it take to change a light bulb?
+A:	None.  The user can figure it out.
