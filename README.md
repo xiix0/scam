@@ -1,2 +1,2 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
