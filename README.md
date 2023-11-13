@@ -1,2 +1,2 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
