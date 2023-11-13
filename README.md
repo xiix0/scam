@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+Try to get all of your posthumous medals in advance.
