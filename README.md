@@ -1,3 +1,2 @@
-The human race is a race of cowards; and I am not only marching in that
-procession but carrying a banner.
-		-- Mark Twain
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
