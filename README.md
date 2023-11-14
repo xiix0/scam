@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+All the troubles you have will pass away very quickly.
