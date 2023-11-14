@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+Your reasoning powers are good, and you are a fairly good planner.
