@@ -1,2 +1,3 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
