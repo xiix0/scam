@@ -1,1 +1,1 @@
-Never reveal your best argument.
+You will soon forget this.
