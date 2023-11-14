@@ -1,1 +1,2 @@
-You will be traveling and coming into a fortune.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
