@@ -1,1 +1,1 @@
-You have a strong appeal for members of your own sex.
+You will experience a strong urge to do good; but it will pass.
