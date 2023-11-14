@@ -1,2 +1,2 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
-		-- Mark Twain
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
