@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+You are fighting for survival in your own sweet and gentle way.
