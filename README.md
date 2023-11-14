@@ -1,3 +1,3 @@
-One of the most striking differences between a cat and a lie is that a cat has
-only nine lives.
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
