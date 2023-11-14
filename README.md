@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+You're working under a slight handicap.  You happen to be human.
