@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+You will win success in whatever calling you adopt.
