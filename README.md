@@ -1,3 +1,3 @@
-Q:	How does a hacker fix a function which
-	doesn't work for all of the elements in its domain?
-A:	He changes the domain.
+Your manuscript is both good and original, but the part that is good is not
+original and the part that is original is not good.
+		-- Samuel Johnson
