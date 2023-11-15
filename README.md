@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Don't relax!  It's only your tension that's holding you together.
