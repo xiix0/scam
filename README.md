@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+Your fly might be open (but don't check it just now).
