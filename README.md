@@ -1,1 +1,2 @@
-You will be called upon to help a friend in trouble.
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
