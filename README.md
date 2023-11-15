@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Give your very best today.  Heaven knows it's little enough.
