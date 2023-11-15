@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+You will outgrow your usefulness.
