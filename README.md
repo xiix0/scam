@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+You will gain money by an immoral action.
