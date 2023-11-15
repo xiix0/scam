@@ -1,1 +1,1 @@
-Don't let your mind wander -- it's too little to be let out alone.
+A visit to a strange place will bring fresh work.
