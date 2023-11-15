@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+Expect a letter from a friend who will ask a favor of you.
