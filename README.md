@@ -1,2 +1,1 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+Tomorrow will be cancelled due to lack of interest.
