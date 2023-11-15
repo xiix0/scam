@@ -1,1 +1,1 @@
-You have no real enemies.
+Beware of low-flying butterflies.
