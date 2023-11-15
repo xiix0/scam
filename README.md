@@ -1,1 +1,2 @@
-Don't relax!  It's only your tension that's holding you together.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
