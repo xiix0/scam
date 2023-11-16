@@ -1,1 +1,1 @@
-Are you making all this up as you go along?
+People are beginning to notice you.  Try dressing before you leave the house.
