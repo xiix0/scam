@@ -1,2 +1,1 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+You are sick, twisted and perverted.  I like that in a person.
