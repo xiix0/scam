@@ -1,1 +1,1 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Are you making all this up as you go along?
