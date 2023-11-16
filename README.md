@@ -1,1 +1,2 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
