@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+Don't read any sky-writing for the next two weeks.
