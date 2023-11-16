@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
