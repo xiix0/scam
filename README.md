@@ -1,2 +1,3 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+Training is everything.  The peach was once a bitter almond; cauliflower is
+nothing but cabbage with a college education.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
