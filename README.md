@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+A is for Apple.
+		-- Hester Pryne
