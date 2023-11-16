@@ -1,2 +1,4 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+O, it is excellent
+To have a giant's strength; but it is tyrannous
+To use it like a giant.
+		-- Shakespeare, "Measure for Measure", II, 2
