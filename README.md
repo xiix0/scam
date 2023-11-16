@@ -1,1 +1,2 @@
-You will be surprised by a loud noise.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
