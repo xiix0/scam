@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
