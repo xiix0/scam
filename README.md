@@ -1,1 +1,2 @@
-Your fly might be open (but don't check it just now).
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
