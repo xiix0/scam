@@ -1,1 +1,2 @@
-Someone is speaking well of you.
+Don't Worry, Be Happy.
+		-- Meher Baba
