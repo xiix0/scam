@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+Tomorrow, you can be anywhere.
