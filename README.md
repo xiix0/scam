@@ -1,3 +1,2 @@
-Q:	Why do the police always travel in threes?
-A:	One to do the reading, one to do the writing, and the other keeps
-	an eye on the two intellectuals.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
