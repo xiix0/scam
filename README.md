@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+You will reach the highest possible point in your business or profession.
