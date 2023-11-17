@@ -1,2 +1,3 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
