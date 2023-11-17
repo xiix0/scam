@@ -1,1 +1,2 @@
-You will gain money by an illegal action.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
