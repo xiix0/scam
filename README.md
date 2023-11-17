@@ -1,4 +1,2 @@
-Gratitude and treachery are merely the two extremities of the same procession.
-You have seen all of it that is worth staying for when the band and the gaudy
-officials have gone by.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You are destined to become the commandant of the fighting men of the
+department of transportation.
