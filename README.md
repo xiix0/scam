@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+You seek to shield those you love and you like the role of the provider.
