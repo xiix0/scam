@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+Of course you have a purpose -- to find a purpose.
