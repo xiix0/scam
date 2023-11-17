@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+Blow it out your ear.
