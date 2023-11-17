@@ -1,1 +1,1 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
