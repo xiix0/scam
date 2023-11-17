@@ -1,1 +1,3 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
+A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
+Q:	Who were the Democratic presidential candidates?
