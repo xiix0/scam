@@ -1,2 +1,3 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+Hain't we got all the fools in town on our side?  And hain't that a big
+enough majority in any town?
+		-- Mark Twain, "Huckleberry Finn"
