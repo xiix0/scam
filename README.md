@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+Do nothing unless you must, and when you must act -- hesitate.
