@@ -1,2 +1,2 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
