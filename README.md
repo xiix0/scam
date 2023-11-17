@@ -1,1 +1,1 @@
-You will be divorced within a year.
+Your lucky number has been disconnected.
