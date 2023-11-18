@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+Don't look now, but the man in the moon is laughing at you.
