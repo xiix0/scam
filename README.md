@@ -1,1 +1,1 @@
-Don't read everything you believe.
+You will be advanced socially, without any special effort on your part.
