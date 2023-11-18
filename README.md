@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+If your life was a horse, you'd have to shoot it.
