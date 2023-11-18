@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
