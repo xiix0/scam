@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Let me put it this way: today is going to be a learning experience.
