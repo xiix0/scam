@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+Caution: Keep out of reach of children.
