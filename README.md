@@ -1,2 +1,1 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+Your aim is high and to the right.
