@@ -1,1 +1,2 @@
-Are you making all this up as you go along?
+Too much is just enough.
+		-- Mark Twain, on whiskey
