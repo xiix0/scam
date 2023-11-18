@@ -1,1 +1,1 @@
-Tuesday is the Wednesday of the rest of your life.
+Perfect day for scrubbing the floor and other exciting things.
