@@ -1,1 +1,1 @@
-You will be reincarnated as a toad; and you will be much happier.
+Are you making all this up as you go along?
