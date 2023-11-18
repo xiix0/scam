@@ -1,1 +1,1 @@
-Perfect day for scrubbing the floor and other exciting things.
+Do not sleep in a eucalyptus tree tonight.
