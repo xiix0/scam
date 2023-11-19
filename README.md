@@ -1,1 +1,2 @@
-You have literary talent that you should take pains to develop.
+Q:	Are we not men?
+A:	We are Vaxen.
