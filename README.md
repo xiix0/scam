@@ -1,2 +1,1 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+Don't you wish you had more energy... or less ambition?
