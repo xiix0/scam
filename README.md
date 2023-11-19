@@ -1,2 +1,2 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
