@@ -1,2 +1,2 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
