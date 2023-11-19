@@ -1,1 +1,2 @@
-There was a phone call for you.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
