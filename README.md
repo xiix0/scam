@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+You work very hard.  Don't try to think as well.
