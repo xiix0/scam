@@ -1,2 +1,2 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
