@@ -1,2 +1,1 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+It's lucky you're going so slowly, because you're going in the wrong direction.
