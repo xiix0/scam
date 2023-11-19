@@ -1,1 +1,2 @@
-Long life is in store for you.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
