@@ -1,4 +1,4 @@
-Behold, the fool saith, "Put not all thine eggs in the one basket"--which is
-but a manner of saying, "Scatter your money and your attention;" but the wise
-man saith, "Put all your eggs in the one basket and--WATCH THAT BASKET."
+Gratitude and treachery are merely the two extremities of the same procession.
+You have seen all of it that is worth staying for when the band and the gaudy
+officials have gone by.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
