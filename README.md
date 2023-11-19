@@ -1,3 +1,3 @@
-Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
-as intelligent as ever.
-		-- Samuel Beckett, "Endgame"
+So so is good, very good, very excellent good:
+and yet it is not; it is but so so.
+		-- William Shakespeare, "As You Like It"
