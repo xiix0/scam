@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
+Civilization is the limitless multiplication of unnecessary necessities.
 		-- Mark Twain
