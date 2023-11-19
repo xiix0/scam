@@ -1,6 +1,7 @@
-Q:	What did Tarzan say when he saw the elephants coming over the hill?
-A:	"The elephants are coming over the hill."
-
-Q:	What did he say when saw them coming over the hill wearing
-		sunglasses?
-A:	Nothing, for he didn't recognize them.
+"What's this?  Trix?  Aunt!  Trix?  You?  You're after the prize!  What
+is it?"  He picked up the box and studied the back.  "A glow-in-the-dark
+squid!  Have you got it out of there yet?"  He tilted the box, angling the
+little colored balls of cereal so as to see the bottom, and nearly spilling
+them onto the table top.  "Here it is!"  He hauled out a little cream-colored,
+glitter-sprinkled squid, three-inches long and made out of rubbery plastic.
+		-- James P. Blaylock, "The Last Coin"
