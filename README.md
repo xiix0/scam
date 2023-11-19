@@ -1,3 +1,2 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
