@@ -1,1 +1,1 @@
-Give your very best today.  Heaven knows it's little enough.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
