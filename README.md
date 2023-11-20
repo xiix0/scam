@@ -1,2 +1,2 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+Q:	What is purple and commutes?
+A:	An Abelian grape.
