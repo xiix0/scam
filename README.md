@@ -1,2 +1,3 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
