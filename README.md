@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+You will have domestic happiness and faithful friends.
