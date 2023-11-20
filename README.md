@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of new developments.
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
