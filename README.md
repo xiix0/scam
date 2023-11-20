@@ -1,1 +1,2 @@
-Your talents will be recognized and suitably rewarded.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
