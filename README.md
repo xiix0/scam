@@ -1,1 +1,2 @@
-You will overcome the attacks of jealous associates.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
