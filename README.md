@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+You may get an opportunity for advancement today.  Watch it!
