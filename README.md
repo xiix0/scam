@@ -1,2 +1,2 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
