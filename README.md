@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+Things will be bright in P.M.  A cop will shine a light in your face.
