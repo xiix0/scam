@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+There is a 20% chance of tomorrow.
