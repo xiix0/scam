@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+Give your very best today.  Heaven knows it's little enough.
