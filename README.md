@@ -1,4 +1,2 @@
-AWAKE! FEAR! FIRE! FOES! AWAKE!
-	FEAR! FIRE! FOES!
-		AWAKE! AWAKE!
-		-- J. R. R. Tolkien
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
