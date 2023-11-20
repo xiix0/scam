@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+Best of all is never to have been born.  Second best is to die soon.
