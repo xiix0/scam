@@ -1,2 +1,1 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+This will be a memorable month -- no matter how hard you try to forget it.
