@@ -1,1 +1,2 @@
-You are deeply attached to your friends and acquaintances.
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
