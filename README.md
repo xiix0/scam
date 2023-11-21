@@ -1,2 +1,2 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+Big book, big bore.
+		-- Callimachus
