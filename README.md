@@ -1,1 +1,2 @@
-Try to get all of your posthumous medals in advance.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
