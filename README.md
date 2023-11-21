@@ -1,2 +1,1 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+You need no longer worry about the future.  This time tomorrow you'll be dead.
