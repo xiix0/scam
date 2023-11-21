@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Expect a letter from a friend who will ask a favor of you.
