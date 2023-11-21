@@ -1,1 +1,1 @@
-You have no real enemies.
+Keep emotionally active.  Cater to your favorite neurosis.
