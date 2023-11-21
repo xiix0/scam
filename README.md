@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
