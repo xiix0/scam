@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+You're being followed.  Cut out the hanky-panky for a few days.
