@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
