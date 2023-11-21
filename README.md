@@ -1,2 +1,1 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+This will be a memorable month -- no matter how hard you try to forget it.
