@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+You seek to shield those you love and you like the role of the provider.
