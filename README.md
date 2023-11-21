@@ -1,1 +1,1 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+Accent on helpful side of your nature.  Drain the moat.
