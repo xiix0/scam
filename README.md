@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+Try to get all of your posthumous medals in advance.
