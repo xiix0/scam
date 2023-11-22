@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+Excellent day for putting Slinkies on an escalator.
