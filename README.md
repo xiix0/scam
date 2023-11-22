@@ -1,2 +1,1 @@
-This night methinks is but the daylight sick.
-		-- William Shakespeare, "The Merchant of Venice"
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
