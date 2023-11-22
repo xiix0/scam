@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+Good day to deal with people in high places; particularly lonely stewardesses.
