@@ -1,1 +1,1 @@
-You will step on the night soil of many countries.
+What happened last night can happen again.
