@@ -1,3 +1,4 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #4
-A:	Go west, young man, go west!
-Q:	What do wabbits do when they get tiwed of wunning awound?
+Whenever the literary German dives into a sentence, that is the last
+you are going to see of him until he emerges on the other side of his
+Atlantic with his verb in his mouth.
+		-- Mark Twain "A Connecticut Yankee in King Arthur's Court"
