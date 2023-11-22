@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+It's lucky you're going so slowly, because you're going in the wrong direction.
