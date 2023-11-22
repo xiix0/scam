@@ -1,2 +1,1 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+That secret you've been guarding, isn't.
