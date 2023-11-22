@@ -1,2 +1,1 @@
-Q:	What do you have when you have a lawyer buried up to his neck in sand?
-A:	Not enough sand.
+Your society will be sought by people of taste and refinement.
