@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+Cheer Up!  Things are getting worse at a slower rate.
