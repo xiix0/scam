@@ -1,1 +1,2 @@
-You would if you could but you can't so you won't.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
