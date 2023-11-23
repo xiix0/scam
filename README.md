@@ -1,2 +1,2 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
