@@ -1,2 +1,1 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
