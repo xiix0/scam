@@ -1,2 +1,2 @@
-Fine day for friends.
-So-so day for you.
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
