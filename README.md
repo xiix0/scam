@@ -1,1 +1,2 @@
-Love is in the offing.  Be affectionate to one who adores you.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
