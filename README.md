@@ -1,2 +1,5 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+Q:	What do monsters eat?
+A:	Things.
+
+Q:	What do monsters drink?
+A:	Coke.  (Because Things go better with Coke.)
