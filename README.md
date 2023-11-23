@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+Your talents will be recognized and suitably rewarded.
