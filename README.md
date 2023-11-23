@@ -1,1 +1,2 @@
-You are so boring that when I see you my feet go to sleep.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
