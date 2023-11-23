@@ -1,1 +1,2 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
