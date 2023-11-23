@@ -1,2 +1,1 @@
-The naked truth of it is, I have no shirt.
-		-- William Shakespeare, "Love's Labour's Lost"
+Your aim is high and to the right.
