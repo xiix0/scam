@@ -1,1 +1,1 @@
-What happened last night can happen again.
+You will win success in whatever calling you adopt.
