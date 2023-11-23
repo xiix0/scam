@@ -1,1 +1,2 @@
-You will feel hungry again in another hour.
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
