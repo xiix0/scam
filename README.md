@@ -1,2 +1,2 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
