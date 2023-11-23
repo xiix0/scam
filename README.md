@@ -1,2 +1,2 @@
-He that breaks a thing to find out what it is has left the path of wisdom.
-		-- J.R.R. Tolkien
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
