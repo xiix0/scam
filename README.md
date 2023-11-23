@@ -1,1 +1,3 @@
-You'd like to do it instantaneously, but that's too slow.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
