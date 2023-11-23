@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+Tuesday is the Wednesday of the rest of your life.
