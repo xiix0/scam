@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Fine day for friends.
+So-so day for you.
