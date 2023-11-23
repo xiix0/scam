@@ -1,2 +1,2 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
