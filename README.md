@@ -1,1 +1,2 @@
-You have a will that can be influenced by all with whom you come in contact.
+You're growing out of some of your problems, but there are others that
+you're growing into.
