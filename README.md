@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+He is now rising from affluence to poverty.
+		-- Mark Twain
