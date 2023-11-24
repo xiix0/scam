@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+Accent on helpful side of your nature.  Drain the moat.
