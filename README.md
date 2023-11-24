@@ -1,3 +1,3 @@
-The mind is its own place, and in itself
-Can make a Heav'n of Hell, a Hell of Heav'n.
-		-- John Milton
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
