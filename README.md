@@ -1,1 +1,2 @@
-You're a card which will have to be dealt with.
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
