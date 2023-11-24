@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+You are sick, twisted and perverted.  I like that in a person.
