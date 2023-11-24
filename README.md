@@ -1,2 +1,1 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+You recoil from the crude; you tend naturally toward the exquisite.
