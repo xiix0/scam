@@ -1,1 +1,2 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
+		-- Sherlock Holmes
