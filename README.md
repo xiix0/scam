@@ -1,3 +1,3 @@
-A classic is something that everyone wants to have read
-and nobody wants to read.
-		-- Mark Twain, "The Disappearance of Literature"
+The mind is its own place, and in itself
+Can make a Heav'n of Hell, a Hell of Heav'n.
+		-- John Milton
