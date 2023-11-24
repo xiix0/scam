@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Good day to deal with people in high places; particularly lonely stewardesses.
