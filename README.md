@@ -1,2 +1,2 @@
-Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
-		-- Shakespeare
+I fell asleep reading a dull book, and I dreamt that I was reading on,
+so I woke up from sheer boredom.
