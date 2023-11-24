@@ -1,2 +1,1 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+You are deeply attached to your friends and acquaintances.
