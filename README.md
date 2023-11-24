@@ -1,3 +1,2 @@
-Someone is speaking well of you.
-
-How unusual!
+If you tell the truth you don't have to remember anything.
+		-- Mark Twain
