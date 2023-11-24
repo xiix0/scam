@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
