@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+You plan things that you do not even attempt because of your extreme caution.
