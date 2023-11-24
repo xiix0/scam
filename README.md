@@ -1,4 +1,3 @@
-"I understand this is your first dead client," Sabian was saying.  The
-absurdity of the statement made me want to laugh but they don't call me
-Deadpan Allie and lie.
-		-- Pat Cadigan, "Mindplayers"
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
