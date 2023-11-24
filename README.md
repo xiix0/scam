@@ -1,6 +1,4 @@
-I've touch'd the highest point of all my greatness;
-And from that full meridian of my glory
-I haste now to my setting.  I shall fall,
-Like a bright exhalation in the evening
-And no man see me more.
-		-- Shakespeare
+"I understand this is your first dead client," Sabian was saying.  The
+absurdity of the statement made me want to laugh but they don't call me
+Deadpan Allie and lie.
+		-- Pat Cadigan, "Mindplayers"
