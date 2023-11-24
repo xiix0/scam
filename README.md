@@ -1,1 +1,1 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Don't plan any hasty moves.  You'll be evicted soon anyway.
