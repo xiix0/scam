@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
