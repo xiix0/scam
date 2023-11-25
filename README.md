@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+There is a 20% chance of tomorrow.
