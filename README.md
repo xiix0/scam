@@ -1,1 +1,3 @@
-You're not my type.  For that matter, you're not even my species!!!
+He draweth out the thread of his verbosity finer than the staple of his
+argument.
+		-- William Shakespeare, "Love's Labour's Lost"
