@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+Stay away from hurricanes for a while.
