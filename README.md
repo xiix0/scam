@@ -1,3 +1,1 @@
-It were not best that we should all think alike; it is difference of opinion
-that makes horse-races.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You will be a winner today.  Pick a fight with a four-year-old.
