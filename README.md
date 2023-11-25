@@ -1,1 +1,1 @@
-Give him an evasive answer.
+Future looks spotty.  You will spill soup in late evening.
