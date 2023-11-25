@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+You will become rich and famous unless you don't.
