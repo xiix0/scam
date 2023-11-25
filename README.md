@@ -1,1 +1,2 @@
-Never be led astray onto the path of virtue.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
