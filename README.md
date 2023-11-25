@@ -1,3 +1,1 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+Do what comes naturally.  Seethe and fume and throw a tantrum.
