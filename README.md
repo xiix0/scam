@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+You're not my type.  For that matter, you're not even my species!!!
