@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Conscience doth make cowards of us all.
+		-- Shakespeare
