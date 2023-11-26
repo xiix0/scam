@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You are dishonest, but never to the point of hurting a friend.
