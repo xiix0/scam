@@ -1,2 +1,3 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
