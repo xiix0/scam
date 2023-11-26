@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+Don't worry so loud, your roommate can't think.
