@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+You will have good luck and overcome many hardships.
