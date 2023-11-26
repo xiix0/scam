@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+Q:	What is the sound of one cat napping?
+A:	Mu.
