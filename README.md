@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+You can create your own opportunities this week.  Blackmail a senior executive.
