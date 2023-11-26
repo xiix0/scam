@@ -1,1 +1,2 @@
-Give your very best today.  Heaven knows it's little enough.
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
