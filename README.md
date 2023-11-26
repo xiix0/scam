@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of good news soon.
+Accent on helpful side of your nature.  Drain the moat.
