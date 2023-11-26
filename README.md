@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+You're a card which will have to be dealt with.
