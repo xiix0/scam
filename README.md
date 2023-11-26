@@ -1,2 +1,1 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+Stay away from flying saucers today.
