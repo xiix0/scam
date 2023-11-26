@@ -1,1 +1,2 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
