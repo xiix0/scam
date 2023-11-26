@@ -1,3 +1,3 @@
-Q:	Know what the difference between your latest project
-	and putting wings on an elephant is?
-A:	Who knows?  The elephant *might* fly, heh, heh...
+It is often the case that the man who can't tell a lie thinks he is the best
+judge of one.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
