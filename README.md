@@ -1,1 +1,2 @@
-You have a strong appeal for members of your own sex.
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
