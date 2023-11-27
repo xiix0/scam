@@ -1,1 +1,1 @@
-You feel a whole lot more like you do now than you did when you used to.
+You have a strong appeal for members of your own sex.
