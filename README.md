@@ -1,1 +1,1 @@
-You are standing on my toes.
+You have many friends and very few living enemies.
