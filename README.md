@@ -1,2 +1,2 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
