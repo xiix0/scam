@@ -1,1 +1,3 @@
-Tomorrow will be cancelled due to lack of interest.
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
