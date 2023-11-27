@@ -1,3 +1,2 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+Q:	Do you know what the death rate around here is?
+A:	One per person.
