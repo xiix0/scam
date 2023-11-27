@@ -1,2 +1,2 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
