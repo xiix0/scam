@@ -1,2 +1,3 @@
-What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, "The League of Frightened Men"
+Q:	What's the difference between a dead dog in the road and a dead
+	lawyer in the road?
+A:	There are skid marks in front of the dog.
