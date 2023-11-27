@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
