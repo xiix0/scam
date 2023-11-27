@@ -1,1 +1,1 @@
-Chess tonight.
+Slow day.  Practice crawling.
