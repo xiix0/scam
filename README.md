@@ -1,1 +1,2 @@
-Try the Moo Shu Pork.  It is especially good today.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
