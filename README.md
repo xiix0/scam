@@ -1,1 +1,2 @@
-You'll be called to a post requiring ability in handling groups of people.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
