@@ -1,2 +1,3 @@
-Q:	What do you get when you cross the Godfather with an attorney?
-A:	An offer you can't understand.
+A banker is a fellow who lends you his umbrella when the sun is shining
+and wants it back the minute it begins to rain.
+		-- Mark Twain
