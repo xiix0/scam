@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+Increased knowledge will help you now.  Have mate's phone bugged.
