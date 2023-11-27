@@ -1,1 +1,2 @@
-You will wish you hadn't.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
