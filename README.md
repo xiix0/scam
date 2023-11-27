@@ -1,1 +1,2 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
