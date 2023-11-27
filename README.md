@@ -1,2 +1,2 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
