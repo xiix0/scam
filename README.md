@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+You can create your own opportunities this week.  Blackmail a senior executive.
