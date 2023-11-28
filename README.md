@@ -1,2 +1,1 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
-		-- Mark Twain
+People are beginning to notice you.  Try dressing before you leave the house.
