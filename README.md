@@ -1,1 +1,2 @@
-You will be reincarnated as a toad; and you will be much happier.
+The first thing we do, let's kill all the lawyers.
+		-- Wm. Shakespeare, "Henry VI", Part IV
