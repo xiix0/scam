@@ -1,2 +1,1 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+You are fighting for survival in your own sweet and gentle way.
