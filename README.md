@@ -1,1 +1,1 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Your heart is pure, and your mind clear, and your soul devout.
