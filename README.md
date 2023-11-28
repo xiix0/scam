@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
