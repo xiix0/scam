@@ -1,1 +1,2 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
