@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+You are number 6!  Who is number one?
