@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
