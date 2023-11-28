@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
