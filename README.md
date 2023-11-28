@@ -1,1 +1,2 @@
-Are you sure the back door is locked?
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
