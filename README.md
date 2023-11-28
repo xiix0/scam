@@ -1,1 +1,2 @@
-Your heart is pure, and your mind clear, and your soul devout.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
