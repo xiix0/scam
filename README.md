@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
