@@ -1,1 +1,2 @@
-You plan things that you do not even attempt because of your extreme caution.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
