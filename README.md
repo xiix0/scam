@@ -1,1 +1,2 @@
-A gift of a flower will soon be made to you.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
