@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+Your business will go through a period of considerable expansion.
