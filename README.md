@@ -1,1 +1,1 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+The time is right to make new friends.
