@@ -1,1 +1,2 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
