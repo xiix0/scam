@@ -1,2 +1,1 @@
-What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, "The League of Frightened Men"
+Lady Luck brings added income today.  Lady friend takes it away tonight.
