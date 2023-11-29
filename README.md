@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+Conscience doth make cowards of us all.
+		-- Shakespeare
