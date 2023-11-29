@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+Many changes of mind and mood; do not hesitate too long.
