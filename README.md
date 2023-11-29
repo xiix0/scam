@@ -1,1 +1,1 @@
-Try to have as good a life as you can under the circumstances.
+Tonight's the night: Sleep in a eucalyptus tree.
