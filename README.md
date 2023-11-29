@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+Your life would be very empty if you had nothing to regret.
