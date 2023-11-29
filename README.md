@@ -1,2 +1,1 @@
-The first thing we do, let's kill all the lawyers.
-		-- Wm. Shakespeare, "Henry VI", Part IV
+Do nothing unless you must, and when you must act -- hesitate.
