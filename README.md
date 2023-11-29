@@ -1,3 +1,4 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
-A:	The Halls of Montezuma and the Shores of Tripoli.
-Q:	Name two families whose kids won't join the Marines.
+O, it is excellent
+To have a giant's strength; but it is tyrannous
+To use it like a giant.
+		-- Shakespeare, "Measure for Measure", II, 2
