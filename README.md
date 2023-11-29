@@ -1,3 +1,2 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
