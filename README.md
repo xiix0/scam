@@ -1,1 +1,1 @@
-You love peace.
+Tomorrow, you can be anywhere.
