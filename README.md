@@ -1,1 +1,1 @@
-You will outgrow your usefulness.
+Afternoon very favorable for romance.  Try a single person for a change.
