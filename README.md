@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+You'll feel much better once you've given up hope.
