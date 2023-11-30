@@ -1,1 +1,2 @@
-You're a card which will have to be dealt with.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
