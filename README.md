@@ -1,2 +1,3 @@
-Kindness is a language which the deaf can hear and the blind can read.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
 		-- Mark Twain
