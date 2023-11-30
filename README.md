@@ -1,2 +1,1 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+You have an ability to sense and know higher truth.
