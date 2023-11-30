@@ -1,7 +1,6 @@
-Mind!  I don't mean to say that I know, of my own knowledge, what there is
-particularly dead about a door-nail.  I might have been inclined, myself,
-to regard a coffin-nail as the deadest piece of ironmongery in the trade.
-But the wisdom of our ancestors is in the simile; and my unhallowed hands
-shall not disturb it, or the Country's done for.  You will therefore permit
-me to repeat, emphatically, that Marley was as dead as a door-nail.
-		-- Charles Dickens, "A Christmas Carol"
+Q:	How many IBM types does it take to change a light bulb?
+A:	Fifteen.  One to do it, and fourteen to write document number
+	GC7500439-0001, Multitasking Incandescent Source System Facility,
+	of which 10% of the pages state only "This page intentionally
+	left blank", and 20% of the definitions are of the form "A:.....
+	consists of sequences of non-blank characters separated by blanks".
