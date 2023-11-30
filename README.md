@@ -1,1 +1,2 @@
-Don't feed the bats tonight.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
