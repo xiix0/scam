@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+You will attract cultured and artistic people to your home.
