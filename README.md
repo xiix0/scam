@@ -1,2 +1,2 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+Too much is just enough.
+		-- Mark Twain, on whiskey
