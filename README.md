@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Bank error in your favor.  Collect $200.
