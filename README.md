@@ -1,1 +1,2 @@
-Make a wish, it might come true.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
