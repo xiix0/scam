@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+You are magnetic in your bearing.
