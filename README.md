@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+Your own qualities will help prevent your advancement in the world.
