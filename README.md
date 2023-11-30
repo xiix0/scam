@@ -1,1 +1,2 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
