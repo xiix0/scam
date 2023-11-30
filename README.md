@@ -1,1 +1,1 @@
-You will always get the greatest recognition for the job you least like.
+Do nothing unless you must, and when you must act -- hesitate.
