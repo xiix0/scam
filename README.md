@@ -1,2 +1,2 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+The Public is merely a multiplied "me."
+		-- Mark Twain
