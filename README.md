@@ -1,2 +1,1 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+Don't plan any hasty moves.  You'll be evicted soon anyway.
