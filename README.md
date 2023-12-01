@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+Be careful!  UGLY strikes 9 out of 10!
