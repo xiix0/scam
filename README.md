@@ -1,2 +1,1 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+There was a phone call for you.
