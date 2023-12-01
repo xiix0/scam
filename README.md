@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+After your lover has gone you will still have PEANUT BUTTER!
