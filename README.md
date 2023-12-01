@@ -1,2 +1,1 @@
-As to the Adjective: when in doubt, strike it out.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Let me put it this way: today is going to be a learning experience.
