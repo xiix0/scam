@@ -1,2 +1,2 @@
-	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
