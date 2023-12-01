@@ -1,2 +1,2 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
