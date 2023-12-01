@@ -1,2 +1,2 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
