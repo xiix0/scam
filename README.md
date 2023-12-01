@@ -1,7 +1,6 @@
-Awash with unfocused desire, Everett twisted the lobe of his one remaining
-ear and felt the presence of somebody else behind him, which caused terror
-to push through his nervous system like a flash flood roaring down the
-mid-fork of the Feather River before the completion of the Oroville Dam
-in 1959.
-		-- Grand Panjandrum's Special Award, 1984 Bulwer-Lytton
-		   bad fiction contest.
+Unless hours were cups of sack, and minutes capons, and clocks the tongues
+of bawds, and dials the signs of leaping houses, and the blessed sun himself
+a fair, hot wench in flame-colored taffeta, I see no reason why thou shouldst
+be so superfluous to demand the time of the day.  I wasted time and now doth
+time waste me.
+		-- William Shakespeare
