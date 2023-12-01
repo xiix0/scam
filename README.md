@@ -1,1 +1,4 @@
-Let me put it this way: today is going to be a learning experience.
+Gratitude and treachery are merely the two extremities of the same procession.
+You have seen all of it that is worth staying for when the band and the gaudy
+officials have gone by.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
