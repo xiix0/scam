@@ -1,2 +1,2 @@
-Every why hath a wherefore.
-		-- William Shakespeare, "A Comedy of Errors"
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
