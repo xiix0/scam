@@ -1,2 +1,1 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+Artistic ventures highlighted.  Rob a museum.
