@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+Exercise caution in your daily affairs.
