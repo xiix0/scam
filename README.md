@@ -1,1 +1,2 @@
-You have literary talent that you should take pains to develop.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
