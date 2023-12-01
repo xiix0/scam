@@ -1,2 +1,1 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You have a strong desire for a home and your family interests come first.
