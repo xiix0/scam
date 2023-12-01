@@ -1,2 +1,2 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
