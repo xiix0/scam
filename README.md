@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+You are going to have a new love affair.
