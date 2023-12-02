@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+Things will be bright in P.M.  A cop will shine a light in your face.
