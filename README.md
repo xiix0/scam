@@ -1,2 +1,1 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+Try to value useful qualities in one who loves you.
