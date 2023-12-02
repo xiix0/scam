@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+A vivid and creative mind characterizes you.
