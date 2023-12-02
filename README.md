@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+This will be a memorable month -- no matter how hard you try to forget it.
