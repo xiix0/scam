@@ -1,1 +1,2 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
