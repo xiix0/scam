@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+Your true value depends entirely on what you are compared with.
