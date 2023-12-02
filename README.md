@@ -1,2 +1,3 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+So so is good, very good, very excellent good:
+and yet it is not; it is but so so.
+		-- William Shakespeare, "As You Like It"
