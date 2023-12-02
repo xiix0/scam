@@ -1,1 +1,2 @@
-You will visit the Dung Pits of Glive soon.
+Fine day for friends.
+So-so day for you.
