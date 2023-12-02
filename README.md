@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
