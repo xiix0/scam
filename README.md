@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+Never commit yourself!  Let someone else commit you.
