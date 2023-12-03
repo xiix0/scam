@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+Long life is in store for you.
