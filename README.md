@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+Caution: breathing may be hazardous to your health.
