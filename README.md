@@ -1,2 +1,1 @@
-Fine day for friends.
-So-so day for you.
+So this is it.  We're going to die.
