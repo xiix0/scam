@@ -1,2 +1,3 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+Someone is speaking well of you.
+
+How unusual!
