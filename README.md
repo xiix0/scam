@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
