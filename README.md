@@ -1,5 +1,2 @@
-April 1
-
-This is the day upon which we are reminded of what we are on the other three
-hundred and sixty-four.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+	A man was reading The Canterbury Tales one Saturday morning, when his
+wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
