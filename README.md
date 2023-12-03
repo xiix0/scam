@@ -1,2 +1,1 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+You prefer the company of the opposite sex, but are well liked by your own.
