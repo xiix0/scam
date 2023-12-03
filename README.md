@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Exercise caution in your daily affairs.
