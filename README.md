@@ -1,1 +1,2 @@
-Your supervisor is thinking about you.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
