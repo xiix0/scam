@@ -1,4 +1,2 @@
-F.S. Fitzgerald to Hemingway:
-	"Ernest, the rich are different from us."
-Hemingway:
-	"Yes.  They have more money."
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
