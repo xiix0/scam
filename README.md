@@ -1,4 +1,2 @@
-Q:	Why don't Scotsmen ever have coffee the way they like it?
-A:	Well, they like it with two lumps of sugar.  If they drink
-	it at home, they only take one, and if they drink it while
-	visiting, they always take three.
+Q:	What do you get when you cross a mobster with an international standard?
+A:	You get someone who makes you an offer that you can't understand!
