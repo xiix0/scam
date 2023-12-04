@@ -1,1 +1,2 @@
-Your domestic life may be harmonious.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
