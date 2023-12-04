@@ -1,3 +1,1 @@
-Q:	Why haven't you graduated yet?
-A:	Well, Dad, I could have finished years ago, but I wanted
-	my dissertation to rhyme.
+You will hear good news from one you thought unfriendly to you.
