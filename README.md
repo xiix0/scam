@@ -1,2 +1,1 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+Tonight's the night: Sleep in a eucalyptus tree.
