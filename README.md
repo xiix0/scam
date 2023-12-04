@@ -1,1 +1,2 @@
-Beware of low-flying butterflies.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
