@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+All the troubles you have will pass away very quickly.
