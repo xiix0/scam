@@ -1,2 +1,3 @@
-This night methinks is but the daylight sick.
-		-- William Shakespeare, "The Merchant of Venice"
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
