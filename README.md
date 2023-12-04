@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Learn to pause -- or nothing worthwhile can catch up to you.
