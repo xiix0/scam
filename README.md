@@ -1,1 +1,2 @@
-Never look up when dragons fly overhead.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
