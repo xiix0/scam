@@ -1,2 +1,3 @@
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
