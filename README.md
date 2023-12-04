@@ -1,2 +1,2 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
