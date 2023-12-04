@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Generosity and perfection are your everlasting goals.
