@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+Your present plans will be successful.
