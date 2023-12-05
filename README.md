@@ -1,1 +1,2 @@
-It was all so different before everything changed.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
