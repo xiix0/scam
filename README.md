@@ -1,2 +1,2 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
