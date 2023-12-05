@@ -1,2 +1,5 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+Q:	Why do ducks have big flat feet?
+A:	To stamp out forest fires.
+
+Q:	Why do elephants have big flat feet?
+A:	To stamp out flaming ducks.
