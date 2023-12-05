@@ -1,1 +1,2 @@
-Abandon the search for Truth; settle for a good fantasy.
+"... all the modern inconveniences ..."
+		-- Mark Twain
