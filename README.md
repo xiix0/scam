@@ -1,2 +1,2 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
