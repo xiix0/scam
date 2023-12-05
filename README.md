@@ -1,1 +1,1 @@
-You possess a mind not merely twisted, but actually sprained.
+You will meet an important person who will help you advance professionally.
