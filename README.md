@@ -1,2 +1,1 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
