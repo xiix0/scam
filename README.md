@@ -1,1 +1,2 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
