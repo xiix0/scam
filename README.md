@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
