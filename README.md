@@ -1,1 +1,2 @@
-Your present plans will be successful.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
