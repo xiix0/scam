@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+You may get an opportunity for advancement today.  Watch it!
