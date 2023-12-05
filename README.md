@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+In the stairway of life, you'd best take the elevator.
