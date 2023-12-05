@@ -1,1 +1,2 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
