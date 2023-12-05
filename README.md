@@ -1,1 +1,2 @@
-Your nature demands love and your happiness depends on it.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
