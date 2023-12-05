@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+People are beginning to notice you.  Try dressing before you leave the house.
