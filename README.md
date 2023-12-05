@@ -1,2 +1,2 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+Wagner's music is better than it sounds.
+		-- Mark Twain
