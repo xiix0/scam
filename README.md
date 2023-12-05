@@ -1,2 +1,2 @@
-"... all the modern inconveniences ..."
-		-- Mark Twain
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
