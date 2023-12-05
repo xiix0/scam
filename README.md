@@ -1,2 +1,2 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
