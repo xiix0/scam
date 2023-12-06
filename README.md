@@ -1,1 +1,2 @@
-It was all so different before everything changed.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
