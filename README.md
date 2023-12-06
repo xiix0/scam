@@ -1,3 +1,1 @@
-If one cannot enjoy reading a book over and over again, there is no use
-in reading it at all.
-		-- Oscar Wilde
+Abandon the search for Truth; settle for a good fantasy.
