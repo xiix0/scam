@@ -1,3 +1,2 @@
-The difference between a Miracle and a Fact is exactly the difference
-between a mermaid and a seal.
-		-- Mark Twain
+Too much is just enough.
+		-- Mark Twain, on whiskey
