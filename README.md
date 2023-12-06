@@ -1,1 +1,2 @@
-You will be traveling and coming into a fortune.
+All generalizations are false, including this one.
+		-- Mark Twain
