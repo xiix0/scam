@@ -1,2 +1,2 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
