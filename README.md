@@ -1,3 +1,2 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
