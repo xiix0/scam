@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Exercise caution in your daily affairs.
