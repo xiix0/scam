@@ -1,1 +1,3 @@
-Make a wish, it might come true.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
