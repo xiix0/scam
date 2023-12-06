@@ -1,1 +1,2 @@
-You are the only person to ever get this message.
+Conscience doth make cowards of us all.
+		-- Shakespeare
