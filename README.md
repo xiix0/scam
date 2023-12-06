@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
