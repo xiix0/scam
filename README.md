@@ -1,2 +1,3 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+Q:	What does a WASP Mom make for dinner?
+A:	A crisp salad, a hearty soup, a lovely entree, followed by
+	a delicious dessert.
