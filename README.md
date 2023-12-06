@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Someone is speaking well of you.
