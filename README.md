@@ -1,1 +1,2 @@
-Your heart is pure, and your mind clear, and your soul devout.
+All generalizations are false, including this one.
+		-- Mark Twain
