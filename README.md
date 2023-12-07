@@ -1,1 +1,1 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+A vivid and creative mind characterizes you.
