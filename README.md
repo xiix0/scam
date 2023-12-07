@@ -1,1 +1,2 @@
-You will have a long and unpleasant discussion with your supervisor.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
