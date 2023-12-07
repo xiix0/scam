@@ -1,1 +1,1 @@
-You may be recognized soon.  Hide.
+Good news.  Ten weeks from Friday will be a pretty good day.
