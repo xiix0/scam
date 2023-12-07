@@ -1,1 +1,1 @@
-You will contract a rare disease.
+Beware of low-flying butterflies.
