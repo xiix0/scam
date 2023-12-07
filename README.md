@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+Increased knowledge will help you now.  Have mate's phone bugged.
