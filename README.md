@@ -1,1 +1,2 @@
-You love peace.
+Don't Worry, Be Happy.
+		-- Meher Baba
