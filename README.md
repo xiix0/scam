@@ -1,1 +1,2 @@
-Don't read any sky-writing for the next two weeks.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
