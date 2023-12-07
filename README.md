@@ -1,2 +1,3 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Q:	How many Zen masters does it take to screw in a light bulb?
+A:	None.  The Universe spins the bulb, and the Zen master stays out
+	of the way.
