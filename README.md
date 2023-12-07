@@ -1,1 +1,2 @@
-Long life is in store for you.
+Don't Worry, Be Happy.
+		-- Meher Baba
