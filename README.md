@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+Long life is in store for you.
