@@ -1,2 +1,3 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+Anyone who has had a bull by the tail knows five or six more things
+than someone who hasn't.
+		-- Mark Twain
