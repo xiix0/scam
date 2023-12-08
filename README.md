@@ -1,2 +1,2 @@
-If you tell the truth you don't have to remember anything.
-		-- Mark Twain
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
