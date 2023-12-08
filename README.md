@@ -1,1 +1,1 @@
-Beware of a tall black man with one blond shoe.
+You never hesitate to tackle the most difficult problems.
