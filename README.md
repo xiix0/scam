@@ -1,2 +1,2 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
