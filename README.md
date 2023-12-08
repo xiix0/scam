@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+Try to value useful qualities in one who loves you.
