@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
