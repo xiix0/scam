@@ -1,1 +1,2 @@
-Everything that you know is wrong, but you can be straightened out.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
