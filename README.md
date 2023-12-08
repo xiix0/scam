@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
