@@ -1,2 +1,5 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+Q:	What do you call a blind pre-historic animal?
+A:	Diyathinkhesaurus.
+
+Q:	What do you call a blind pre-historic animal with a dog?
+A:	Diyathinkhesaurus Rex.
