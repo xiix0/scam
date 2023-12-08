@@ -1,3 +1,2 @@
-Grief can take care of itself; but to get the full value of a joy you must
-have somebody to divide it with.
-		-- Mark Twain
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
