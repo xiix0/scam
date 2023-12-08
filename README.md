@@ -1,1 +1,1 @@
-You will be divorced within a year.
+People are beginning to notice you.  Try dressing before you leave the house.
