@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+Generosity and perfection are your everlasting goals.
