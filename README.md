@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+Life is to you a dashing and bold adventure.
