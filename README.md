@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+You will attract cultured and artistic people to your home.
