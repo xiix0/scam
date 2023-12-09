@@ -1,3 +1,3 @@
-I must have a prodigious quantity of mind; it takes me as much as a
-week sometimes to make it up.
-		-- Mark Twain, "The Innocents Abroad"
+The mind is its own place, and in itself
+Can make a Heav'n of Hell, a Hell of Heav'n.
+		-- John Milton
