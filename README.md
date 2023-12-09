@@ -1,1 +1,2 @@
-Today is the last day of your life so far.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
