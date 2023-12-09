@@ -1,1 +1,2 @@
-You have a truly strong individuality.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
