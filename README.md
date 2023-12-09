@@ -1,1 +1,2 @@
-Your domestic life may be harmonious.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
