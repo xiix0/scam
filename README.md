@@ -1,2 +1,2 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
