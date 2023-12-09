@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+You will hear good news from one you thought unfriendly to you.
