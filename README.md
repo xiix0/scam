@@ -1,3 +1,1 @@
-The difference between a Miracle and a Fact is exactly the difference
-between a mermaid and a seal.
-		-- Mark Twain
+You are a fluke of the universe; you have no right to be here.
