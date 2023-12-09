@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
