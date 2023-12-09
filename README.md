@@ -1,1 +1,2 @@
-Today is the first day of the rest of the mess.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
