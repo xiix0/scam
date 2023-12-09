@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+If you stand on your head, you will get footprints in your hair.
