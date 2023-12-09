@@ -1,1 +1,2 @@
-Many pages make a thick book.
+A is for Apple.
+		-- Hester Pryne
