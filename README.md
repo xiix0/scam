@@ -1,4 +1,9 @@
-It is easy to find fault, if one has that disposition.  There was once a man
-who, not being able to find any other fault with his coal, complained that
-there were too many prehistoric toads in it.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many DEC repairman does it take to fix a flat?
+A:	Five; four to hold the car up and one to swap tires.
+
+Q:	How long does it take?
+A:	It's indeterminate.
+	It will depend upon how many flats they've brought with them.
+
+Q:	What happens if you've got TWO flats?
+A:	They replace your generator.
