@@ -1,2 +1,1 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+Increased knowledge will help you now.  Have mate's phone bugged.
