@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+Q:	What is the sound of one cat napping?
+A:	Mu.
