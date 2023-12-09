@@ -1,1 +1,1 @@
-Try to have as good a life as you can under the circumstances.
+You like to form new friendships and make new acquaintances.
