@@ -1,3 +1,1 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+Your object is to save the world, while still leading a pleasant life.
