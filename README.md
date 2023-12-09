@@ -1,2 +1,3 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+I must have a prodigious quantity of mind; it takes me as much as a
+week sometimes to make it up.
+		-- Mark Twain, "The Innocents Abroad"
