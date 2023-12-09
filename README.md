@@ -1,3 +1,1 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+Try to have as good a life as you can under the circumstances.
