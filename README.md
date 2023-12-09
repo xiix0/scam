@@ -1,1 +1,1 @@
-Of course you have a purpose -- to find a purpose.
+Today is the first day of the rest of the mess.
