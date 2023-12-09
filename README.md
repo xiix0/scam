@@ -1,2 +1,3 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+Q:	What do you call the money you pay to the government when
+	you ride into the country on the back of an elephant?
+A:	A howdah duty.
