@@ -1,1 +1,1 @@
-Your object is to save the world, while still leading a pleasant life.
+Today is the last day of your life so far.
