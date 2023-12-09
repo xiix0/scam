@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+You will be awarded the Nobel Peace Prize... posthumously.
