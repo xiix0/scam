@@ -1,1 +1,2 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
