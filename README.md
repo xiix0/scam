@@ -1,1 +1,2 @@
-You will be winged by an anti-aircraft battery.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
