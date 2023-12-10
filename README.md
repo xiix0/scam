@@ -1,2 +1,2 @@
-"Life, loathe it or ignore it, you can't like it."
-		-- Marvin, "Hitchhiker's Guide to the Galaxy"
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
