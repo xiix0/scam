@@ -1,1 +1,2 @@
-You will gain money by a fattening action.
+All generalizations are false, including this one.
+		-- Mark Twain
