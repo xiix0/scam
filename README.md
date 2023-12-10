@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+Let me put it this way: today is going to be a learning experience.
