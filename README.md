@@ -1,1 +1,2 @@
-Expect the worst, it's the least you can do.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
