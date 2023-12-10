@@ -1,1 +1,2 @@
-You will be surprised by a loud noise.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
