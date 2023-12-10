@@ -1,1 +1,2 @@
-You will visit the Dung Pits of Glive soon.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
