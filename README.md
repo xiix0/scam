@@ -1,2 +1,2 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+You will pay for your sins.  If you have already paid, please disregard
+this message.
