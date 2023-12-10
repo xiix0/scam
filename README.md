@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Don't kiss an elephant on the lips today.
