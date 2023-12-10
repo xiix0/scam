@@ -1,2 +1,2 @@
-If you tell the truth you don't have to remember anything.
+There is no distinctly native American criminal class except Congress.
 		-- Mark Twain
