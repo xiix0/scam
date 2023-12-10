@@ -1,2 +1,1 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+You plan things that you do not even attempt because of your extreme caution.
