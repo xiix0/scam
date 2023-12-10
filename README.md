@@ -1,1 +1,2 @@
-Don't let your mind wander -- it's too little to be let out alone.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
