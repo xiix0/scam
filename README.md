@@ -1,2 +1,2 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
