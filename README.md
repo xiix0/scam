@@ -1,2 +1,3 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
