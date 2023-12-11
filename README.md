@@ -1,1 +1,2 @@
-You get along very well with everyone except animals and people.
+When in doubt, tell the truth.
+		-- Mark Twain
