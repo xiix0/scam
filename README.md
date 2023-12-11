@@ -1,1 +1,2 @@
-You are standing on my toes.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
