@@ -1,1 +1,2 @@
-You will not be elected to public office this year.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
