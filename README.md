@@ -1,1 +1,2 @@
-You don't become a failure until you're satisfied with being one.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
