@@ -1,1 +1,2 @@
-Don't get stuck in a closet -- wear yourself out.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
