@@ -1,3 +1,4 @@
-The human race is a race of cowards; and I am not only marching in that
-procession but carrying a banner.
+In India, "cold weather" is merely a conventional phrase and has come into
+use through the necessity of having some way to distinguish between weather
+which will melt a brass door-knob and weather which will only make it mushy.
 		-- Mark Twain
