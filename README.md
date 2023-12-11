@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+You will meet an important person who will help you advance professionally.
