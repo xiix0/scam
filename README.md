@@ -1,2 +1,3 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
