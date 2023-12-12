@@ -1,1 +1,2 @@
-Excellent day for putting Slinkies on an escalator.
+All generalizations are false, including this one.
+		-- Mark Twain
