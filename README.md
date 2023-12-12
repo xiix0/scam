@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+A few hours grace before the madness begins again.
