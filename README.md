@@ -1,1 +1,1 @@
-You now have Asian Flu.
+There is a 20% chance of tomorrow.
