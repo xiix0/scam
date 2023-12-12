@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Tomorrow will be cancelled due to lack of interest.
