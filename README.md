@@ -1,2 +1,2 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
