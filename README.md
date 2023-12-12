@@ -1,2 +1,3 @@
-You learn to write as if to someone else because NEXT YEAR YOU WILL BE
-"SOMEONE ELSE."
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
