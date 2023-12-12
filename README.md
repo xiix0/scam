@@ -1,2 +1,2 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+You tread upon my patience.
+		-- William Shakespeare, "Henry IV"
