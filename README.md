@@ -1,2 +1,1 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
