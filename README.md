@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+A few hours grace before the madness begins again.
