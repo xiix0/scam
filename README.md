@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+You recoil from the crude; you tend naturally toward the exquisite.
