@@ -1,1 +1,2 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
