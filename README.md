@@ -1,2 +1,1 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
