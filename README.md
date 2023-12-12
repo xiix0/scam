@@ -1,1 +1,1 @@
-You'll never be the man your mother was!
+You will be advanced socially, without any special effort on your part.
