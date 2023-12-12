@@ -1,2 +1,1 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
