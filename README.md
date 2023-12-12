@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+You're working under a slight handicap.  You happen to be human.
