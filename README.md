@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+You can rent this space for only $5 a week.
