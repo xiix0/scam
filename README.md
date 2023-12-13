@@ -1,1 +1,2 @@
-You have a strong appeal for members of the opposite sex.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
