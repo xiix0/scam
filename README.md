@@ -1,2 +1,1 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
