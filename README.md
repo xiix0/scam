@@ -1,19 +1,13 @@
-"Speak, thou vast and venerable head," muttered Ahab, "which, though
-ungarnished with a beard, yet here and there lookest hoary with mosses; speak,
-mighty head, and tell us the secret thing that is in thee.  Of all divers,
-thou has dived the deepest.  That head upon which the upper sun now gleams has
-moved amid the world's foundations.  Where unrecorded names and navies rust,
-and untold hopes and anchors rot; where in her murderous hold this frigate
-earth is ballasted with bones of millions of the drowned; there, in that awful
-water-land, there was thy most familiar home.  Thou hast been where bell or
-diver never went; has slept by many a sailer's side, where sleepless mothers
-would give their lives to lay them down.  Thou saw'st the locked lovers when
-leaping from their flaming ship; heart to heart they sank beneath the exulting
-wave; true to each other, when heaven seemed false to them.  Thou saw'st the
-murdered mate when tossed by pirates from the midnight deck; for hours he fell
-into the deeper midnight of the insatiate maw; and his murderers still sailed
-on unharmed -- while swift lightnings shivered the neighboring ship that would
-have borne a righteous husband to outstretched, longing arms.  O head! thou has
-seen enough to split the planets and make an infidel of Abraham, and not one
-syllable is thine!"
-		-- H. Melville, "Moby Dick"
+His followers called him Mahasamatman and said he was a god.  He preferred
+to drop the Maha- and the -atman, however, and called himself Sam.  He never
+claimed to be a god.  But then, he never claimed not to be a god.  Circum-
+stances being what they were, neither admission could be of any benefit.
+Silence, though, could.  It was in the days of the rains that their prayers
+went up, not from the fingering of knotted prayer cords or the spinning of
+prayer wheels, but from the great pray-machine in the monastery of Ratri,
+goddess of the Night.  The high-frequency prayers were directed upward through
+the atmosphere and out beyond it, passing into that golden cloud called the
+Bridge of the Gods, which circles the entire world, is seen as a bronze
+rainbow at night and is the place where the red sun becomes orange at midday.
+Some of the monks doubted the orthodoxy of this prayer technique...
+		-- Roger Zelazny, "Lord of Light"
