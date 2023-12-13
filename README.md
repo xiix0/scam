@@ -1,2 +1,1 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+Stay away from hurricanes for a while.
