@@ -1,1 +1,2 @@
-You will be married within a year.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
