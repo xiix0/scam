@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+You will attract cultured and artistic people to your home.
