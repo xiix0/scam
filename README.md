@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
