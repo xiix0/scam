@@ -1,2 +1,1 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+You don't become a failure until you're satisfied with being one.
