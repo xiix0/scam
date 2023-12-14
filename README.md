@@ -1,2 +1,2 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
