@@ -1,1 +1,2 @@
-You're definitely on their list.  The question to ask next is what list it is.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
