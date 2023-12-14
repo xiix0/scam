@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
