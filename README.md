@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+Live in a world of your own, but always welcome visitors.
