@@ -1,1 +1,2 @@
-Your aims are high, and you are capable of much.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
