@@ -1,3 +1,3 @@
-Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
-are not the person involved.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+I don't know half of you half as well as I should like; and I like less
+than half of you half as well as you deserve.
+		-- J. R. R. Tolkien
