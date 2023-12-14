@@ -1,1 +1,1 @@
-Be careful!  Is it classified?
+Excellent day for putting Slinkies on an escalator.
