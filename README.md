@@ -1,3 +1,5 @@
-Q:	Why does Washington have the most lawyers per capita and
-	New Jersey the most toxic waste dumps?
-A:	God gave New Jersey first choice.
+Q:	How do you catch a unique rabbit?
+A:	Unique up on it!
+
+Q:	How do you catch a tame rabbit?
+A:	The tame way!
