@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+Keep emotionally active.  Cater to your favorite neurosis.
