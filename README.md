@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Be careful!  Is it classified?
