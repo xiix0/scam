@@ -1,2 +1,2 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
