@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+You are confused; but this is your normal state.
