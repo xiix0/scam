@@ -1,1 +1,2 @@
-You will attract cultured and artistic people to your home.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
