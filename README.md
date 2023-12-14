@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+Go to a movie tonight.  Darkness becomes you.
