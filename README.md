@@ -1,2 +1,1 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+Today is the tomorrow you worried about yesterday.
