@@ -1,2 +1,2 @@
-If you learn one useless thing every day, in a single year you'll learn
-365 useless things.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
