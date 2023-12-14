@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Your nature demands love and your happiness depends on it.
