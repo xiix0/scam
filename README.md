@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
