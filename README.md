@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+Let me put it this way: today is going to be a learning experience.
