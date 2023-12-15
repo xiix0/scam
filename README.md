@@ -1,2 +1,2 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
