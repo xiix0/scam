@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+You're almost as happy as you think you are.
