@@ -1,4 +1,1 @@
-F.S. Fitzgerald to Hemingway:
-	"Ernest, the rich are different from us."
-Hemingway:
-	"Yes.  They have more money."
+Today is National Existential Ennui Awareness Day.
