@@ -1,1 +1,2 @@
-You will be given a post of trust and responsibility.
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
