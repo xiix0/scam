@@ -1,1 +1,2 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
