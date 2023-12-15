@@ -1,2 +1,2 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
