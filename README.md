@@ -1,1 +1,2 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
