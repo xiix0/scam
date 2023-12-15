@@ -1,2 +1,2 @@
-Q:	How many college football players does it take to screw in a light bulb?
-A:	Only one, but he gets three credits for it.
+I fell asleep reading a dull book, and I dreamt that I was reading on,
+so I woke up from sheer boredom.
