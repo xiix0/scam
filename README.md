@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+Life is to you a dashing and bold adventure.
