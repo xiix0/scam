@@ -1,1 +1,2 @@
-It was all so different before everything changed.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
