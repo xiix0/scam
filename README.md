@@ -1,2 +1,1 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+Living your life is a task so difficult, it has never been attempted before.
