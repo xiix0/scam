@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+You will reach the highest possible point in your business or profession.
