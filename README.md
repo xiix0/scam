@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+Your aims are high, and you are capable of much.
