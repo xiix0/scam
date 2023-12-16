@@ -1,1 +1,1 @@
-Beware of a tall black man with one blond shoe.
+You're not my type.  For that matter, you're not even my species!!!
