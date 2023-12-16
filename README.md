@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+It's all in the mind, ya know.
