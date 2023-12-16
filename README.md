@@ -1,2 +1,2 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
