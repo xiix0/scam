@@ -1,2 +1,3 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
