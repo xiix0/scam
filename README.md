@@ -1,2 +1,3 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+Someone is speaking well of you.
+
+How unusual!
