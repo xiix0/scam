@@ -1,2 +1,1 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+Increased knowledge will help you now.  Have mate's phone bugged.
