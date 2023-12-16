@@ -1,1 +1,2 @@
-You need more time; and you probably always will.
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
