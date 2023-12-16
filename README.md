@@ -1,1 +1,4 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+In Marseilles they make half the toilet soap we consume in America, but
+the Marseillaise only have a vague theoretical idea of its use, which they
+have obtained from books of travel.
+		-- Mark Twain
