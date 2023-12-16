@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+You have an ability to sense and know higher truth.
