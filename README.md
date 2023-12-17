@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+The Public is merely a multiplied "me."
+		-- Mark Twain
