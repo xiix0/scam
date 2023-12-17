@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+You will overcome the attacks of jealous associates.
