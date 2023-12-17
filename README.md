@@ -1,2 +1,2 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
