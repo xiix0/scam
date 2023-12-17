@@ -1,1 +1,3 @@
-You have a will that can be influenced by all with whom you come in contact.
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
