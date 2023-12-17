@@ -1,2 +1,2 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
