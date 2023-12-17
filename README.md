@@ -1,1 +1,1 @@
-Your step will soil many countries.
+Today is National Existential Ennui Awareness Day.
