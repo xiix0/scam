@@ -1,2 +1,3 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Grief can take care of itself; but to get the full value of a joy you must
+have somebody to divide it with.
+		-- Mark Twain
