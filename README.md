@@ -1,2 +1,2 @@
-English literature's performing flea.
-		-- Sean O'Casey on P. G. Wodehouse
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
