@@ -1,3 +1,1 @@
-Grief can take care of itself; but to get the full value of a joy you must
-have somebody to divide it with.
-		-- Mark Twain
+You will soon meet a person who will play an important role in your life.
