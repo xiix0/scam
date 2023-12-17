@@ -1,1 +1,1 @@
-Is that really YOU that is reading this?
+Your boss climbed the corporate ladder, wrong by wrong.
