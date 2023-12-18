@@ -1,2 +1,1 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+Good day to let down old friends who need help.
