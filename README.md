@@ -1,1 +1,2 @@
-You will receive a legacy which will place you above want.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
