@@ -1,2 +1,1 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+You're at the end of the road again.
