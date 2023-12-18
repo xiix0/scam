@@ -1,2 +1,2 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
