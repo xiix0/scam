@@ -1,2 +1,1 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+You work very hard.  Don't try to think as well.
