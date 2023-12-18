@@ -1,1 +1,2 @@
-Never reveal your best argument.
+He is now rising from affluence to poverty.
+		-- Mark Twain
