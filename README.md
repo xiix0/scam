@@ -1,1 +1,2 @@
-You can rent this space for only $5 a week.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
