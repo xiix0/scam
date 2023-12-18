@@ -1,4 +1,2 @@
-Behold, the fool saith, "Put not all thine eggs in the one basket"--which is
-but a manner of saying, "Scatter your money and your attention;" but the wise
-man saith, "Put all your eggs in the one basket and--WATCH THAT BASKET."
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
