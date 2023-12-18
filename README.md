@@ -1,2 +1,1 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+You have many friends and very few living enemies.
