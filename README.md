@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+Look afar and see the end from the beginning.
