@@ -1,1 +1,3 @@
-You are a very redundant person, that's what kind of person you are.
+Its name is Public Opinion.  It is held in reverence.  It settles everything.
+Some think it is the voice of God.
+		-- Mark Twain
