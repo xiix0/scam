@@ -1,2 +1,2 @@
-All generalizations are false, including this one.
+When in doubt, tell the truth.
 		-- Mark Twain
