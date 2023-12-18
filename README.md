@@ -1,1 +1,2 @@
-Many pages make a thick book.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
