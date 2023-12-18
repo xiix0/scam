@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+You attempt things that you do not even plan because of your extreme stupidity.
