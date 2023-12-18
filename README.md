@@ -1,2 +1,2 @@
-Few things are harder to put up with than the annoyance of a good example.
-		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
