@@ -1,2 +1,2 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
