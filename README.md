@@ -1,1 +1,2 @@
-You work very hard.  Don't try to think as well.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
