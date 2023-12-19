@@ -1,3 +1,1 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+You will be honored for contributing your time and skill to a worthy cause.
