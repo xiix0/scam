@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
