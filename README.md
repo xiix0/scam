@@ -1,2 +1,3 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
