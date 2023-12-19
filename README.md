@@ -1,2 +1,2 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
