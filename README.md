@@ -1,1 +1,2 @@
-Your boyfriend takes chocolate from strangers.
+Conscience doth make cowards of us all.
+		-- Shakespeare
