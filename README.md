@@ -1,1 +1,1 @@
-You will have long and healthy life.
+You will be called upon to help a friend in trouble.
