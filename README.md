@@ -1,2 +1,1 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+Everything that you know is wrong, but you can be straightened out.
