@@ -1,3 +1,2 @@
-Soap and education are not as sudden as a massacre, but they are more
-deadly in the long run.
-		-- Mark Twain
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
