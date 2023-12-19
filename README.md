@@ -1,1 +1,2 @@
-You are as I am with You.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
