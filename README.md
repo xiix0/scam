@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+Your business will assume vast proportions.
