@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+Best of all is never to have been born.  Second best is to die soon.
