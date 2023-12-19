@@ -1,3 +1,2 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+Q:	What's the difference between Bell Labs and the Boy Scouts of America?
+A:	The Boy Scouts have adult supervision.
