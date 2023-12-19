@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+Living your life is a task so difficult, it has never been attempted before.
