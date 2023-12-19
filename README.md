@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
