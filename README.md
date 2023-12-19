@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+You are the only person to ever get this message.
