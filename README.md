@@ -1,1 +1,2 @@
-Best of all is never to have been born.  Second best is to die soon.
+	A man was reading The Canterbury Tales one Saturday morning, when his
+wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
