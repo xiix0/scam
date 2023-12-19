@@ -1,1 +1,2 @@
-Are you making all this up as you go along?
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
