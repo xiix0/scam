@@ -1,1 +1,2 @@
-You will not be elected to public office this year.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
