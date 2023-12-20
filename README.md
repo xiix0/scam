@@ -1,1 +1,2 @@
-You will meet an important person who will help you advance professionally.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
