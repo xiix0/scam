@@ -1,2 +1,5 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+October 12, the Discovery.
+
+It was wonderful to find America, but it would have been more wonderful to miss
+it.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
