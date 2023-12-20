@@ -1,1 +1,2 @@
-You will triumph over your enemy.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
