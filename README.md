@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
