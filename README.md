@@ -1,2 +1,1 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+You definitely intend to start living sometime soon.
