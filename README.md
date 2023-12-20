@@ -1,1 +1,3 @@
-A few hours grace before the madness begins again.
+Questionable day.
+
+Ask somebody something.
