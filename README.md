@@ -1,2 +1,1 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+You have Egyptian flu: you're going to be a mummy.
