@@ -1,2 +1,2 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
