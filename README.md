@@ -1,2 +1,3 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+A classic is something that everyone wants to have read
+and nobody wants to read.
+		-- Mark Twain, "The Disappearance of Literature"
