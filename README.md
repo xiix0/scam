@@ -1,1 +1,1 @@
-You will attract cultured and artistic people to your home.
+Don't you wish you had more energy... or less ambition?
