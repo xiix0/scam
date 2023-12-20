@@ -1,2 +1,1 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
