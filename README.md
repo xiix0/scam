@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+Time to be aggressive.  Go after a tattooed Virgo.
