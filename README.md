@@ -1,3 +1,2 @@
-Someone is speaking well of you.
-
-How unusual!
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
