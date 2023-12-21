@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Be careful!  UGLY strikes 9 out of 10!
