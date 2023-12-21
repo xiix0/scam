@@ -1,1 +1,2 @@
-You will be surprised by a loud noise.
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
