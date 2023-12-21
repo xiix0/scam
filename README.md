@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
+No group of professionals meets except to conspire against the public at large.
 		-- Mark Twain
