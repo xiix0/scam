@@ -1,1 +1,2 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
