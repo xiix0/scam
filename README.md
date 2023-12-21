@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Tomorrow, you can be anywhere.
