@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+Today is National Existential Ennui Awareness Day.
