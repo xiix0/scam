@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+You are a very redundant person, that's what kind of person you are.
