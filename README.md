@@ -1,2 +1,3 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
