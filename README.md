@@ -1,1 +1,2 @@
-Tomorrow, you can be anywhere.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
