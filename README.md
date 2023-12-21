@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+Future looks spotty.  You will spill soup in late evening.
