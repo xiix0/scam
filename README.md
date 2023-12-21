@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+After your lover has gone you will still have PEANUT BUTTER!
