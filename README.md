@@ -1,2 +1,2 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
