@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+Stay away from flying saucers today.
