@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Your own qualities will help prevent your advancement in the world.
