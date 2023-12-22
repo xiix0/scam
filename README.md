@@ -1,1 +1,1 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+Your sister swims out to meet troop ships.
