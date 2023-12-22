@@ -1,3 +1,1 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
-A:	The Royal Canadian Mounted Police.
-Q:	What was the greatest achievement in taxidermy?
+Think twice before speaking, but don't say "think think click click".
