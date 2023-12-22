@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of new developments.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
