@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
