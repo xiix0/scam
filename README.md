@@ -1,3 +1,3 @@
-You never have to change anything you got up in the middle of the night
-to write.
-		-- Saul Bellow
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
