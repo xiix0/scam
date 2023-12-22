@@ -1,2 +1,3 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
