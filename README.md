@@ -1,5 +1,3 @@
-Steady movement is more important than speed, much of the time.  So long
-as there is a regular progression of stimuli to get your mental hooks
-into, there is room for lateral movement.  Once this begins, its rate is
-a matter of discretion.
-		-- Corwin, Prince of Amber
+Q:	How many Oregonians does it take to screw in a light bulb?
+A:	Three.  One to screw in the light bulb and two to fend off all those
+	Californians trying to share the experience.
