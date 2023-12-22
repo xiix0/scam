@@ -1,11 +1,6 @@
-Q:	How many hardware engineers does it take to change a light bulb?
-A:	None.  We'll fix it in software.
-
-Q:	How many system programmers does it take to change a light bulb?
-A:	None.  The application can work around it.
-
-Q:	How many software engineers does it take to change a light bulb?
-A:	None.  We'll document it in the manual.
-
-Q:	How many tech writers does it take to change a light bulb?
-A:	None.  The user can figure it out.
+	The Priest's grey nimbus in a niche where he dressed discreetly.
+I will not sleep here tonight. Home also I cannot go.
+	A voice, sweetened and sustained, called to him from the sea.
+Turning the curve he waved his hand.  A sleek brown head, a seal's, far
+out on the water, round.  Usurper.
+		-- James Joyce, "Ulysses"
