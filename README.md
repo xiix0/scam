@@ -1,1 +1,1 @@
-You have a deep appreciation of the arts and music.
+Good day for a change of scene.  Repaper the bedroom wall.
