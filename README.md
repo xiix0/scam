@@ -1,1 +1,1 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+Your mode of life will be changed for the better because of new developments.
