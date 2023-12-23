@@ -1,1 +1,1 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+You have a strong desire for a home and your family interests come first.
