@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+Snow Day -- stay home.
