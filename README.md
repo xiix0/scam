@@ -1,1 +1,3 @@
-Living your life is a task so difficult, it has never been attempted before.
+It is so very hard to be an
+on-your-own-take-care-of-yourself-because-there-is-no-one-else-to-do-it-for-you
+grown-up.
