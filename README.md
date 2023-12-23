@@ -1,1 +1,2 @@
-You never hesitate to tackle the most difficult problems.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
