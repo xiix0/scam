@@ -1,2 +1,1 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+You attempt things that you do not even plan because of your extreme stupidity.
