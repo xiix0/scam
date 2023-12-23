@@ -1,1 +1,1 @@
-You will have long and healthy life.
+Among the lucky, you are the chosen one.
