@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+Tomorrow, you can be anywhere.
