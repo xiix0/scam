@@ -1,1 +1,2 @@
-Alimony and bribes will engage a large share of your wealth.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
