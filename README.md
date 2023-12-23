@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+You will be reincarnated as a toad; and you will be much happier.
