@@ -1,2 +1,1 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+You work very hard.  Don't try to think as well.
