@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+All the troubles you have will pass away very quickly.
