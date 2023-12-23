@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+People are beginning to notice you.  Try dressing before you leave the house.
