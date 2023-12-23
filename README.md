@@ -1,1 +1,1 @@
-Never reveal your best argument.
+Are you a turtle?
