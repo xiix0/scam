@@ -1,1 +1,2 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
