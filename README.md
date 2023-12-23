@@ -1,1 +1,1 @@
-You will be reincarnated as a toad; and you will be much happier.
+Be careful!  UGLY strikes 9 out of 10!
