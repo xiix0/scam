@@ -1,7 +1,5 @@
-	My dear People.
-	My dear Bagginses and Boffins, and my dear Tooks and Brandybucks,
-and Grubbs, and Chubbs, and Burrowses, and Hornblowers, and Bolgers,
-Bracegirdles, Goodbodies, Brockhouses and Proudfoots.  Also my good
-Sackville Bagginses that I welcome back at last to Bag End.  Today is my
-one hundred and eleventh birthday: I am eleventy-one today!"
-		-- J. R. R. Tolkien
+We should be careful to get out of an experience only the wisdom that is
+in it - and stay there, lest we be like the cat that sits down on a hot
+stove-lid.  She will never sit down on a hot stove-lid again - and that
+is well; but also she will never sit down on a cold one any more.
+		-- Mark Twain
