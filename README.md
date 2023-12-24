@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+You will be aided greatly by a person whom you thought to be unimportant.
