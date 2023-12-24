@@ -1,1 +1,2 @@
-Your nature demands love and your happiness depends on it.
+Q:	Are we not men?
+A:	We are Vaxen.
