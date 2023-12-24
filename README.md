@@ -1,1 +1,1 @@
-You will step on the night soil of many countries.
+You'll feel much better once you've given up hope.
