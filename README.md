@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+You are capable of planning your future.
