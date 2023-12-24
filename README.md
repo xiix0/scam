@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+Your boyfriend takes chocolate from strangers.
