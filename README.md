@@ -1,2 +1,2 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
