@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
