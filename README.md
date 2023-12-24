@@ -1,2 +1,2 @@
-Big book, big bore.
-		-- Callimachus
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
