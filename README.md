@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+You are the only person to ever get this message.
