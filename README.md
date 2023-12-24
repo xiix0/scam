@@ -1,1 +1,2 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
