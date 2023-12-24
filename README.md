@@ -1,1 +1,1 @@
-What happened last night can happen again.
+Today is National Existential Ennui Awareness Day.
