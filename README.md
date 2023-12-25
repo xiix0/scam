@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
