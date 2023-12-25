@@ -1,1 +1,1 @@
-Is this really happening?
+You are confused; but this is your normal state.
