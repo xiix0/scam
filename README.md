@@ -1,1 +1,1 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Are you making all this up as you go along?
