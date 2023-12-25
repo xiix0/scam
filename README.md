@@ -1,1 +1,2 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
