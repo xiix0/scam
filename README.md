@@ -1,1 +1,2 @@
-Are you making all this up as you go along?
+What I tell you three times is true.
+		-- Lewis Carroll
