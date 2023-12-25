@@ -1,2 +1,2 @@
-Few things are harder to put up with than the annoyance of a good example.
-		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
+There is a great discovery still to be made in Literature: that of
+paying literary men by the quantity they do NOT write.
