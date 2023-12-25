@@ -1,2 +1,2 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
