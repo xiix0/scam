@@ -1,1 +1,2 @@
-Of course you have a purpose -- to find a purpose.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
