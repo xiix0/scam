@@ -1,2 +1,2 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
