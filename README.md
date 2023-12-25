@@ -1,2 +1,1 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+You attempt things that you do not even plan because of your extreme stupidity.
