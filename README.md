@@ -1,2 +1,3 @@
-Q:	Why did the WASP cross the road?
-A:	To get to the middle.
+Your manuscript is both good and original, but the part that is good is not
+original and the part that is original is not good.
+		-- Samuel Johnson
