@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+You prefer the company of the opposite sex, but are well liked by your own.
