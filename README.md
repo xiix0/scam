@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+You like to form new friendships and make new acquaintances.
