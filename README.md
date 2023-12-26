@@ -1,2 +1,2 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
