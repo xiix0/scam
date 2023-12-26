@@ -1,1 +1,2 @@
-You will be traveling and coming into a fortune.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
