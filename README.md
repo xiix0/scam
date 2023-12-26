@@ -1,1 +1,2 @@
-Abandon the search for Truth; settle for a good fantasy.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
