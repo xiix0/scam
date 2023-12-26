@@ -1,2 +1,2 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
