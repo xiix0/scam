@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
