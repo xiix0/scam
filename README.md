@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+So this is it.  We're going to die.
