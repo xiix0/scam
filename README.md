@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
