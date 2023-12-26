@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+A tall, dark stranger will have more fun than you.
