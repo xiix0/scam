@@ -1,3 +1,2 @@
-Q:	What do you call the money you pay to the government when
-	you ride into the country on the back of an elephant?
-A:	A howdah duty.
+Q:	How many marketing people does it take to change a light bulb?
+A:	I'll have to get back to you on that.
