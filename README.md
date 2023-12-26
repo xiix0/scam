@@ -1,2 +1,2 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
