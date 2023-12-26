@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+Try to value useful qualities in one who loves you.
