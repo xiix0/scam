@@ -1,2 +1,1 @@
-No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
-		-- Sherlock Holmes
+Perfect day for scrubbing the floor and other exciting things.
