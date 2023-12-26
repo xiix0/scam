@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+Stay away from hurricanes for a while.
