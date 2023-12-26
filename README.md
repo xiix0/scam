@@ -1,2 +1,1 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+Today is the first day of the rest of your life.
