@@ -1,1 +1,1 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
