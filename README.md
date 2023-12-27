@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+Your fly might be open (but don't check it just now).
