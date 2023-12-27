@@ -1,1 +1,1 @@
-Blow it out your ear.
+Don't you wish you had more energy... or less ambition?
