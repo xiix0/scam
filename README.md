@@ -1,1 +1,2 @@
-If your life was a horse, you'd have to shoot it.
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
