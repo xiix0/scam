@@ -1,2 +1,2 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
