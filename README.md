@@ -1,3 +1,2 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
