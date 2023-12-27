@@ -1,1 +1,2 @@
-You will be awarded a medal for disregarding safety in saving someone.
+After all, all he did was string together a lot of old, well-known quotations.
+		-- H. L. Mencken, on Shakespeare
