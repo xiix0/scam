@@ -1,1 +1,2 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
