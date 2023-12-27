@@ -1,2 +1,1 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+Your mode of life will be changed for the better because of good news soon.
