@@ -1,2 +1,1 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+You have a strong desire for a home and your family interests come first.
