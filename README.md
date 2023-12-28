@@ -1,2 +1,3 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+Q:	How does a hacker fix a function which
+	doesn't work for all of the elements in its domain?
+A:	He changes the domain.
