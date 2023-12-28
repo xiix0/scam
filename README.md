@@ -1,1 +1,1 @@
-You will be divorced within a year.
+Never reveal your best argument.
