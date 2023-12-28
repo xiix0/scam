@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+You will overcome the attacks of jealous associates.
