@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+Q:	What do you call a half-dozen Indians with Asian flu?
+A:	Six sick Sikhs (sic).
