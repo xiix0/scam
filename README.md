@@ -1,2 +1,1 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+If you sow your wild oats, hope for a crop failure.
