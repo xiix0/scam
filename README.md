@@ -1,2 +1,2 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
