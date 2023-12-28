@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+Give your very best today.  Heaven knows it's little enough.
