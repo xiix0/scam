@@ -1,1 +1,3 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Work consists of whatever a body is obliged to do.
+Play consists of whatever a body is not obliged to do.
+		-- Mark Twain
