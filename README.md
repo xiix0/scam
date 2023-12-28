@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Never be led astray onto the path of virtue.
