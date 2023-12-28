@@ -1,1 +1,1 @@
-Give your very best today.  Heaven knows it's little enough.
+Time to be aggressive.  Go after a tattooed Virgo.
