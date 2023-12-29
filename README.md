@@ -1,1 +1,2 @@
-Keep it short for pithy sake.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
