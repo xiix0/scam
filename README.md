@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+Be security conscious -- National defense is at stake.
