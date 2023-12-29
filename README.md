@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
