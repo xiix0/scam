@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
