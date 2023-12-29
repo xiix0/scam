@@ -1,2 +1,1 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+Of course you have a purpose -- to find a purpose.
