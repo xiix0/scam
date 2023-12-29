@@ -1,1 +1,3 @@
-Of course you have a purpose -- to find a purpose.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
