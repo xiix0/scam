@@ -1,1 +1,2 @@
-You may get an opportunity for advancement today.  Watch it!
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
