@@ -1,1 +1,1 @@
-Bridge ahead.  Pay troll.
+You will hear good news from one you thought unfriendly to you.
