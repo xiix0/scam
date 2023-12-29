@@ -1,1 +1,2 @@
-You will feel hungry again in another hour.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
