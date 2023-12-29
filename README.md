@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+Today is the first day of the rest of your life.
