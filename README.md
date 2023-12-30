@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+Avoid gunfire in the bathroom tonight.
