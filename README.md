@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
