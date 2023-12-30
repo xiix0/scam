@@ -1,2 +1,3 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+Consider well the proportions of things.  It is better to be a young June-bug
+than an old bird of paradise.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
