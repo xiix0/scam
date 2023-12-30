@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
