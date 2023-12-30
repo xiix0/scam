@@ -1,3 +1,1 @@
-Q:	What do you call a WASP who doesn't work for his father, isn't a
-	lawyer, and believes in social causes?
-A:	A failure.
+A visit to a fresh place will bring strange work.
