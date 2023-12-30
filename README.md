@@ -1,2 +1,3 @@
-Q:	Why do firemen wear red suspenders?
-A:	To conform with departmental regulations concerning uniform dress.
+Q:	How many bureaucrats does it take to screw in a light bulb?
+A:	Two.  One to assure everyone that everything possible is being
+	done while the other screws the bulb into the water faucet.
