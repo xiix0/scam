@@ -1,1 +1,1 @@
-Your boyfriend takes chocolate from strangers.
+You will be advanced socially, without any special effort on your part.
