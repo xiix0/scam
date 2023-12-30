@@ -1,1 +1,1 @@
-You have many friends and very few living enemies.
+Don't hate yourself in the morning -- sleep till noon.
