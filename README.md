@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+If you can read this, you're too close.
