@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+Don't get stuck in a closet -- wear yourself out.
