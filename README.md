@@ -1,1 +1,3 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+Q:	What does a WASP Mom make for dinner?
+A:	A crisp salad, a hearty soup, a lovely entree, followed by
+	a delicious dessert.
