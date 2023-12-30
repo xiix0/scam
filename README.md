@@ -1,1 +1,1 @@
-Love is in the offing.  Be affectionate to one who adores you.
+Your boss climbed the corporate ladder, wrong by wrong.
