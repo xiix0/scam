@@ -1,1 +1,2 @@
-Don't get stuck in a closet -- wear yourself out.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
