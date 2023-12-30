@@ -1,1 +1,3 @@
-If you stand on your head, you will get footprints in your hair.
+Q:	What do you call a WASP who doesn't work for his father, isn't a
+	lawyer, and believes in social causes?
+A:	A failure.
