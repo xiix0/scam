@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+Love is in the offing.  Be affectionate to one who adores you.
