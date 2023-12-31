@@ -1,1 +1,1 @@
-Tuesday is the Wednesday of the rest of your life.
+You've been leading a dog's life.  Stay off the furniture.
