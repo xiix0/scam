@@ -1,1 +1,1 @@
-Don't read everything you believe.
+You need more time; and you probably always will.
