@@ -1,1 +1,2 @@
-Chicken Little only has to be right once.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
