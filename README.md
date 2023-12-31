@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
