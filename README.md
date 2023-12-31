@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+So this is it.  We're going to die.
