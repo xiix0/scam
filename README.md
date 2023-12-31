@@ -1,1 +1,3 @@
-You are the only person to ever get this message.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
