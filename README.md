@@ -1,2 +1,2 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
