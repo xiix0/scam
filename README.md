@@ -1,1 +1,2 @@
-Your own qualities will help prevent your advancement in the world.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
