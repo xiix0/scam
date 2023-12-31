@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
