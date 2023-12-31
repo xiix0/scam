@@ -1,1 +1,1 @@
-Love is in the offing.  Be affectionate to one who adores you.
+Tuesday is the Wednesday of the rest of your life.
