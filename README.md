@@ -1,1 +1,1 @@
-You will have a long and boring life.
+Chicken Little only has to be right once.
