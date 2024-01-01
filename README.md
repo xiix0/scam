@@ -1,1 +1,2 @@
-You shall be rewarded for a dastardly deed.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
