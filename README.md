@@ -1,2 +1,3 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
+that think they are truffles.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
