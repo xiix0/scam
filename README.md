@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+Don't look now, but the man in the moon is laughing at you.
