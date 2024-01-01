@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+That secret you've been guarding, isn't.
