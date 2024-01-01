@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
