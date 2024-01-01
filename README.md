@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+You will have domestic happiness and faithful friends.
