@@ -1,1 +1,2 @@
-You are going to have a new love affair.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
