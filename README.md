@@ -1,2 +1,1 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Your object is to save the world, while still leading a pleasant life.
