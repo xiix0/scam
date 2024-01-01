@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+You will visit the Dung Pits of Glive soon.
