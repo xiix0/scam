@@ -1,1 +1,2 @@
-Do nothing unless you must, and when you must act -- hesitate.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
