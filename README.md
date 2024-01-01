@@ -1,2 +1,1 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Do nothing unless you must, and when you must act -- hesitate.
