@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Good day to let down old friends who need help.
