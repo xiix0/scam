@@ -1,1 +1,1 @@
-You will soon forget this.
+Do nothing unless you must, and when you must act -- hesitate.
