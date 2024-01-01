@@ -1,2 +1,1 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+You are magnetic in your bearing.
