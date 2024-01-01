@@ -1,1 +1,2 @@
-There will be big changes for you but you will be happy.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
