@@ -1,2 +1,2 @@
-When you are about to die, a wombat is better than no company at all.
-		-- Roger Zelazny, "Doorways in the Sand"
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
