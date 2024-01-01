@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+You will experience a strong urge to do good; but it will pass.
