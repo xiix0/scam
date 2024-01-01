@@ -1,2 +1,2 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
