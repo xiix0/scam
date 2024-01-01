@@ -1,1 +1,2 @@
-Expect the worst, it's the least you can do.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
