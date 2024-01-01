@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+You prefer the company of the opposite sex, but are well liked by your own.
