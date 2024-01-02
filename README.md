@@ -1,2 +1,2 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
