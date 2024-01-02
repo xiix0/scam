@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+Never look up when dragons fly overhead.
