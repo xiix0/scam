@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+Caution: breathing may be hazardous to your health.
