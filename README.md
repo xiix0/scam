@@ -1,1 +1,3 @@
-You have an ambitious nature and may make a name for yourself.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
+A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
+Q:	Who were the Democratic presidential candidates?
