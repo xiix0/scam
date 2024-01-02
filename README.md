@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+Your heart is pure, and your mind clear, and your soul devout.
