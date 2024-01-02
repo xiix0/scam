@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
