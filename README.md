@@ -1,1 +1,2 @@
-You fill a much-needed gap.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
