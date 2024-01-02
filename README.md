@@ -1,2 +1,1 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+Don't read any sky-writing for the next two weeks.
