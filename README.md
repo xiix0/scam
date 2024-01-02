@@ -1,2 +1,2 @@
-Clothes make the man.  Naked people have little or no influence on society.
+It usually takes more than three weeks to prepare a good impromptu speech.
 		-- Mark Twain
