@@ -1,1 +1,2 @@
-You will be the last person to buy a Chrysler.
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
