@@ -1,2 +1,2 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
