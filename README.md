@@ -1,2 +1,1 @@
-I fell asleep reading a dull book, and I dreamt that I was reading on,
-so I woke up from sheer boredom.
+You could live a better life, if you had a better mind and a better body.
