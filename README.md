@@ -1,2 +1,1 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Increased knowledge will help you now.  Have mate's phone bugged.
