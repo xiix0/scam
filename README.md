@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
