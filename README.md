@@ -1,1 +1,1 @@
-You will be audited by the Internal Revenue Service.
+Beware of a tall black man with one blond shoe.
