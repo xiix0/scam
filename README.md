@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You have an ambitious nature and may make a name for yourself.
