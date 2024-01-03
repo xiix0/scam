@@ -1,1 +1,1 @@
-There is a fly on your nose.
+You look like a million dollars.  All green and wrinkled.
