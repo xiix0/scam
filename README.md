@@ -1,1 +1,2 @@
-You will never know hunger.
+Conscience doth make cowards of us all.
+		-- Shakespeare
