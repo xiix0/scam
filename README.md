@@ -1,1 +1,2 @@
-In the stairway of life, you'd best take the elevator.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
