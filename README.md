@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+Don't Worry, Be Happy.
+		-- Meher Baba
