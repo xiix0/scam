@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
