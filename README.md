@@ -1,2 +1,2 @@
-If you laid all of our laws end to end, there would be no end.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
 		-- Mark Twain
