@@ -1,2 +1,2 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
