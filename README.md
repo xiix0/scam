@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+Save energy: be apathetic.
