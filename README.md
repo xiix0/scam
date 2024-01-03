@@ -1,1 +1,1 @@
-You may be recognized soon.  Hide.
+You have an unusual equipment for success.  Be sure to use it properly.
