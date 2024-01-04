@@ -1,2 +1,2 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
