@@ -1,2 +1,1 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+Never be led astray onto the path of virtue.
