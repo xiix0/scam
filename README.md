@@ -1,1 +1,2 @@
-There is a fly on your nose.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
