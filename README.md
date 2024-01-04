@@ -1,2 +1,1 @@
-Q:	How many marketing people does it take to change a light bulb?
-A:	I'll have to get back to you on that.
+Things will be bright in P.M.  A cop will shine a light in your face.
