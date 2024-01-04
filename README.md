@@ -1,8 +1,6 @@
-Delores breezed along the surface of her life like a flat stone forever
-skipping along smooth water, rippling reality sporadically but oblivious
-to it consistently, until she finally lost momentum, sank, and due to an
-overdose of flouride as a child which caused her to suffer from chronic
-apathy, doomed herself to lie forever on the floor of her life as useless
-as an appendix and as lonely as a five-hundred pound barbell in a
-steroid-free fitness center.
-		-- Winning sentence, 1990 Bulwer-Lytton bad fiction contest.
+The true Southern watermelon is a boon apart, and not to be mentioned with
+commoner things.  It is chief of the world's luxuries, king by the grace of God
+over all the fruits of the earth.  When one has tasted it, he knows what the
+angels eat.  It was not a Southern watermelon that Eve took; we know it because
+she repented.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
