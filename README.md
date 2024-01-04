@@ -1,2 +1,1 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+You plan things that you do not even attempt because of your extreme caution.
