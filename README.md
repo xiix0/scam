@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+There is a fly on your nose.
