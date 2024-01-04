@@ -1,2 +1,2 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
