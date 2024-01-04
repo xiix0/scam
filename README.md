@@ -1,5 +1,6 @@
-Q:	How many existentialists does it take to screw in a light bulb?
-A:	Two.  One to screw it in and one to observe how the light bulb
-	itself symbolizes a single incandescent beacon of subjective
-	reality in a netherworld of endless absurdity reaching out toward a
-	maudlin cosmos of nothingness.
+Unless hours were cups of sack, and minutes capons, and clocks the tongues
+of bawds, and dials the signs of leaping houses, and the blessed sun himself
+a fair, hot wench in flame-colored taffeta, I see no reason why thou shouldst
+be so superfluous to demand the time of the day.  I wasted time and now doth
+time waste me.
+		-- William Shakespeare
