@@ -1,6 +1,6 @@
-The true Southern watermelon is a boon apart, and not to be mentioned with
-commoner things.  It is chief of the world's luxuries, king by the grace of God
-over all the fruits of the earth.  When one has tasted it, he knows what the
-angels eat.  It was not a Southern watermelon that Eve took; we know it because
-she repented.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+For there are moments when one can neither think nor feel.  And if one can
+neither think nor feel, she thought, where is one?
+		-- Virginia Woolf, "To the Lighthouse"
+
+	[Quoted in "VMS Internals and Data Structures", V4.4, when
+	 referring to powerfail recovery.]
