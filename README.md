@@ -1,1 +1,3 @@
-You could live a better life, if you had a better mind and a better body.
+You may my glories and my state dispose,
+But not my griefs; still am I king of those.
+		-- William Shakespeare, "Richard II"
