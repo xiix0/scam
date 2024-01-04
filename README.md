@@ -1,8 +1,9 @@
-October.
+Q:	How many DEC repairman does it take to fix a flat?
+A:	Five; four to hold the car up and one to swap tires.
 
-This is one of the peculiarly dangerous months to speculate in stocks in.
+Q:	How long does it take?
+A:	It's indeterminate.
+	It will depend upon how many flats they've brought with them.
 
-The others are July, January, September, April, November, May, March, June,
-December, August, and February.
-
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	What happens if you've got TWO flats?
+A:	They replace your generator.
