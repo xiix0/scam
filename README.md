@@ -1,1 +1,3 @@
-If your life was a horse, you'd have to shoot it.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
