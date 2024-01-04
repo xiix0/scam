@@ -1,6 +1,3 @@
-For there are moments when one can neither think nor feel.  And if one can
-neither think nor feel, she thought, where is one?
-		-- Virginia Woolf, "To the Lighthouse"
-
-	[Quoted in "VMS Internals and Data Structures", V4.4, when
-	 referring to powerfail recovery.]
+Q:	Why do the police always travel in threes?
+A:	One to do the reading, one to do the writing, and the other keeps
+	an eye on the two intellectuals.
