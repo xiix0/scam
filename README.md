@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
