@@ -1,1 +1,2 @@
-Your boyfriend takes chocolate from strangers.
+When in doubt, tell the truth.
+		-- Mark Twain
