@@ -1,22 +1,13 @@
-The Least Perceptive Literary Critic
-	The most important critic in our field of study is Lord Halifax.  A
-most individual judge of poetry, he once invited Alexander Pope round to
-give a public reading of his latest poem.
-	Pope, the leading poet of his day, was greatly surprised when Lord
-Halifax stopped him four or five times and said, "I beg your pardon, Mr.
-Pope, but there is something in that passage that does not quite please me."
-	Pope was rendered speechless, as this fine critic suggested sizeable
-and unwise emendations to his latest masterpiece.  "Be so good as to mark
-the place and consider at your leisure.  I'm sure you can give it a better
-turn."
-	After the reading, a good friend of Lord Halifax, a certain Dr.
-Garth, took the stunned Pope to one side.  "There is no need to touch the
-lines," he said.  "All you need do is leave them just as they are, call on
-Lord Halifax two or three months hence, thank him for his kind observation
-on those passages, and then read them to him as altered.  I have known him
-much longer than you have, and will be answerable for the event."
-	Pope took his advice, called on Lord Halifax and read the poem
-exactly as it was before.  His unique critical faculties had lost none of
-their edge.  "Ay", he commented, "now they are perfectly right.  Nothing can
-be better."
-		-- Stephen Pile, "The Book of Heroic Failures"
+His followers called him Mahasamatman and said he was a god.  He preferred
+to drop the Maha- and the -atman, however, and called himself Sam.  He never
+claimed to be a god.  But then, he never claimed not to be a god.  Circum-
+stances being what they were, neither admission could be of any benefit.
+Silence, though, could.  It was in the days of the rains that their prayers
+went up, not from the fingering of knotted prayer cords or the spinning of
+prayer wheels, but from the great pray-machine in the monastery of Ratri,
+goddess of the Night.  The high-frequency prayers were directed upward through
+the atmosphere and out beyond it, passing into that golden cloud called the
+Bridge of the Gods, which circles the entire world, is seen as a bronze
+rainbow at night and is the place where the red sun becomes orange at midday.
+Some of the monks doubted the orthodoxy of this prayer technique...
+		-- Roger Zelazny, "Lord of Light"
