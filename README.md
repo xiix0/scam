@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Don't go surfing in South Dakota for a while.
