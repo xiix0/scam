@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+You will be divorced within a year.
