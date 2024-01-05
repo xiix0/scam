@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+You are so boring that when I see you my feet go to sleep.
