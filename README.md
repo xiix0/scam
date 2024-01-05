@@ -1,3 +1,2 @@
-Someone is speaking well of you.
-
-How unusual!
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
