@@ -1,3 +1,2 @@
-The human race is a race of cowards; and I am not only marching in that
-procession but carrying a banner.
+It usually takes more than three weeks to prepare a good impromptu speech.
 		-- Mark Twain
