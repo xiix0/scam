@@ -1,2 +1,1 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+It's lucky you're going so slowly, because you're going in the wrong direction.
