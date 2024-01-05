@@ -1,1 +1,2 @@
-You have literary talent that you should take pains to develop.
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
