@@ -1,1 +1,2 @@
-You're at the end of the road again.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
