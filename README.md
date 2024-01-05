@@ -1,2 +1,2 @@
-Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
-A:	Trustworthy.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
