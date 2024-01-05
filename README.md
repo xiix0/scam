@@ -1,2 +1,2 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
