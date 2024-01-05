@@ -1,1 +1,1 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+You have a strong appeal for members of your own sex.
