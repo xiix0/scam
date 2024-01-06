@@ -1,1 +1,2 @@
-Don't you wish you had more energy... or less ambition?
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
