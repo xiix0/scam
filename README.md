@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+Bank error in your favor.  Collect $200.
