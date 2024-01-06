@@ -1,2 +1,2 @@
-"Life, loathe it or ignore it, you can't like it."
-		-- Marvin, "Hitchhiker's Guide to the Galaxy"
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
