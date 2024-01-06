@@ -1,2 +1,3 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
+that think they are truffles.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
