@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Don't you wish you had more energy... or less ambition?
