@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+Truth will out this morning.  (Which may really mess things up.)
