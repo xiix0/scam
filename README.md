@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+A vivid and creative mind characterizes you.
