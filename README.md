@@ -1,3 +1,2 @@
-Q:	Why is Christmas just like a day at the office?
-A:	You do all of the work and the fat guy in the suit
-	gets all the credit.
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
