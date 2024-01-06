@@ -1,1 +1,2 @@
-In the stairway of life, you'd best take the elevator.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
