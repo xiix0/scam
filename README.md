@@ -1,1 +1,2 @@
-You have the power to influence all with whom you come in contact.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
