@@ -1,3 +1,2 @@
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
-		-- Mark Twain
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
