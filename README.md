@@ -1,1 +1,1 @@
-Bank error in your favor.  Collect $200.
+Excellent time to become a missing person.
