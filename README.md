@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Learn to pause -- or nothing worthwhile can catch up to you.
