@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+You'll be called to a post requiring ability in handling groups of people.
