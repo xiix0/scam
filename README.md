@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+You will not be elected to public office this year.
