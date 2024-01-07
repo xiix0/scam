@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+You are a very redundant person, that's what kind of person you are.
