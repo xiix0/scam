@@ -1,2 +1,4 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+Whoever has lived long enough to find out what life is, knows how deep a debt
+of gratitude we owe to Adam, the first great benefactor of our race.  He
+brought death into the world.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
