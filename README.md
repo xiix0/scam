@@ -1,1 +1,2 @@
-Be different: conform.
+Big book, big bore.
+		-- Callimachus
