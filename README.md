@@ -1,1 +1,3 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
