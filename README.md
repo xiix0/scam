@@ -1,2 +1,3 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
 		-- Mark Twain
