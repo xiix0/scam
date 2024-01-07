@@ -1,3 +1,2 @@
-Q:	What's the difference between a dead dog in the road and a dead
-	lawyer in the road?
-A:	There are skid marks in front of the dog.
+"Life, loathe it or ignore it, you can't like it."
+		-- Marvin, "Hitchhiker's Guide to the Galaxy"
