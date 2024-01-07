@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+You display the wonderful traits of charm and courtesy.
