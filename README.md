@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
