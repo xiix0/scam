@@ -1,1 +1,2 @@
-You love your home and want it to be beautiful.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
