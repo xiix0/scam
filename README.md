@@ -1,1 +1,1 @@
-You will be run over by a bus.
+Don't look now, but there is a multi-legged creature on your shoulder.
