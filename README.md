@@ -1,1 +1,1 @@
-You will step on the night soil of many countries.
+Don't look now, but the man in the moon is laughing at you.
