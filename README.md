@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+Expect a letter from a friend who will ask a favor of you.
