@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+You display the wonderful traits of charm and courtesy.
