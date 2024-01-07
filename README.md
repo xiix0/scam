@@ -1,2 +1,1 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+Beauty and harmony are as necessary to you as the very breath of life.
