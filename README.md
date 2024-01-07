@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+You will step on the night soil of many countries.
