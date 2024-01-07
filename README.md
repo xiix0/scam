@@ -1,2 +1,1 @@
-"Life, loathe it or ignore it, you can't like it."
-		-- Marvin, "Hitchhiker's Guide to the Galaxy"
+Perfect day for scrubbing the floor and other exciting things.
