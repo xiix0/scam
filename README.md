@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+You love your home and want it to be beautiful.
