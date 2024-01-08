@@ -1,1 +1,2 @@
-What happened last night can happen again.
+"... all the modern inconveniences ..."
+		-- Mark Twain
