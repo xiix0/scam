@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+Courage is your greatest present need.
