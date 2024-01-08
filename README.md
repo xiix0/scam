@@ -1,2 +1,1 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+Bank error in your favor.  Collect $200.
