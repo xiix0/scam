@@ -1,2 +1,2 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
