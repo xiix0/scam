@@ -1,3 +1,4 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+The holy passion of Friendship is of so sweet and steady and loyal and
+enduring a nature that it will last through a whole lifetime, if not asked to
+lend money.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
