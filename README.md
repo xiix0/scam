@@ -1,1 +1,2 @@
-Bank error in your favor.  Collect $200.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
