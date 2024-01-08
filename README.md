@@ -1,1 +1,2 @@
-All the troubles you have will pass away very quickly.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
