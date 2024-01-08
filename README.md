@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+Don't look back, the lemmings are gaining on you.
