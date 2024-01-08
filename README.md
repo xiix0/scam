@@ -1,2 +1,2 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
