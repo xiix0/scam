@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+Your society will be sought by people of taste and refinement.
