@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+What happened last night can happen again.
