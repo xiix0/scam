@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
