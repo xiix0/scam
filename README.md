@@ -1,1 +1,2 @@
-Beware of low-flying butterflies.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
