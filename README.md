@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+All the troubles you have will pass away very quickly.
