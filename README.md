@@ -1,2 +1,5 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+Q:	How do you catch a unique rabbit?
+A:	Unique up on it!
+
+Q:	How do you catch a tame rabbit?
+A:	The tame way!
