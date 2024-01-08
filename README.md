@@ -1,1 +1,1 @@
-You're at the end of the road again.
+You are going to have a new love affair.
