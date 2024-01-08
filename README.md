@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+Something's rotten in the state of Denmark.
+		-- Shakespeare
