@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+Tomorrow will be cancelled due to lack of interest.
