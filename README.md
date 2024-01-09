@@ -1,1 +1,2 @@
-Tomorrow will be cancelled due to lack of interest.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
