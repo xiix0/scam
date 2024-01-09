@@ -1,1 +1,2 @@
-You have an unusual understanding of the problems of human relationships.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
