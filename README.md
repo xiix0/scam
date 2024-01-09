@@ -1,1 +1,2 @@
-There is a fly on your nose.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
