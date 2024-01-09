@@ -1,1 +1,2 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
