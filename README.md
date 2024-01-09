@@ -1,5 +1,3 @@
-Q:	How many surrealists does it take to change a light bulb?
-A:	Two, one to hold the giraffe, and the other to fill the bathtub
-	with brightly colored machine tools.
-
-	[Surrealist jokes just aren't my cup of fur.  Ed.]
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
