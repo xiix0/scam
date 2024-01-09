@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
