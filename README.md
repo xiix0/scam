@@ -1,1 +1,1 @@
-You will have a long and boring life.
+You attempt things that you do not even plan because of your extreme stupidity.
