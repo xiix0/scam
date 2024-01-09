@@ -1,1 +1,1 @@
-Don't get to bragging.
+You will have a long and boring life.
