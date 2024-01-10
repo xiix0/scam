@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+A gift of a flower will soon be made to you.
