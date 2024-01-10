@@ -1,2 +1,2 @@
-Q:	What is the difference between Texas and yogurt?
-A:	Yogurt has culture.
+Your goose is cooked.
+(Your current chick is burned up too!)
