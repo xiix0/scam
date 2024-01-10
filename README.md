@@ -1,2 +1,3 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
