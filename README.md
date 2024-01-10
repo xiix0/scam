@@ -1,1 +1,1 @@
-Bank error in your favor.  Collect $200.
+Is that really YOU that is reading this?
