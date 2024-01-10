@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+You have an unusual equipment for success.  Be sure to use it properly.
