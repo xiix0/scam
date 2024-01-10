@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+You will be the victim of a bizarre joke.
