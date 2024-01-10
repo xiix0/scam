@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+Your supervisor is thinking about you.
