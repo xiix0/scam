@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
