@@ -1,2 +1,1 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+You will be advanced socially, without any special effort on your part.
