@@ -1,3 +1,2 @@
-Don't go around saying the world owes you a living.  The world owes you
-nothing.  It was here first.
+She is not refined.  She is not unrefined.  She keeps a parrot.
 		-- Mark Twain
