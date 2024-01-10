@@ -1,5 +1,2 @@
-Q:	Why did the chicken cross the road?
-A:	To see his friend Gregory peck.
-
-Q:	Why did the chicken cross the playground?
-A:	To get to the other slide.
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
