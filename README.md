@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
