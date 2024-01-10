@@ -1,1 +1,1 @@
-There was a phone call for you.
+You are taking yourself far too seriously.
