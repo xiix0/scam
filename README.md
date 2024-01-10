@@ -1,3 +1,1 @@
-Anyone who has had a bull by the tail knows five or six more things
-than someone who hasn't.
-		-- Mark Twain
+Beauty and harmony are as necessary to you as the very breath of life.
