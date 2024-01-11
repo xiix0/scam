@@ -1,1 +1,2 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+Q:	What is the sound of one cat napping?
+A:	Mu.
