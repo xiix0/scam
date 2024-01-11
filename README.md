@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
