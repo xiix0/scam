@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+You will be run over by a beer truck.
