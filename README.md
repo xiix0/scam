@@ -1,2 +1,1 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+Don't read any sky-writing for the next two weeks.
