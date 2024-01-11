@@ -1,1 +1,2 @@
-You will have long and healthy life.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
