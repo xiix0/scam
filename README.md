@@ -1,1 +1,2 @@
-You will be singled out for promotion in your work.
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
