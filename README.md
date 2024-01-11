@@ -1,1 +1,1 @@
-You will be married within a year.
+You'll feel much better once you've given up hope.
