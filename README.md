@@ -1,2 +1,1 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+You have the capacity to learn from mistakes.  You'll learn a lot today.
