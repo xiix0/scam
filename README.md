@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+Give your very best today.  Heaven knows it's little enough.
