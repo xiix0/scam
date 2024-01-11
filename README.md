@@ -1,6 +1,5 @@
-Q:	How many gradual (sorry, that's supposed to be "graduate") students
-	does it take to screw in a light bulb?
-A:	"I'm afraid we don't know, but make my stipend tax-free, give my
-	advisor a $30,000 grant of the taxpayer's money, and I'm sure he
-	can tell me how to do the gruntwork for him so he can take the
-	credit for answering this incredibly vital question."
+I got a hint of things to come when I overheard my boss lamenting, 'The
+books are done and we still don't have an author! I must sign someone
+today!
+		-- Tamim Ansary, "Edutopia Magazine, Issue 2, November 2004"
+		   on the topic of school textbooks
