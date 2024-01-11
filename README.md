@@ -1,2 +1,2 @@
-There is a great discovery still to be made in Literature: that of
-paying literary men by the quantity they do NOT write.
+Q:	How many Harvard MBA's does it take to screw in a light bulb?
+A:	Just one.  He grasps it firmly and the universe revolves around him.
