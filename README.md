@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+Think twice before speaking, but don't say "think think click click".
