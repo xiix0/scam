@@ -1,2 +1,2 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
