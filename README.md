@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+You are the only person to ever get this message.
