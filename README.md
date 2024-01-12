@@ -1,1 +1,3 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
