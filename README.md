@@ -1,2 +1,3 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+The mind is its own place, and in itself
+Can make a Heav'n of Hell, a Hell of Heav'n.
+		-- John Milton
