@@ -1,1 +1,1 @@
-Beware the one behind you.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
