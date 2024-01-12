@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+Do nothing unless you must, and when you must act -- hesitate.
