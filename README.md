@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+Living your life is a task so difficult, it has never been attempted before.
