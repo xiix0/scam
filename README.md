@@ -1,4 +1,1 @@
-F.S. Fitzgerald to Hemingway:
-	"Ernest, the rich are different from us."
-Hemingway:
-	"Yes.  They have more money."
+Many changes of mind and mood; do not hesitate too long.
