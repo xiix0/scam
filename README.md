@@ -1,1 +1,2 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+Q:	How many Harvard MBA's does it take to screw in a light bulb?
+A:	Just one.  He grasps it firmly and the universe revolves around him.
