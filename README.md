@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+Learn to pause -- or nothing worthwhile can catch up to you.
