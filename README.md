@@ -1,15 +1,8 @@
-	"...The name of the song is called 'Haddocks' Eyes'!"
-	"Oh, that's the name of the song, is it?" Alice said, trying to
-feel interested.
-	"No, you don't understand," the Knight said, looking a little
-vexed.  "That's what the name is called.  The name really is, 'The Aged
-Aged Man.'"
-	"Then I ought to have said "That's what the song is called'?"
-Alice corrected herself.
-	"No, you oughtn't: that's quite another thing!  The song is
-called 'Ways and Means':  but that's only what it is called you know!"
-	"Well, what is the song then?" said Alice, who was by this
-time completely bewildered.
-	"I was coming to that," the Knight said.  "The song really is
-"A-sitting on a Gate": and the tune's my own invention."
-		-- Lewis Carroll, "Through the Looking Glass"
+No live organism can continue for long to exist sanely under conditions of
+absolute reality; even larks and katydids are supposed, by some, to dream.
+Hill House, not sane, stood by itself against its hills, holding darkness
+within; it had stood so for eighty years and might stand for eighty more.
+Within, walls continued upright, bricks met neatly, floors were firm, and
+doors were sensibly shut; silence lay steadily against the wood and stone
+of Hill House, and whatever walked there, walked alone.
+		-- Shirley Jackson, "The Haunting of Hill House"
