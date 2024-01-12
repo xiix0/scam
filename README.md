@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
