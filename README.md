@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
