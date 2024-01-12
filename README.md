@@ -1,2 +1,1 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
