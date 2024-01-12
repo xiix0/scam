@@ -1,1 +1,2 @@
-You work very hard.  Don't try to think as well.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
