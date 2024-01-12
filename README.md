@@ -1,3 +1,5 @@
-Soap and education are not as sudden as a massacre, but they are more
-deadly in the long run.
-		-- Mark Twain
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
