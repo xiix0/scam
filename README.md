@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
