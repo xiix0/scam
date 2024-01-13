@@ -1,1 +1,2 @@
-Think twice before speaking, but don't say "think think click click".
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
