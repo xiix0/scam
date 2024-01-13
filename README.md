@@ -1,1 +1,1 @@
-You're definitely on their list.  The question to ask next is what list it is.
+You are confused; but this is your normal state.
