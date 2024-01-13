@@ -1,1 +1,2 @@
-You will be divorced within a year.
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
