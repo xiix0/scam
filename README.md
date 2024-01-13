@@ -1,1 +1,2 @@
-You have Egyptian flu: you're going to be a mummy.
+	A man was reading The Canterbury Tales one Saturday morning, when his
+wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
