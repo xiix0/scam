@@ -1,1 +1,2 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
