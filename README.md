@@ -1,2 +1,5 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+Q:	What do you call a blind pre-historic animal?
+A:	Diyathinkhesaurus.
+
+Q:	What do you call a blind pre-historic animal with a dog?
+A:	Diyathinkhesaurus Rex.
