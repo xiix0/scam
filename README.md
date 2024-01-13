@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+Never reveal your best argument.
