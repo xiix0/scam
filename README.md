@@ -1,6 +1,7 @@
-There is no character, howsoever good and fine, but it can be destroyed by
-ridicule, howsoever poor and witless.  Observe the ass, for instance: his
-character is about perfect, he is the choicest spirit among all the humbler
-animals, yet see what ridicule has brought him to.  Instead of feeling
-complimented when we are called an ass, we are left in doubt.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Sheriff Chameleotoptor sighed with an air of weary sadness, and then
+turned to Doppelgutt and said 'The Senator must really have been on a
+bender this time -- he left a party in Cleveland, Ohio, at 11:30 last
+night, and they found his car this morning in the smokestack of a British
+aircraft carrier in the Formosa Straits.'
+		-- Grand Panjandrum's Special Award, 1985 Bulwer-Lytton
+		   bad fiction contest.
