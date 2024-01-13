@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
