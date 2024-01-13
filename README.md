@@ -1,2 +1,1 @@
-As to the Adjective: when in doubt, strike it out.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Good news.  Ten weeks from Friday will be a pretty good day.
