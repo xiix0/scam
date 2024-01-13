@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+All the troubles you have will pass away very quickly.
