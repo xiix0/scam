@@ -1,1 +1,1 @@
-You will be married within a year.
+Think twice before speaking, but don't say "think think click click".
