@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+Someone whom you reject today, will reject you tomorrow.
