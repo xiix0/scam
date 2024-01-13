@@ -1,1 +1,1 @@
-You have many friends and very few living enemies.
+Excellent time to become a missing person.
