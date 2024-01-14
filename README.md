@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+Give him an evasive answer.
