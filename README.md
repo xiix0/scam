@@ -1,2 +1,2 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
