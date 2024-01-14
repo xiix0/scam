@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+A visit to a fresh place will bring strange work.
