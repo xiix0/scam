@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+You will give someone a piece of your mind, which you can ill afford.
