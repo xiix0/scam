@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
