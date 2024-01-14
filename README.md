@@ -1,1 +1,2 @@
-You will give someone a piece of your mind, which you can ill afford.
+He is now rising from affluence to poverty.
+		-- Mark Twain
