@@ -1,1 +1,2 @@
-Your talents will be recognized and suitably rewarded.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
