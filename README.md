@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
