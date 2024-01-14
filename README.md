@@ -1,1 +1,1 @@
-You will get what you deserve.
+Generosity and perfection are your everlasting goals.
