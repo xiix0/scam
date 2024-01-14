@@ -1,1 +1,2 @@
-You are a bundle of energy, always on the go.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
