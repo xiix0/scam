@@ -1,1 +1,1 @@
-You love peace.
+You will contract a rare disease.
