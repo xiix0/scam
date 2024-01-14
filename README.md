@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+Your talents will be recognized and suitably rewarded.
