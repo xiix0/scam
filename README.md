@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
