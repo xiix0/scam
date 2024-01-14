@@ -1,1 +1,2 @@
-You have a truly strong individuality.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
