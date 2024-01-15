@@ -1,1 +1,2 @@
-It's all in the mind, ya know.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
