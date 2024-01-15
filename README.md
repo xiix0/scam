@@ -1,2 +1,1 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+Never commit yourself!  Let someone else commit you.
