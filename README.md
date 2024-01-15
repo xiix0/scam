@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+Look afar and see the end from the beginning.
