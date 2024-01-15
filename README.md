@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+You will live to see your grandchildren.
