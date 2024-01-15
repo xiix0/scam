@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+You have no real enemies.
