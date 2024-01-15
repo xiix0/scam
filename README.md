@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+Don't read everything you believe.
