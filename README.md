@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+It's all in the mind, ya know.
