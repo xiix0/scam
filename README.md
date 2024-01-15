@@ -1,3 +1,2 @@
-Anyone who has had a bull by the tail knows five or six more things
-than someone who hasn't.
-		-- Mark Twain
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
