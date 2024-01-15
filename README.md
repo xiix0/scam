@@ -1,2 +1,2 @@
-Troubled day for virgins over 16 who are beautiful and wealthy and live
-in eucalyptus trees.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
