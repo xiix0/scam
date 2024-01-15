@@ -1,3 +1,3 @@
-Q:	What do you call a WASP who doesn't work for his father, isn't a
-	lawyer, and believes in social causes?
-A:	A failure.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
