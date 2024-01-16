@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+People are beginning to notice you.  Try dressing before you leave the house.
