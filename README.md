@@ -1,1 +1,1 @@
-You will never know hunger.
+You are fairminded, just and loving.
