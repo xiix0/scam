@@ -1,1 +1,2 @@
-You're at the end of the road again.
+What I tell you three times is true.
+		-- Lewis Carroll
