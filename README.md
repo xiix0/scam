@@ -1,1 +1,3 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
