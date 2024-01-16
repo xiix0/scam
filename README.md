@@ -1,2 +1,1 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+You will have good luck and overcome many hardships.
