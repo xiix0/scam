@@ -1,1 +1,1 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Your boss climbed the corporate ladder, wrong by wrong.
