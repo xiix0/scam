@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+Your lucky number has been disconnected.
