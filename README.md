@@ -1,1 +1,1 @@
-There was a phone call for you.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
