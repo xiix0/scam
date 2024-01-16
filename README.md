@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+You will attract cultured and artistic people to your home.
