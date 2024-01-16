@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+You will obey or molten silver will be poured into your ears.
