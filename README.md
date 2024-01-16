@@ -1,3 +1,4 @@
-Q:	How does a hacker fix a function which
-	doesn't work for all of the elements in its domain?
-A:	He changes the domain.
+Behold, the fool saith, "Put not all thine eggs in the one basket"--which is
+but a manner of saying, "Scatter your money and your attention;" but the wise
+man saith, "Put all your eggs in the one basket and--WATCH THAT BASKET."
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
