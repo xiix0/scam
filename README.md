@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+You will be winged by an anti-aircraft battery.
