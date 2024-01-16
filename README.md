@@ -1,1 +1,2 @@
-You will have good luck and overcome many hardships.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
