@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
