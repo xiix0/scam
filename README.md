@@ -1,1 +1,3 @@
-You will remember something that you should not have forgotten.
+Anyone who has had a bull by the tail knows five or six more things
+than someone who hasn't.
+		-- Mark Twain
