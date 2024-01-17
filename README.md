@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Excellent day to have a rotten day.
