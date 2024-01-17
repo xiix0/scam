@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+Q:	How do you keep a moron in suspense?
