@@ -1,2 +1,1 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+Avert misunderstanding by calm, poise, and balance.
