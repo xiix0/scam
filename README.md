@@ -1,3 +1,2 @@
-Don't go around saying the world owes you a living.  The world owes you
-nothing.  It was here first.
+Nothing so needs reforming as other people's habits.
 		-- Mark Twain
