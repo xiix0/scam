@@ -1,2 +1,1 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
