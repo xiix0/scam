@@ -1,1 +1,1 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+You will have domestic happiness and faithful friends.
