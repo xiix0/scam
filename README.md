@@ -1,2 +1,5 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+Q:	What do you call a blind pre-historic animal?
+A:	Diyathinkhesaurus.
+
+Q:	What do you call a blind pre-historic animal with a dog?
+A:	Diyathinkhesaurus Rex.
