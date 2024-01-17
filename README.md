@@ -1,2 +1,2 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
