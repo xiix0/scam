@@ -1,1 +1,2 @@
-Of course you have a purpose -- to find a purpose.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
