@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
