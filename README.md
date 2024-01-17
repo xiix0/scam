@@ -1,1 +1,2 @@
-You'll never be the man your mother was!
+What I tell you three times is true.
+		-- Lewis Carroll
