@@ -1,2 +1,2 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
