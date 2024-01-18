@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+Bridge ahead.  Pay troll.
