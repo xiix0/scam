@@ -1,1 +1,2 @@
-You will have a long and unpleasant discussion with your supervisor.
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
