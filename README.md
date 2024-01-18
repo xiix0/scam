@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+Is this really happening?
