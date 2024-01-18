@@ -1,2 +1,1 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+You will have a long and unpleasant discussion with your supervisor.
