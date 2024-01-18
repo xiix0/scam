@@ -1,2 +1,2 @@
-Q:	Why did the WASP cross the road?
-A:	To get to the middle.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
