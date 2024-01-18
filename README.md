@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+Don't you wish you had more energy... or less ambition?
