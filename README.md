@@ -1,1 +1,1 @@
-You will be divorced within a year.
+You are sick, twisted and perverted.  I like that in a person.
