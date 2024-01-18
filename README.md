@@ -1,1 +1,1 @@
-You will soon forget this.
+You will gain money by a fattening action.
