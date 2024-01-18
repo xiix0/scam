@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+You will reach the highest possible point in your business or profession.
