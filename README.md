@@ -1,3 +1,3 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #4
-A:	Go west, young man, go west!
-Q:	What do wabbits do when they get tiwed of wunning awound?
+Training is everything.  The peach was once a bitter almond; cauliflower is
+nothing but cabbage with a college education.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
