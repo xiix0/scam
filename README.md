@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+Life is to you a dashing and bold adventure.
