@@ -1,2 +1,1 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Excellent day for putting Slinkies on an escalator.
