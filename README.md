@@ -1,1 +1,1 @@
-Is this really happening?
+Be cautious in your daily affairs.
