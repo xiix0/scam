@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Day of inquiry.  You will be subpoenaed.
