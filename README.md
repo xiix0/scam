@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+You will have a long and unpleasant discussion with your supervisor.
