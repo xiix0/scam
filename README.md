@@ -1,1 +1,1 @@
-You never know how many friends you have until you rent a house on the beach.
+Your business will go through a period of considerable expansion.
