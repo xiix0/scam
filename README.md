@@ -1,1 +1,2 @@
-In the stairway of life, you'd best take the elevator.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
