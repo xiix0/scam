@@ -1,2 +1,1 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+You will be awarded a medal for disregarding safety in saving someone.
