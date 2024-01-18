@@ -1,3 +1,1 @@
-Q:	What looks like a cat, flies like a bat, brays like a donkey, and
-	plays like a monkey?
-A:	Nothing.
+You will be a winner today.  Pick a fight with a four-year-old.
