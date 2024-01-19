@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+You display the wonderful traits of charm and courtesy.
