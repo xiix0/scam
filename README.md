@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+Caution: breathing may be hazardous to your health.
