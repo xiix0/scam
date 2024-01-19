@@ -1,1 +1,2 @@
-You will experience a strong urge to do good; but it will pass.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
