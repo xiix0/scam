@@ -1,3 +1,14 @@
-A classic is something that everyone wants to have read
-and nobody wants to read.
-		-- Mark Twain, "The Disappearance of Literature"
+Gone With The Wind LITE(tm)
+	-- by Margaret Mitchell
+
+	A woman only likes men she can't have and the South gets trashed.
+
+Gift of the Magi LITE(tm)
+	-- by O. Henry
+
+	A husband and wife forget to register their gift preferences.
+
+The Old Man and the Sea LITE(tm)
+	-- by Ernest Hemingway
+
+	An old man goes fishing, but doesn't have much luck.
