@@ -1,1 +1,1 @@
-You dialed 5483.
+Your lucky number has been disconnected.
