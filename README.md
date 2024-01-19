@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+You may be recognized soon.  Hide.
