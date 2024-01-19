@@ -1,3 +1,3 @@
-Q:	How many mathematicians does it take to screw in a light bulb?
-A:	One.  He gives it to six Californians, thereby reducing the problem
-	to the earlier joke.
+All say, "How hard it is that we have to die"--a strange complaint to come from
+the mouths of people who have had to live.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
