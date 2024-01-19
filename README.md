@@ -1,1 +1,2 @@
-You'll feel much better once you've given up hope.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
