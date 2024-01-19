@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+You are only young once, but you can stay immature indefinitely.
