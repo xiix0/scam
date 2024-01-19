@@ -1,1 +1,3 @@
-You will give someone a piece of your mind, which you can ill afford.
+Q:	What do you call the money you pay to the government when
+	you ride into the country on the back of an elephant?
+A:	A howdah duty.
