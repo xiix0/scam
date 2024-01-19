@@ -1,1 +1,3 @@
-You are only young once, but you can stay immature indefinitely.
+He draweth out the thread of his verbosity finer than the staple of his
+argument.
+		-- William Shakespeare, "Love's Labour's Lost"
