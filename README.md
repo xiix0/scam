@@ -1,1 +1,2 @@
-An avocado-tone refrigerator would look good on your resume.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
