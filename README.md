@@ -1,3 +1,5 @@
-He draweth out the thread of his verbosity finer than the staple of his
-argument.
-		-- William Shakespeare, "Love's Labour's Lost"
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
