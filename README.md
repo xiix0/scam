@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+Live in a world of your own, but always welcome visitors.
