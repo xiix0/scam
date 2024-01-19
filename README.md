@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Your depth of comprehension may tend to make you lax in worldly ways.
