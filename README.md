@@ -1,2 +1,1 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Your talents will be recognized and suitably rewarded.
