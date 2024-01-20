@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+Your society will be sought by people of taste and refinement.
