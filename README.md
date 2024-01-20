@@ -1,2 +1,2 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
