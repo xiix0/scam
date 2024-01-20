@@ -1,2 +1,1 @@
-If you learn one useless thing every day, in a single year you'll learn
-365 useless things.
+You have the power to influence all with whom you come in contact.
