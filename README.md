@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+Excellent day to have a rotten day.
