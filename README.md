@@ -1,2 +1,3 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+Q:	Why do people who live near Niagara Falls have flat foreheads?
+A:	Because every morning they wake up thinking "What *is* that noise?
+	Oh, right, *of course*!
