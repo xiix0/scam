@@ -1,1 +1,1 @@
-Your business will assume vast proportions.
+You display the wonderful traits of charm and courtesy.
