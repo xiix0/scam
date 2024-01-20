@@ -1,1 +1,2 @@
-Your step will soil many countries.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
