@@ -1,1 +1,2 @@
-Break into jail and claim police brutality.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
