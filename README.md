@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+Tuesday is the Wednesday of the rest of your life.
