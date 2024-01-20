@@ -1,2 +1,2 @@
-Kindness is a language which the deaf can hear and the blind can read.
+The human race has one really effective weapon, and that is laughter.
 		-- Mark Twain
