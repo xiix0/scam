@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+You are dishonest, but never to the point of hurting a friend.
