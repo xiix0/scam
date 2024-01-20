@@ -1,2 +1,1 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+Don't look back, the lemmings are gaining on you.
