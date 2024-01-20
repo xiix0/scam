@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+Excellent time to become a missing person.
