@@ -1,1 +1,2 @@
-You are dishonest, but never to the point of hurting a friend.
+I'll burn my books.
+		-- Christopher Marlowe
