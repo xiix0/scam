@@ -1,2 +1,1 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+Living your life is a task so difficult, it has never been attempted before.
