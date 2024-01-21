@@ -1,1 +1,1 @@
-You seek to shield those you love and you like the role of the provider.
+Many changes of mind and mood; do not hesitate too long.
