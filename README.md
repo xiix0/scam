@@ -1,2 +1,2 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
