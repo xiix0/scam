@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+Don't Worry, Be Happy.
+		-- Meher Baba
