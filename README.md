@@ -1,1 +1,2 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
