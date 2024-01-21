@@ -1,1 +1,1 @@
-You will soon meet a person who will play an important role in your life.
+You would if you could but you can't so you won't.
