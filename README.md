@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+After your lover has gone you will still have PEANUT BUTTER!
