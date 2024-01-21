@@ -1,1 +1,1 @@
-An exotic journey in downtown Newark is in your future.
+You have an ability to sense and know higher truth.
