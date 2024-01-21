@@ -1,1 +1,1 @@
-You will be married within a year.
+You will be recognized and honored as a community leader.
