@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+Write yourself a threatening letter and pen a defiant reply.
