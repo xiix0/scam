@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+An exotic journey in downtown Newark is in your future.
