@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+You prefer the company of the opposite sex, but are well liked by your own.
