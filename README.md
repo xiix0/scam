@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+Never be led astray onto the path of virtue.
