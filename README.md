@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
