@@ -1,1 +1,2 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
