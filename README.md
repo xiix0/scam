@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+Hope that the day after you die is a nice day.
