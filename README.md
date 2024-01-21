@@ -1,1 +1,2 @@
-Is that really YOU that is reading this?
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
