@@ -1,1 +1,3 @@
-You will gain money by a speculation or lottery.
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
