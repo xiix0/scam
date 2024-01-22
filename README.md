@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
