@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+Your own qualities will help prevent your advancement in the world.
