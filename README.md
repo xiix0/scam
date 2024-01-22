@@ -1,1 +1,1 @@
-You have many friends and very few living enemies.
+Don't tell any big lies today.  Small ones can be just as effective.
