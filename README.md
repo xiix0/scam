@@ -1,1 +1,2 @@
-You are a bundle of energy, always on the go.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
