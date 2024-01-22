@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+You are a bundle of energy, always on the go.
