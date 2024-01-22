@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Your love life will be... interesting.
