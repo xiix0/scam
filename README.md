@@ -1,2 +1,1 @@
-Big book, big bore.
-		-- Callimachus
+You own a dog, but you can only feed a cat.
