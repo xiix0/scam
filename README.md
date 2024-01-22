@@ -1,1 +1,1 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+Afternoon very favorable for romance.  Try a single person for a change.
