@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
