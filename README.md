@@ -1,1 +1,2 @@
-You'll feel much better once you've given up hope.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
