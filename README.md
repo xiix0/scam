@@ -1,2 +1,3 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
