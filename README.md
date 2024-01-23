@@ -1,2 +1,2 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+Don't Worry, Be Happy.
+		-- Meher Baba
