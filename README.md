@@ -1,3 +1,3 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #19
-A:	To be or not to be.
-Q:	What is the square root of 4b^2?
+Q:	How many lawyers does it take to change a light bulb?
+A:	You won't find a lawyer who can change a light bulb.  Now, if
+	you're looking for a lawyer to screw a light bulb...
