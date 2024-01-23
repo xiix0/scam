@@ -1,1 +1,2 @@
-Is that really YOU that is reading this?
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
