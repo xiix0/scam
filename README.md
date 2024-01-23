@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+Tuesday is the Wednesday of the rest of your life.
