@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+Abandon the search for Truth; settle for a good fantasy.
