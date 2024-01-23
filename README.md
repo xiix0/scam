@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+A gift of a flower will soon be made to you.
