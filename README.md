@@ -1,1 +1,2 @@
-You will have a long and unpleasant discussion with your supervisor.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
