@@ -1,1 +1,1 @@
-You will be awarded a medal for disregarding safety in saving someone.
+You will have a long and unpleasant discussion with your supervisor.
