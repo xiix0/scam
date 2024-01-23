@@ -1,1 +1,2 @@
-You will be advanced socially, without any special effort on your part.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
