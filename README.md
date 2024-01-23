@@ -1,2 +1,3 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
+A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
+Q:	Who were the Democratic presidential candidates?
