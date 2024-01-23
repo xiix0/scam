@@ -1,2 +1,3 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+Perilous to all of us are the devices of an art deeper than we ourselves
+possess.
+		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
