@@ -1,1 +1,1 @@
-Think twice before speaking, but don't say "think think click click".
+Excellent day to have a rotten day.
