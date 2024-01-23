@@ -1,3 +1,2 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
