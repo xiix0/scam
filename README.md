@@ -1,2 +1,2 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
