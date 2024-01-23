@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+Your nature demands love and your happiness depends on it.
