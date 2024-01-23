@@ -1,1 +1,2 @@
-Your lucky color has faded.
+The Public is merely a multiplied "me."
+		-- Mark Twain
