@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+Fine day to work off excess energy.  Steal something heavy.
