@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+You're not my type.  For that matter, you're not even my species!!!
