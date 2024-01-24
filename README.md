@@ -1,1 +1,2 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
