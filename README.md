@@ -1,2 +1,1 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+You definitely intend to start living sometime soon.
