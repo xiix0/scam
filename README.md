@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+You will soon meet a person who will play an important role in your life.
