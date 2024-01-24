@@ -1,2 +1,1 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+You will receive a legacy which will place you above want.
