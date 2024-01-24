@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+You have a strong desire for a home and your family interests come first.
