@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+Don't hate yourself in the morning -- sleep till noon.
