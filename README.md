@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+Good news from afar can bring you a welcome visitor.
