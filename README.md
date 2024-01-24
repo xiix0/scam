@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
