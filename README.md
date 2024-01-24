@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+"Life, loathe it or ignore it, you can't like it."
+		-- Marvin, "Hitchhiker's Guide to the Galaxy"
