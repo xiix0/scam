@@ -1,1 +1,1 @@
-You'll be called to a post requiring ability in handling groups of people.
+You like to form new friendships and make new acquaintances.
