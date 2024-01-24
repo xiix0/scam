@@ -1,1 +1,2 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
