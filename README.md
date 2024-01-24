@@ -1,2 +1,3 @@
-Q:	How many IBM CPU's does it take to do a logical right shift?
-A:	33.  1 to hold the bits and 32 to push the register.
+It is by the fortune of God that, in this country, we have three benefits:
+freedom of speech, freedom of thought, and the wisdom never to use either.
+		-- Mark Twain
