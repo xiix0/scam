@@ -1,3 +1,3 @@
-It is so very hard to be an
-on-your-own-take-care-of-yourself-because-there-is-no-one-else-to-do-it-for-you
-grown-up.
+Q:	Why does Washington have the most lawyers per capita and
+	New Jersey the most toxic waste dumps?
+A:	God gave New Jersey first choice.
