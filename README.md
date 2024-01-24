@@ -1,2 +1,1 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+You'll be called to a post requiring ability in handling groups of people.
