@@ -1,2 +1,2 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
