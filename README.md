@@ -1,2 +1,1 @@
-Fine day for friends.
-So-so day for you.
+That secret you've been guarding, isn't.
