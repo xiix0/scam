@@ -1,4 +1,3 @@
-The holy passion of Friendship is of so sweet and steady and loyal and
-enduring a nature that it will last through a whole lifetime, if not asked to
-lend money.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #4
+A:	Go west, young man, go west!
+Q:	What do wabbits do when they get tiwed of wunning awound?
