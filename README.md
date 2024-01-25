@@ -1,3 +1,3 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+Q:	Why does Washington have the most lawyers per capita and
+	New Jersey the most toxic waste dumps?
+A:	God gave New Jersey first choice.
