@@ -1,5 +1,3 @@
-For years a secret shame destroyed my peace--
-I'd not read Eliot, Auden or MacNiece.
-But now I think a thought that brings me hope:
-Neither had Chaucer, Shakespeare, Milton, Pope.
-		-- Justin Richardson.
+Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
+are not the person involved.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
