@@ -1,3 +1,5 @@
-Q:	How many bureaucrats does it take to screw in a light bulb?
-A:	Two.  One to assure everyone that everything possible is being
-	done while the other screws the bulb into the water faucet.
+Q:	How many surrealists does it take to change a light bulb?
+A:	Two, one to hold the giraffe, and the other to fill the bathtub
+	with brightly colored machine tools.
+
+	[Surrealist jokes just aren't my cup of fur.  Ed.]
