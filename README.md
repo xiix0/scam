@@ -1,1 +1,3 @@
-You seek to shield those you love and you like the role of the provider.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
