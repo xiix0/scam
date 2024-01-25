@@ -1,2 +1,3 @@
-Q:	How many IBM 370's does it take to execute a job?
-A:	Four, three to hold it down, and one to rip its head off.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
