@@ -1,1 +1,3 @@
-You will be winged by an anti-aircraft battery.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
