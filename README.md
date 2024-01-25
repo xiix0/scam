@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
