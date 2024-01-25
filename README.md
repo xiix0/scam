@@ -1,3 +1,2 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
