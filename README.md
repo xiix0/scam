@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
