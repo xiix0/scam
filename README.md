@@ -1,2 +1,2 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
