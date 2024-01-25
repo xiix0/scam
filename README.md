@@ -1,2 +1,5 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+For years a secret shame destroyed my peace--
+I'd not read Eliot, Auden or MacNiece.
+But now I think a thought that brings me hope:
+Neither had Chaucer, Shakespeare, Milton, Pope.
+		-- Justin Richardson.
