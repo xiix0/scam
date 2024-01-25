@@ -1,1 +1,1 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+You work very hard.  Don't try to think as well.
