@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
