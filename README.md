@@ -1,2 +1,1 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+This life is yours.  Some of it was given to you; the rest, you made yourself.
