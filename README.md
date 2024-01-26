@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+You will have a long and boring life.
