@@ -1,1 +1,2 @@
-You are a bundle of energy, always on the go.
+Q:	What do you call a half-dozen Indians with Asian flu?
+A:	Six sick Sikhs (sic).
