@@ -1,2 +1,1 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+Try to get all of your posthumous medals in advance.
