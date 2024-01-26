@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+You need more time; and you probably always will.
