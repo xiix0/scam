@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
