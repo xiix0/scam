@@ -1,1 +1,1 @@
-Your boyfriend takes chocolate from strangers.
+You will have long and healthy life.
