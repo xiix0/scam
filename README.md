@@ -1,3 +1,3 @@
-Q:	How does a hacker fix a function which
-	doesn't work for all of the elements in its domain?
-A:	He changes the domain.
+Q:	What do you call a principal female opera singer whose high C
+	is lower than those of other principal female opera singers?
+A:	A deep C diva.
