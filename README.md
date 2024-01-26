@@ -1,6 +1,5 @@
-The lovely woman-child Kaa was mercilessly chained to the cruel post of
-the warrior-chief Beast, with his barbarian tribe now stacking wood at
-her nubile feet, when the strong clear voice of the poetic and heroic
-Handsomas roared, 'Flick your Bic, crisp that chick, and you'll feel my
-steel through your last meal!'
-		-- Winning sentence, 1984 Bulwer-Lytton bad fiction contest.
+We should be careful to get out of an experience only the wisdom that is
+in it - and stay there, lest we be like the cat that sits down on a hot
+stove-lid.  She will never sit down on a hot stove-lid again - and that
+is well; but also she will never sit down on a cold one any more.
+		-- Mark Twain
