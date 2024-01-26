@@ -1,1 +1,2 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+Wagner's music is better than it sounds.
+		-- Mark Twain
