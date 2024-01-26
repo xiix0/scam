@@ -1,1 +1,2 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+	A man was reading The Canterbury Tales one Saturday morning, when his
+wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
