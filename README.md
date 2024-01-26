@@ -1,2 +1,1 @@
-He that breaks a thing to find out what it is has left the path of wisdom.
-		-- J.R.R. Tolkien
+It's lucky you're going so slowly, because you're going in the wrong direction.
