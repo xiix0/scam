@@ -1,1 +1,1 @@
-You will have long and healthy life.
+Keep emotionally active.  Cater to your favorite neurosis.
