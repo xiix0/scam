@@ -1,2 +1,1 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
