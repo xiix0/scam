@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Fine day for friends.
+So-so day for you.
