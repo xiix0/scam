@@ -1,3 +1,3 @@
-Q:	What do you call a principal female opera singer whose high C
-	is lower than those of other principal female opera singers?
-A:	A deep C diva.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
+A:	Chicken Teriyaki.
+Q:	What is the name of the world's oldest kamikaze pilot?
