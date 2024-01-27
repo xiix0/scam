@@ -1,1 +1,1 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+You will be reincarnated as a toad; and you will be much happier.
