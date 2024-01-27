@@ -1,1 +1,2 @@
-You will be reincarnated as a toad; and you will be much happier.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
