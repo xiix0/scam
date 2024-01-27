@@ -1,2 +1,2 @@
-Fine day for friends.
-So-so day for you.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
