@@ -1,2 +1,3 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
