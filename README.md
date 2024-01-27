@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
