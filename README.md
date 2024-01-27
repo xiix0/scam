@@ -1,2 +1,1 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+Your lucky color has faded.
