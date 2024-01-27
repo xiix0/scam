@@ -1,1 +1,3 @@
-Today is the first day of the rest of the mess.
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
