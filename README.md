@@ -1,1 +1,2 @@
-You will be held hostage by a radical group.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
