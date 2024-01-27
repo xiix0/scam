@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
