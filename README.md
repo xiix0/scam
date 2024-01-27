@@ -1,2 +1,3 @@
-You're growing out of some of your problems, but there are others that
-you're growing into.
+Q:	Why do the police always travel in threes?
+A:	One to do the reading, one to do the writing, and the other keeps
+	an eye on the two intellectuals.
