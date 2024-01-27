@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+This will be a memorable month -- no matter how hard you try to forget it.
