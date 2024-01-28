@@ -1,1 +1,3 @@
-You single-handedly fought your way into this hopeless mess.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
