@@ -1,1 +1,3 @@
-You are fairminded, just and loving.
+Someone is speaking well of you.
+
+How unusual!
