@@ -1,1 +1,1 @@
-Don't you feel more like you do now than you did when you came in?
+Don't look now, but the man in the moon is laughing at you.
