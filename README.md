@@ -1,1 +1,1 @@
-Future looks spotty.  You will spill soup in late evening.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
