@@ -1,1 +1,1 @@
-Your present plans will be successful.
+Keep it short for pithy sake.
