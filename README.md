@@ -1,2 +1,1 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+You will be honored for contributing your time and skill to a worthy cause.
