@@ -1,2 +1,1 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+You will be awarded the Nobel Peace Prize... posthumously.
