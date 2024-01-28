@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+A day for firm decisions!!!!!  Or is it?
