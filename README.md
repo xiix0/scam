@@ -1,2 +1,1 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+Good day to let down old friends who need help.
