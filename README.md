@@ -1,2 +1,3 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
