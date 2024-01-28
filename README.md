@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
