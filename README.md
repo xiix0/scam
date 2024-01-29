@@ -1,2 +1,3 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+In a museum in Havana, there are two skulls of Christopher Columbus,
+"one when he was a boy and one when he was a man."
+		-- Mark Twain
