@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Long life is in store for you.
