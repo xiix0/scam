@@ -1,2 +1,1 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+Things will be bright in P.M.  A cop will shine a light in your face.
