@@ -1,6 +1,6 @@
-Even the clearest and most perfect circumstantial evidence is likely to be at
-fault, after all, and therefore ought to be received with great caution.  Take
-the case of any pencil, sharpened by any woman; if you have witnesses, you will
-find she did it with a knife; but if you take simply the aspect of the pencil,
-you will say that she did it with her teeth.
+There is no character, howsoever good and fine, but it can be destroyed by
+ridicule, howsoever poor and witless.  Observe the ass, for instance: his
+character is about perfect, he is the choicest spirit among all the humbler
+animals, yet see what ridicule has brought him to.  Instead of feeling
+complimented when we are called an ass, we are left in doubt.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
