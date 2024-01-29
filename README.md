@@ -1,2 +1,1 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+Look afar and see the end from the beginning.
