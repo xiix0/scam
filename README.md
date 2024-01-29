@@ -1,1 +1,2 @@
-You will be honored for contributing your time and skill to a worthy cause.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
