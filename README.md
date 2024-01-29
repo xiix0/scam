@@ -1,1 +1,2 @@
-You have no real enemies.
+Your goose is cooked.
+(Your current chick is burned up too!)
