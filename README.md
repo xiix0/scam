@@ -1,2 +1,2 @@
-There is always one thing to remember: writers are always selling somebody out.
-		-- Joan Didion, "Slouching Towards Bethlehem"
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
