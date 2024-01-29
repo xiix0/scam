@@ -1,2 +1,2 @@
-Q:	What's the difference betweeen USL and the Graf Zeppelin?
-A:	The Graf Zeppelin represented cutting edge technology for its time.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
