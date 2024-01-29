@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+Your goose is cooked.
+(Your current chick is burned up too!)
