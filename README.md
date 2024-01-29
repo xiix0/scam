@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+You're ugly and your mother dresses you funny.
