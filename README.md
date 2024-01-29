@@ -1,1 +1,2 @@
-You will gain money by a fattening action.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
