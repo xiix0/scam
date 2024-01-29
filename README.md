@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+You will be a winner today.  Pick a fight with a four-year-old.
