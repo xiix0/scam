@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+You will be honored for contributing your time and skill to a worthy cause.
