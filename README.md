@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+Life is to you a dashing and bold adventure.
