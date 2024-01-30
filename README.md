@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+You will overcome the attacks of jealous associates.
