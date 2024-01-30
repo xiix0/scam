@@ -1,13 +1,22 @@
-Courage is resistance to fear, mastery of fear--not absence of fear.  Except a
-creature be part coward it is not a compliment to say it is brave; it is merely
-a loose misapplication of the word.  Consider the flea!--incomparably the
-bravest of all the creatures of God, if ignorance of fear were courage.
-Whether you are asleep or awake he will attack you, caring nothing for the fact
-that in bulk and strength you are to him as are the massed armies of the earth
-to a sucking child; he lives both day and night and all days and nights in the
-very lap of peril and the immediate presence of death, and yet is no more
-afraid than is the man who walks the streets of a city that was threatened by
-an earthquake ten centuries before.  When we speak of Clive, Nelson, and Putnam
-as men who "didn't know what fear was," we ought always to add the flea--and
-put him at the head of the procession.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Like an expensive sports car, fine-tuned and well-built, Portia was sleek,
+shapely, and gorgeous, her red jumpsuit moulding her body, which was as warm
+as seatcovers in July, her hair as dark as new tires, her eyes flashing like
+bright hubcaps, and her lips as dewy as the beads of fresh rain on the hood;
+she was a woman driven -- fueled by a single accelerant -- and she needed a
+man, a man who wouldn't shift from his views, a man to steer her along the
+right road: a man like Alf Romeo.
+		-- Rachel Sheeley, winner
+
+The hair ball blocking the drain of the shower reminded Laura she would never
+see her little dog Pritzi again.
+		-- Claudia Fields, runner-up
+
+It could have been an organically based disturbance of the brain -- perhaps a
+tumor or a metabolic deficiency -- but after a thorough neurological exam it
+was determined that Byron was simply a jerk.
+		-- Jeff Jahnke, runner-up
+
+Winners in the 7th Annual Bulwer-Lytton Bad Writing Contest.  The contest is
+named after the author of the immortal lines:  "It was a dark and stormy
+night."  The object of the contest is to write the opening sentence of the
+worst possible novel.
