@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
