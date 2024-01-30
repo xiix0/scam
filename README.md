@@ -1,1 +1,2 @@
-Abandon the search for Truth; settle for a good fantasy.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
