@@ -1,1 +1,1 @@
-You are always busy.
+You can create your own opportunities this week.  Blackmail a senior executive.
