@@ -1,1 +1,1 @@
-You will pass away very quickly.
+That secret you've been guarding, isn't.
