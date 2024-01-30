@@ -1,5 +1,3 @@
-	"You have heard me speak of Professor Moriarty?"
-	"The famous scientific criminal, as famous among crooks as --"
-	"My blushes, Watson," Holmes murmured, in a deprecating voice.
-	"I was about to say 'as he is unknown to the public.'"
-		-- A. Conan Doyle, "The Valley of Fear"
+Q:	Why is it that the more accuracy you demand from an interpolation
+	function, the more expensive it becomes to compute?
+A:	That's the Law of Spline Demand.
