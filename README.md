@@ -1,2 +1,2 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
