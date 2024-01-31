@@ -1,1 +1,1 @@
-You have no real enemies.
+Caution: Keep out of reach of children.
