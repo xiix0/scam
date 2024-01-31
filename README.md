@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+Condense soup, not books!
