@@ -1,1 +1,2 @@
-Your aim is high and to the right.
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
