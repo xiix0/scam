@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+Your temporary financial embarrassment will be relieved in a surprising manner.
