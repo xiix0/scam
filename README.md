@@ -1,1 +1,2 @@
-Everything will be just tickety-boo today.
+Conscience doth make cowards of us all.
+		-- Shakespeare
