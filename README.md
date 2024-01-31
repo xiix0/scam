@@ -1,3 +1,3 @@
-Q:	What does a WASP Mom make for dinner?
-A:	A crisp salad, a hearty soup, a lovely entree, followed by
-	a delicious dessert.
+Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
+A:	That's proprietary information.  Answer available from AT&T on payment
+	of license fee (binary only).
