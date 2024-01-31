@@ -1,2 +1,1 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+You have an unusual equipment for success.  Be sure to use it properly.
