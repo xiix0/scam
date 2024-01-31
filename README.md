@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+It's all in the mind, ya know.
