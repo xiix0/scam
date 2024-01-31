@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Try the Moo Shu Pork.  It is especially good today.
