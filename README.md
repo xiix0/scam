@@ -1,1 +1,2 @@
-Condense soup, not books!
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
