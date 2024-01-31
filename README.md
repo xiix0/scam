@@ -1,1 +1,3 @@
-Don't worry so loud, your roommate can't think.
+Reader, suppose you were an idiot.  And suppose you were a member of
+Congress.  But I repeat myself.
+		-- Mark Twain
