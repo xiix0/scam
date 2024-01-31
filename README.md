@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+If you can read this, you're too close.
