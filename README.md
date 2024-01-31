@@ -1,2 +1,1 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+You will be awarded the Nobel Peace Prize... posthumously.
