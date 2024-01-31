@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You are going to have a new love affair.
