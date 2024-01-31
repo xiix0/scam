@@ -1,2 +1,3 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
