@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+Don't get to bragging.
