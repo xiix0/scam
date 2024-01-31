@@ -1,1 +1,1 @@
-You dialed 5483.
+Never reveal your best argument.
