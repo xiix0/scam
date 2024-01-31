@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Time to be aggressive.  Go after a tattooed Virgo.
