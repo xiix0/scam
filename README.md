@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
