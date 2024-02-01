@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+You will be advanced socially, without any special effort on your part.
