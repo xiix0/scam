@@ -1,3 +1,5 @@
-Q:	Why should you always serve a Southern Carolina football man
-	soup in a plate?
-A:	'Cause if you give him a bowl, he'll throw it away.
+Q:	Why do ducks have big flat feet?
+A:	To stamp out forest fires.
+
+Q:	Why do elephants have big flat feet?
+A:	To stamp out flaming ducks.
