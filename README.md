@@ -1,1 +1,2 @@
-You have a deep interest in all that is artistic.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
