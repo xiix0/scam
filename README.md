@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Don't Worry, Be Happy.
+		-- Meher Baba
