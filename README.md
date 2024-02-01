@@ -1,1 +1,2 @@
-You will reach the highest possible point in your business or profession.
+A is for Apple.
+		-- Hester Pryne
