@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+Love is in the offing.  Be affectionate to one who adores you.
