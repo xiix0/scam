@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+Expect a letter from a friend who will ask a favor of you.
