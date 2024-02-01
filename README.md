@@ -1,1 +1,1 @@
-Give him an evasive answer.
+You work very hard.  Don't try to think as well.
