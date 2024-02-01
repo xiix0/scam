@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+What I tell you three times is true.
+		-- Lewis Carroll
