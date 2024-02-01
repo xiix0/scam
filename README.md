@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Things will be bright in P.M.  A cop will shine a light in your face.
