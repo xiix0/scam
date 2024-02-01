@@ -1,2 +1,3 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
