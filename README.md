@@ -1,1 +1,2 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
