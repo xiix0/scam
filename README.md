@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+Beware of a tall black man with one blond shoe.
