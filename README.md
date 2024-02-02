@@ -1,2 +1,3 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+If you pick up a starving dog and make him prosperous, he will not bite you.
+This is the principal difference between a dog and a man.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
