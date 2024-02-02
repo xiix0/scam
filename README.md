@@ -1,1 +1,2 @@
-You will be advanced socially, without any special effort on your part.
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
