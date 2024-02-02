@@ -1,2 +1,1 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+Good day to deal with people in high places; particularly lonely stewardesses.
