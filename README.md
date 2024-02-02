@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+There is a 20% chance of tomorrow.
