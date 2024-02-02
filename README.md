@@ -1,1 +1,2 @@
-If you stand on your head, you will get footprints in your hair.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
