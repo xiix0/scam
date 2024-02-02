@@ -1,2 +1,1 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+Are you ever going to do the dishes?  Or will you change your major to biology?
