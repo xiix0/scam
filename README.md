@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+Don't kiss an elephant on the lips today.
