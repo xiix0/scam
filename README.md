@@ -1,1 +1,1 @@
-Break into jail and claim police brutality.
+Excellent time to become a missing person.
