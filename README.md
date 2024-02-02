@@ -1,1 +1,2 @@
-You will gain money by an illegal action.
+I'll burn my books.
+		-- Christopher Marlowe
