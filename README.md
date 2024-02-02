@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+Too much is just enough.
+		-- Mark Twain, on whiskey
