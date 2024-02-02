@@ -1,1 +1,2 @@
-You will experience a strong urge to do good; but it will pass.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
