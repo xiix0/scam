@@ -1,1 +1,2 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
