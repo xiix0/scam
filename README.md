@@ -1,2 +1,2 @@
-When you are about to die, a wombat is better than no company at all.
-		-- Roger Zelazny, "Doorways in the Sand"
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
