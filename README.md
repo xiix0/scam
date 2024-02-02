@@ -1,2 +1,1 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+If you stand on your head, you will get footprints in your hair.
