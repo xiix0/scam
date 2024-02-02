@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
