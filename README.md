@@ -1,1 +1,2 @@
-You two ought to be more careful--your love could drag on for years and years.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
