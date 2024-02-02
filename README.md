@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+A visit to a strange place will bring fresh work.
