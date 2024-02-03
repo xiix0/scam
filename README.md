@@ -1,1 +1,2 @@
-A day for firm decisions!!!!!  Or is it?
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
