@@ -1,3 +1,2 @@
-A classic is something that everyone wants to have read
-and nobody wants to read.
-		-- Mark Twain, "The Disappearance of Literature"
+Q:	How many IBM 370's does it take to execute a job?
+A:	Four, three to hold it down, and one to rip its head off.
