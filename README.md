@@ -1,1 +1,1 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+Blow it out your ear.
