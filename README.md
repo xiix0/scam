@@ -1,1 +1,2 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
