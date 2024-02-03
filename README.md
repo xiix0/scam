@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
