@@ -1,1 +1,2 @@
-Don't worry so loud, your roommate can't think.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
