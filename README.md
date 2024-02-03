@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+Avert misunderstanding by calm, poise, and balance.
