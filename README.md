@@ -1,2 +1,2 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
