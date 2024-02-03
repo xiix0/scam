@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+You will be winged by an anti-aircraft battery.
