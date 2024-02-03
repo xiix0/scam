@@ -1,1 +1,2 @@
-You will gain money by a fattening action.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
