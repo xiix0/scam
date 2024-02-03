@@ -1,2 +1,4 @@
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
