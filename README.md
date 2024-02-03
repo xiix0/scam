@@ -1,1 +1,2 @@
-If you can read this, you're too close.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
