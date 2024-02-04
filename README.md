@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
