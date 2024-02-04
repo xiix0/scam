@@ -1,1 +1,1 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+Learn to pause -- or nothing worthwhile can catch up to you.
