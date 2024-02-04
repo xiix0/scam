@@ -1,1 +1,1 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Tomorrow, you can be anywhere.
