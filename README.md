@@ -1,2 +1,1 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+Your aim is high and to the right.
