@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+You will be aided greatly by a person whom you thought to be unimportant.
