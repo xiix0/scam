@@ -1,2 +1,2 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+He is now rising from affluence to poverty.
+		-- Mark Twain
