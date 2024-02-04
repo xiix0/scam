@@ -1,1 +1,1 @@
-You work very hard.  Don't try to think as well.
+Reply hazy, ask again later.
