@@ -1,1 +1,2 @@
-You have the power to influence all with whom you come in contact.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
