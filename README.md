@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+Your reasoning powers are good, and you are a fairly good planner.
