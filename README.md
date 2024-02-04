@@ -1,2 +1,2 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
