@@ -1,1 +1,1 @@
-You will never know hunger.
+Don't kiss an elephant on the lips today.
