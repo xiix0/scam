@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Hope that the day after you die is a nice day.
