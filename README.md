@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Your aim is high and to the right.
