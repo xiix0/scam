@@ -1,2 +1,2 @@
-"Life, loathe it or ignore it, you can't like it."
-		-- Marvin, "Hitchhiker's Guide to the Galaxy"
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
