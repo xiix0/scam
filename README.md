@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
