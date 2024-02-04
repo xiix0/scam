@@ -1,1 +1,1 @@
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+Your society will be sought by people of taste and refinement.
