@@ -1,1 +1,2 @@
-Your supervisor is thinking about you.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
