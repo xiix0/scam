@@ -1,2 +1,2 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
