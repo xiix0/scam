@@ -1,1 +1,2 @@
-You are deeply attached to your friends and acquaintances.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
