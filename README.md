@@ -1,1 +1,2 @@
-You have an unusual understanding of the problems of human relationships.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
