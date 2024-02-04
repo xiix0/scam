@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Day of inquiry.  You will be subpoenaed.
