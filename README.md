@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+Executive ability is prominent in your make-up.
