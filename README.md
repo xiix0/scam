@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+Look afar and see the end from the beginning.
