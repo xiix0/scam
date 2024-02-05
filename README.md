@@ -1,1 +1,2 @@
-Save energy: be apathetic.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
