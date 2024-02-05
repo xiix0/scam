@@ -1,2 +1,1 @@
-Q:	What do you have when you have a lawyer buried up to his neck in sand?
-A:	Not enough sand.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
