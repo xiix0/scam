@@ -1,1 +1,3 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
