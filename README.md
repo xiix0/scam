@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+You will soon meet a person who will play an important role in your life.
