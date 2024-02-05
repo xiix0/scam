@@ -1,1 +1,2 @@
-Reply hazy, ask again later.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
