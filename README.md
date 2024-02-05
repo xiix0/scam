@@ -1,1 +1,1 @@
-Don't get to bragging.
+You will be the victim of a bizarre joke.
