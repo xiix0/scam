@@ -1,2 +1,2 @@
-Q:	How many marketing people does it take to change a light bulb?
-A:	I'll have to get back to you on that.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
