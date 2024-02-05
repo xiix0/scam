@@ -1,1 +1,1 @@
-You will soon meet a person who will play an important role in your life.
+You will experience a strong urge to do good; but it will pass.
