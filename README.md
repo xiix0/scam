@@ -1,1 +1,2 @@
-The time is right to make new friends.
+I'll burn my books.
+		-- Christopher Marlowe
