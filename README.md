@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+What happened last night can happen again.
