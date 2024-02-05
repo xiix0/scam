@@ -1,1 +1,2 @@
-Best of all is never to have been born.  Second best is to die soon.
+Q:	What do you have when you have a lawyer buried up to his neck in sand?
+A:	Not enough sand.
