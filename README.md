@@ -1,1 +1,2 @@
-You will be the victim of a bizarre joke.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
