@@ -1,2 +1,2 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
