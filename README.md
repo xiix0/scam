@@ -1,1 +1,1 @@
-You will get what you deserve.
+You will always have good luck in your personal affairs.
