@@ -1,1 +1,2 @@
-You will have good luck and overcome many hardships.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
