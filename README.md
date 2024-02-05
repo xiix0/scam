@@ -1,2 +1,1 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+Lady Luck brings added income today.  Lady friend takes it away tonight.
