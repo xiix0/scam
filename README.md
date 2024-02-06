@@ -1,4 +1,2 @@
-AWAKE! FEAR! FIRE! FOES! AWAKE!
-	FEAR! FIRE! FOES!
-		AWAKE! AWAKE!
-		-- J. R. R. Tolkien
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
