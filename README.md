@@ -1,2 +1,1 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+You'll be called to a post requiring ability in handling groups of people.
