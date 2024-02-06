@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+Today is the tomorrow you worried about yesterday.
