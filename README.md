@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+You will be winged by an anti-aircraft battery.
