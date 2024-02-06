@@ -1,1 +1,3 @@
-Think twice before speaking, but don't say "think think click click".
+Its name is Public Opinion.  It is held in reverence.  It settles everything.
+Some think it is the voice of God.
+		-- Mark Twain
