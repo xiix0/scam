@@ -1,2 +1,1 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+Your sister swims out to meet troop ships.
