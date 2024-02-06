@@ -1,2 +1,1 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+You can create your own opportunities this week.  Blackmail a senior executive.
