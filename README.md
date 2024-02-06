@@ -1,1 +1,1 @@
-You dialed 5483.
+Your nature demands love and your happiness depends on it.
