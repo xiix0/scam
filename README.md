@@ -1,1 +1,3 @@
-Future looks spotty.  You will spill soup in late evening.
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
