@@ -1,1 +1,2 @@
-You will have a long and unpleasant discussion with your supervisor.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
