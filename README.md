@@ -1,1 +1,1 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+You will be a winner today.  Pick a fight with a four-year-old.
