@@ -1,2 +1,2 @@
-Truth is the most valuable thing we have -- so let us economize it.
+Wrinkles should merely indicate where smiles have been.
 		-- Mark Twain
