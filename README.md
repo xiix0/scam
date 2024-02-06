@@ -1,1 +1,1 @@
-Your step will soil many countries.
+Your true value depends entirely on what you are compared with.
