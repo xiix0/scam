@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
+		-- Sherlock Holmes
