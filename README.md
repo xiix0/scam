@@ -1,3 +1,2 @@
-Let us endeavor so to live that when we come to die even the undertaker will be
-sorry.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
