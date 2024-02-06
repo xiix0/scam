@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+Your talents will be recognized and suitably rewarded.
