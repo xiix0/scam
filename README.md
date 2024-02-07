@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Hope that the day after you die is a nice day.
