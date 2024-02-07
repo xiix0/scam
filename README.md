@@ -1,1 +1,2 @@
-Hope that the day after you die is a nice day.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
