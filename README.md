@@ -1,2 +1,3 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	One.  Only it's his light bulb when he's done.
+So so is good, very good, very excellent good:
+and yet it is not; it is but so so.
+		-- William Shakespeare, "As You Like It"
