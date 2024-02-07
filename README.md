@@ -1,2 +1,2 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
