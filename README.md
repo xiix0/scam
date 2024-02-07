@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+Try the Moo Shu Pork.  It is especially good today.
