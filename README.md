@@ -1,1 +1,2 @@
-You will be divorced within a year.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
