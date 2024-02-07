@@ -1,2 +1,2 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
