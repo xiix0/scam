@@ -1,2 +1,1 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+Your boss is a few sandwiches short of a picnic.
