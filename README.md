@@ -1,2 +1,2 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
