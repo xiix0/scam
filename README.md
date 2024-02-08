@@ -1,1 +1,2 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
