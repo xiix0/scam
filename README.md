@@ -1,3 +1,3 @@
-The difference between a Miracle and a Fact is exactly the difference
-between a mermaid and a seal.
-		-- Mark Twain
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
