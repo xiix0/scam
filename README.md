@@ -1,2 +1,1 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Time to be aggressive.  Go after a tattooed Virgo.
