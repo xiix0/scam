@@ -1,1 +1,1 @@
-Long life is in store for you.
+Your aims are high, and you are capable of much.
