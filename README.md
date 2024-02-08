@@ -1,1 +1,2 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
