@@ -1,3 +1,1 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+You will be aided greatly by a person whom you thought to be unimportant.
