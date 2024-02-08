@@ -1,1 +1,2 @@
-Reply hazy, ask again later.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
