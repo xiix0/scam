@@ -1,2 +1,1 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
