@@ -1,1 +1,3 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
