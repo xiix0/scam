@@ -1,2 +1,2 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+Q:	How many IBM CPU's does it take to do a logical right shift?
+A:	33.  1 to hold the bits and 32 to push the register.
