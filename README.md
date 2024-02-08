@@ -1,1 +1,2 @@
-In the stairway of life, you'd best take the elevator.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
