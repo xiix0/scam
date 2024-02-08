@@ -1,3 +1,2 @@
-Hain't we got all the fools in town on our side?  And hain't that a big
-enough majority in any town?
-		-- Mark Twain, "Huckleberry Finn"
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
