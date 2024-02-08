@@ -1,2 +1,2 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+I'll burn my books.
+		-- Christopher Marlowe
