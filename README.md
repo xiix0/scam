@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
