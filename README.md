@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+What happened last night can happen again.
