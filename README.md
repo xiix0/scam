@@ -1,3 +1,2 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
