@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
