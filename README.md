@@ -1,2 +1,2 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
