@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
