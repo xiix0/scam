@@ -1,1 +1,4 @@
-You plan things that you do not even attempt because of your extreme caution.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
