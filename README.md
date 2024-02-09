@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
