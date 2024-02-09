@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+You're currently going through a difficult transition period called "Life."
