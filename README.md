@@ -1,1 +1,1 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+You plan things that you do not even attempt because of your extreme caution.
