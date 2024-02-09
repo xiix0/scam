@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+You will inherit some money or a small piece of land.
