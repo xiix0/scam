@@ -1,1 +1,2 @@
-You will not be elected to public office this year.
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
