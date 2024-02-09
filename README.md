@@ -1,1 +1,2 @@
-A tall, dark stranger will have more fun than you.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
