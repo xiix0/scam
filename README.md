@@ -1,3 +1,3 @@
-The difference between the right word and the almost right word is the
-difference between lightning and the lightning bug.
-		-- Mark Twain
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
+A:	The Royal Canadian Mounted Police.
+Q:	What was the greatest achievement in taxidermy?
