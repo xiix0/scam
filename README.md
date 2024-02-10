@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+Excellent day to have a rotten day.
