@@ -1,3 +1,2 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
