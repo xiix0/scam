@@ -1,6 +1,7 @@
-The lovely woman-child Kaa was mercilessly chained to the cruel post of
-the warrior-chief Beast, with his barbarian tribe now stacking wood at
-her nubile feet, when the strong clear voice of the poetic and heroic
-Handsomas roared, 'Flick your Bic, crisp that chick, and you'll feel my
-steel through your last meal!'
-		-- Winning sentence, 1984 Bulwer-Lytton bad fiction contest.
+Sheriff Chameleotoptor sighed with an air of weary sadness, and then
+turned to Doppelgutt and said 'The Senator must really have been on a
+bender this time -- he left a party in Cleveland, Ohio, at 11:30 last
+night, and they found his car this morning in the smokestack of a British
+aircraft carrier in the Formosa Straits.'
+		-- Grand Panjandrum's Special Award, 1985 Bulwer-Lytton
+		   bad fiction contest.
