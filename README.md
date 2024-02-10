@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+You may get an opportunity for advancement today.  Watch it!
