@@ -1,2 +1,1 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+Don't tell any big lies today.  Small ones can be just as effective.
