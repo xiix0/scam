@@ -1,2 +1,3 @@
-Q:	What's the difference between a Mac and an Etch-a-Sketch?
-A:	You don't have to shake the Mac to clear the screen.
+Q:	How do you play religious roulette?
+A:	You stand around in a circle and blaspheme and see who gets
+	struck by lightning first.
