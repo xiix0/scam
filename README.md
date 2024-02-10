@@ -1,1 +1,3 @@
-You are a bundle of energy, always on the go.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
