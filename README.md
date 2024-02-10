@@ -1,2 +1,3 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+Q:	Why do the police always travel in threes?
+A:	One to do the reading, one to do the writing, and the other keeps
+	an eye on the two intellectuals.
