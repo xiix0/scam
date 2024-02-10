@@ -1,6 +1,2 @@
-Q:	How do you shoot a blue elephant?
-A:	With a blue-elephant gun.
-
-Q:	How do you shoot a pink elephant?
-A:	Twist its trunk until it turns blue, then shoot it with
-	a blue-elephant gun.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
