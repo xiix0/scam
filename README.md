@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+It's all in the mind, ya know.
