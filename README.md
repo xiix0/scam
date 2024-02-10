@@ -1,2 +1,2 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
