@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+Avert misunderstanding by calm, poise, and balance.
