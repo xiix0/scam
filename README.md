@@ -1,1 +1,2 @@
-Give your very best today.  Heaven knows it's little enough.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
