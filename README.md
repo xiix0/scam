@@ -1,3 +1,6 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+Q:	How do you shoot a blue elephant?
+A:	With a blue-elephant gun.
+
+Q:	How do you shoot a pink elephant?
+A:	Twist its trunk until it turns blue, then shoot it with
+	a blue-elephant gun.
