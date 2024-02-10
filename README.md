@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
