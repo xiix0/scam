@@ -1,1 +1,2 @@
-You're not my type.  For that matter, you're not even my species!!!
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
