@@ -1,2 +1,1 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+You are sick, twisted and perverted.  I like that in a person.
