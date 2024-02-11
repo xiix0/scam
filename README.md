@@ -1,2 +1,1 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+You are so boring that when I see you my feet go to sleep.
