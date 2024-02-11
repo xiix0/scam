@@ -1,3 +1,2 @@
-Q:	Why do people who live near Niagara Falls have flat foreheads?
-A:	Because every morning they wake up thinking "What *is* that noise?
-	Oh, right, *of course*!
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
