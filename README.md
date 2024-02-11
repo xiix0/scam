@@ -1,1 +1,1 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+Alimony and bribes will engage a large share of your wealth.
