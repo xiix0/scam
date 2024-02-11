@@ -1,2 +1,3 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Q:	Why do people who live near Niagara Falls have flat foreheads?
+A:	Because every morning they wake up thinking "What *is* that noise?
+	Oh, right, *of course*!
