@@ -1,1 +1,2 @@
-You will be recognized and honored as a community leader.
+The Public is merely a multiplied "me."
+		-- Mark Twain
