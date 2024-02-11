@@ -1,5 +1,1 @@
-Q:	What do monsters eat?
-A:	Things.
-
-Q:	What do monsters drink?
-A:	Coke.  (Because Things go better with Coke.)
+Future looks spotty.  You will spill soup in late evening.
