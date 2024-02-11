@@ -1,1 +1,2 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
