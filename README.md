@@ -1,1 +1,1 @@
-Is this really happening?
+You will be recognized and honored as a community leader.
