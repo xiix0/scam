@@ -1,2 +1,2 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
