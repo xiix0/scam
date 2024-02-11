@@ -1,2 +1,1 @@
-Q:	What is the difference between Texas and yogurt?
-A:	Yogurt has culture.
+You have Egyptian flu: you're going to be a mummy.
