@@ -1,2 +1,2 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
