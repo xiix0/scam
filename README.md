@@ -1,2 +1,2 @@
-Q:	What do agnostic, insomniac dyslexics do at night?
-A:	Stay awake and wonder if there's a dog.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
