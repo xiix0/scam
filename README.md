@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
