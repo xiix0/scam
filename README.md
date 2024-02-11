@@ -1,1 +1,1 @@
-You love peace.
+Is this really happening?
