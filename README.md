@@ -1,2 +1,3 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+Q:	What's the difference between a dead dog in the road and a dead
+	lawyer in the road?
+A:	There are skid marks in front of the dog.
