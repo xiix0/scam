@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+You're not my type.  For that matter, you're not even my species!!!
