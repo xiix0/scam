@@ -1,2 +1,2 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
