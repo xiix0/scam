@@ -1,1 +1,2 @@
-Your domestic life may be harmonious.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
