@@ -1,2 +1,2 @@
-You are wise, witty, and wonderful, but you spend too much time reading
-this sort of trash.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
