@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+You'll be called to a post requiring ability in handling groups of people.
