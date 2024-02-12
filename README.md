@@ -1,2 +1,1 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Your boss climbed the corporate ladder, wrong by wrong.
