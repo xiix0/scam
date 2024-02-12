@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Beware of low-flying butterflies.
