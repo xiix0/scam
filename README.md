@@ -1,2 +1,2 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
