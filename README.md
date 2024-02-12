@@ -1,1 +1,2 @@
-You are not dead yet.  But watch for further reports.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
