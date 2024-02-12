@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+You will be awarded some great honor.
