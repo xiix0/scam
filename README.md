@@ -1,1 +1,2 @@
-Don't look now, but the man in the moon is laughing at you.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
