@@ -1,2 +1,1 @@
-"... all the modern inconveniences ..."
-		-- Mark Twain
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
