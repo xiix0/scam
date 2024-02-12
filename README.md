@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+Don't read everything you believe.
