@@ -1,1 +1,2 @@
-You are taking yourself far too seriously.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
