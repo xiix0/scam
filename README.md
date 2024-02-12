@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+"... all the modern inconveniences ..."
+		-- Mark Twain
