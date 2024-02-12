@@ -1,3 +1,1 @@
-You may my glories and my state dispose,
-But not my griefs; still am I king of those.
-		-- William Shakespeare, "Richard II"
+Chicken Little only has to be right once.
