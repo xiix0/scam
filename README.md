@@ -1,2 +1,4 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+In India, "cold weather" is merely a conventional phrase and has come into
+use through the necessity of having some way to distinguish between weather
+which will melt a brass door-knob and weather which will only make it mushy.
+		-- Mark Twain
