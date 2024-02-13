@@ -1,2 +1,3 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+Someone is speaking well of you.
+
+How unusual!
