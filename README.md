@@ -1,1 +1,1 @@
-Accent on helpful side of your nature.  Drain the moat.
+Communicate!  It can't make things any worse.
