@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Don't get stuck in a closet -- wear yourself out.
