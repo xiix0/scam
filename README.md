@@ -1,1 +1,2 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
