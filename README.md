@@ -1,2 +1,1 @@
-The fashion wears out more apparel than the man.
-		-- William Shakespeare, "Much Ado About Nothing"
+Things will be bright in P.M.  A cop will shine a light in your face.
