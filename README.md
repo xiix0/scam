@@ -1,1 +1,2 @@
-You may get an opportunity for advancement today.  Watch it!
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
