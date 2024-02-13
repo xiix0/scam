@@ -1,1 +1,1 @@
-Your present plans will be successful.
+You have a strong appeal for members of the opposite sex.
