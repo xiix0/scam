@@ -1,3 +1,3 @@
-Hain't we got all the fools in town on our side?  And hain't that a big
-enough majority in any town?
-		-- Mark Twain, "Huckleberry Finn"
+Q:	Why do people who live near Niagara Falls have flat foreheads?
+A:	Because every morning they wake up thinking "What *is* that noise?
+	Oh, right, *of course*!
