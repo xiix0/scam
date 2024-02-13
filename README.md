@@ -1,1 +1,2 @@
-Don't relax!  It's only your tension that's holding you together.
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
