@@ -1,3 +1,3 @@
-Q:	Why do people who live near Niagara Falls have flat foreheads?
-A:	Because every morning they wake up thinking "What *is* that noise?
-	Oh, right, *of course*!
+This is the first age that's paid much attention to the future, which is a
+little ironic since we may not have one.
+		-- Arthur Clarke
