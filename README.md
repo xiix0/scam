@@ -1,1 +1,3 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+The mind is its own place, and in itself
+Can make a Heav'n of Hell, a Hell of Heav'n.
+		-- John Milton
