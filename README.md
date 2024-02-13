@@ -1,1 +1,2 @@
-Your love life will be happy and harmonious.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
