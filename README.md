@@ -1,2 +1,1 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+Truth will out this morning.  (Which may really mess things up.)
