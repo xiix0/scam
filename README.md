@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+Q:	How many IBM 370's does it take to execute a job?
+A:	Four, three to hold it down, and one to rip its head off.
