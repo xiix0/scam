@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
