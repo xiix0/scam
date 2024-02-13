@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+You will be imprisoned for contributing your time and skill to a bank robbery.
