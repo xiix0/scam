@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+You will obey or molten silver will be poured into your ears.
