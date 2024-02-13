@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+You're at the end of the road again.
