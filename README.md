@@ -1,1 +1,2 @@
-Your lover will never wish to leave you.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
