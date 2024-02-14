@@ -1,1 +1,5 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
