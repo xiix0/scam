@@ -1,1 +1,3 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
