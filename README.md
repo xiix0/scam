@@ -1,2 +1,4 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
