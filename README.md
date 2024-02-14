@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
