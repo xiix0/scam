@@ -1,2 +1,2 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
