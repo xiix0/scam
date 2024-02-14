@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+You're not my type.  For that matter, you're not even my species!!!
