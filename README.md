@@ -1,3 +1,1 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+Your mode of life will be changed for the better because of good news soon.
