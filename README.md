@@ -1,2 +1,2 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
