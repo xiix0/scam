@@ -1,1 +1,3 @@
-Try to have as good a life as you can under the circumstances.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
