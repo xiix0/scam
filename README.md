@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+A visit to a fresh place will bring strange work.
