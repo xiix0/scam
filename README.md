@@ -1,2 +1,1 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+If you stand on your head, you will get footprints in your hair.
