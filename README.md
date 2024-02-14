@@ -1,1 +1,1 @@
-There was a phone call for you.
+Good news from afar can bring you a welcome visitor.
