@@ -1,1 +1,2 @@
-Perfect day for scrubbing the floor and other exciting things.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
