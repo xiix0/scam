@@ -1,1 +1,2 @@
-You'll be called to a post requiring ability in handling groups of people.
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
