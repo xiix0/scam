@@ -1,2 +1,1 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+You can rent this space for only $5 a week.
