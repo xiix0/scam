@@ -1,2 +1,1 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+Don't look now, but there is a multi-legged creature on your shoulder.
