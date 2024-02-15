@@ -1,2 +1,2 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
