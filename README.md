@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
