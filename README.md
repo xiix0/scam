@@ -1,1 +1,2 @@
-Today is the tomorrow you worried about yesterday.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
