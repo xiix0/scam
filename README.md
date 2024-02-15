@@ -1,2 +1,1 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
