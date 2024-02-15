@@ -1,1 +1,3 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
