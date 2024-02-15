@@ -1,2 +1,1 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+Your boss climbed the corporate ladder, wrong by wrong.
