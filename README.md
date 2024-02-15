@@ -1,2 +1,1 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
