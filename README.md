@@ -1,1 +1,1 @@
-Are you ever going to do the dishes?  Or will you change your major to biology?
+You have a will that can be influenced by all with whom you come in contact.
