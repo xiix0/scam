@@ -1,1 +1,2 @@
-A visit to a fresh place will bring strange work.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
