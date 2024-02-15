@@ -1,1 +1,2 @@
-You will have domestic happiness and faithful friends.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
