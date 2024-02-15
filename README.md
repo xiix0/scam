@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
