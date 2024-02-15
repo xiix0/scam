@@ -1,2 +1,2 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
