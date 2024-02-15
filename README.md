@@ -1,2 +1,2 @@
-You have a reputation for being thoroughly reliable and trustworthy.
-A pity that it's totally undeserved.
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
