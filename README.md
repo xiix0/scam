@@ -1,6 +1,2 @@
-Q:	How do you shoot a blue elephant?
-A:	With a blue-elephant gun.
-
-Q:	How do you shoot a pink elephant?
-A:	Twist its trunk until it turns blue, then shoot it with
-	a blue-elephant gun.
+	A man was reading The Canterbury Tales one Saturday morning, when his
+wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
