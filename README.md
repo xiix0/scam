@@ -1,1 +1,3 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Q:	What looks like a cat, flies like a bat, brays like a donkey, and
+	plays like a monkey?
+A:	Nothing.
