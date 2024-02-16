@@ -1,3 +1,2 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
