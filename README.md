@@ -1,2 +1,3 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
