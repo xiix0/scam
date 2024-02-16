@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+You will live a long, healthy, happy life and make bags of money.
