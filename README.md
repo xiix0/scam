@@ -1,1 +1,1 @@
-You will be honored for contributing your time and skill to a worthy cause.
+You attempt things that you do not even plan because of your extreme stupidity.
