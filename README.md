@@ -1,5 +1,3 @@
-Q:	How do you catch a unique rabbit?
-A:	Unique up on it!
-
-Q:	How do you catch a tame rabbit?
-A:	The tame way!
+Q:	How many Zen masters does it take to screw in a light bulb?
+A:	None.  The Universe spins the bulb, and the Zen master stays out
+	of the way.
