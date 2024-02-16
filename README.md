@@ -1,2 +1,2 @@
-Truth is the most valuable thing we have -- so let us economize it.
+I have never let my schooling interfere with my education.
 		-- Mark Twain
