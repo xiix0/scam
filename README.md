@@ -1,2 +1,2 @@
-Q:	What's tiny and yellow and very, very, dangerous?
-A:	A canary with the super-user password.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
