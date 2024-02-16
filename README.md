@@ -1,1 +1,1 @@
-Everything that you know is wrong, but you can be straightened out.
+You teach best what you most need to learn.
