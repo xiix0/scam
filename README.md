@@ -1,1 +1,2 @@
-Your talents will be recognized and suitably rewarded.
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
