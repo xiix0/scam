@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+You may get an opportunity for advancement today.  Watch it!
