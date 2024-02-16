@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
