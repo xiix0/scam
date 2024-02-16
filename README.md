@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+You look like a million dollars.  All green and wrinkled.
