@@ -1,2 +1,2 @@
-Talkers are no good doers.
+Harp not on that string.
 		-- William Shakespeare, "Henry VI"
