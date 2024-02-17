@@ -1,1 +1,1 @@
-You would if you could but you can't so you won't.
+You will be recognized and honored as a community leader.
