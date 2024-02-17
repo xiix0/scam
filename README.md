@@ -1,1 +1,2 @@
-You are not dead yet.  But watch for further reports.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
