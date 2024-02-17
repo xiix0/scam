@@ -1,2 +1,2 @@
-Q:	How many college football players does it take to screw in a light bulb?
-A:	Only one, but he gets three credits for it.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
