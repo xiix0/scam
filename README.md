@@ -1,1 +1,1 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+Good day to deal with people in high places; particularly lonely stewardesses.
