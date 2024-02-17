@@ -1,1 +1,1 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+You have a strong appeal for members of the opposite sex.
