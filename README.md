@@ -1,2 +1,4 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+	You will remember, Watson, how the dreadful business of the
+Abernetty family was first brought to my notice by the depth which the
+parsley had sunk into the butter upon a hot day.
+		-- Sherlock Holmes
