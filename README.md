@@ -1,1 +1,2 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
