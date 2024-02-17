@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+Excellent day to have a rotten day.
