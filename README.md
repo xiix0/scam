@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+Your temporary financial embarrassment will be relieved in a surprising manner.
