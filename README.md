@@ -1,2 +1,8 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+To be or not to be.
+		-- Shakespeare
+To do is to be.
+		-- Nietzsche
+To be is to do.
+		-- Sartre
+Do be do be do.
+		-- Sinatra
