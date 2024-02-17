@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+You're not my type.  For that matter, you're not even my species!!!
