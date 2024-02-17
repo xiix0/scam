@@ -1,2 +1,1 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+Hope that the day after you die is a nice day.
