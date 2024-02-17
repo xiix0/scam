@@ -1,1 +1,2 @@
-You have literary talent that you should take pains to develop.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
