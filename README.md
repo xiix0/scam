@@ -1,2 +1,1 @@
-Q:	What's the difference between Bell Labs and the Boy Scouts of America?
-A:	The Boy Scouts have adult supervision.
+Are you making all this up as you go along?
