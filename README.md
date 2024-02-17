@@ -1,1 +1,1 @@
-You will be run over by a bus.
+Be security conscious -- National defense is at stake.
