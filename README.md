@@ -1,2 +1,1 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
-		-- Mark Twain
+Today is the first day of the rest of the mess.
