@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+You will feel hungry again in another hour.
