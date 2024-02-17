@@ -1,1 +1,1 @@
-Bridge ahead.  Pay troll.
+Time to be aggressive.  Go after a tattooed Virgo.
