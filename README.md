@@ -1,1 +1,1 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+You're being followed.  Cut out the hanky-panky for a few days.
