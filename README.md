@@ -1,2 +1,1 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
