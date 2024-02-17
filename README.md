@@ -1,2 +1,2 @@
-Q:	Why do WASPs play golf ?
-A:	So they can dress like pimps.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
