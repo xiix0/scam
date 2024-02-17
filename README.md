@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+It may or may not be worthwhile, but it still has to be done.
