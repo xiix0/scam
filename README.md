@@ -1,1 +1,2 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
