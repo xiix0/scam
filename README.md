@@ -1,1 +1,2 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+"... all the modern inconveniences ..."
+		-- Mark Twain
