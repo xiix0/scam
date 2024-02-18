@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+Beware of low-flying butterflies.
