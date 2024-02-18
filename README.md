@@ -1,1 +1,2 @@
-Bank error in your favor.  Collect $200.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
