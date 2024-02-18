@@ -1,1 +1,1 @@
-You could live a better life, if you had a better mind and a better body.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
