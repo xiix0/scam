@@ -1,3 +1,1 @@
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
-		-- Mark Twain
+Don't you feel more like you do now than you did when you came in?
