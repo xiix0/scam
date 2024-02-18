@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+You will be successful in love.
