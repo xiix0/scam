@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+Chicken Little only has to be right once.
