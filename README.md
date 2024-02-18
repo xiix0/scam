@@ -1,2 +1,2 @@
-Q:	Why do WASPs play golf ?
-A:	So they can dress like pimps.
+Your goose is cooked.
+(Your current chick is burned up too!)
