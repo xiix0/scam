@@ -1,2 +1,3 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	One.  Only it's his light bulb when he's done.
+Zounds!  I was never so bethumped with words
+since I first called my brother's father dad.
+		-- William Shakespeare, "Kind John"
