@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+Ships are safe in harbor, but they were never meant to stay there.
