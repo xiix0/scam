@@ -1,1 +1,1 @@
-It may or may not be worthwhile, but it still has to be done.
+Don't look now, but the man in the moon is laughing at you.
