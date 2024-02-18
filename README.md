@@ -1,2 +1,1 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+You will be reincarnated as a toad; and you will be much happier.
