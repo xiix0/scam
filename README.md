@@ -1,2 +1,1 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Lady Luck brings added income today.  Lady friend takes it away tonight.
