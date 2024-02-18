@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Don't look now, but there is a multi-legged creature on your shoulder.
