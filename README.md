@@ -1,1 +1,2 @@
-Don't look back, the lemmings are gaining on you.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
