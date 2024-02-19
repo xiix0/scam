@@ -1,3 +1,1 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
