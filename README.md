@@ -1,1 +1,2 @@
-Your step will soil many countries.
+"... all the modern inconveniences ..."
+		-- Mark Twain
