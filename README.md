@@ -1,1 +1,1 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
