@@ -1,1 +1,1 @@
-You will have a long and boring life.
+You will be married within a year, and divorced within two.
