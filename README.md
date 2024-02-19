@@ -1,2 +1,2 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
