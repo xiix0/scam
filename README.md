@@ -1,2 +1,1 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+If you can read this, you're too close.
