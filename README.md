@@ -1,1 +1,2 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
