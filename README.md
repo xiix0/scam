@@ -1,1 +1,2 @@
-You will meet an important person who will help you advance professionally.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
