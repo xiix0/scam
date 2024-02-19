@@ -1,2 +1,2 @@
-He that breaks a thing to find out what it is has left the path of wisdom.
-		-- J.R.R. Tolkien
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
