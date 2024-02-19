@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+Things will be bright in P.M.  A cop will shine a light in your face.
