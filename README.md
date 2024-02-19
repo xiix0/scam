@@ -1,1 +1,2 @@
-You will be married within a year, and divorced within two.
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
