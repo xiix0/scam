@@ -1,3 +1,3 @@
-Grief can take care of itself; but to get the full value of a joy you must
-have somebody to divide it with.
-		-- Mark Twain
+Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
+A:	Easy.  It's because they can't figure out how to get the little
+	bottles into the typewriter.
