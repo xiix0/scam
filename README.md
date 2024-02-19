@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+Your depth of comprehension may tend to make you lax in worldly ways.
