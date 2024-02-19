@@ -1,1 +1,3 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
