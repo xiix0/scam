@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+You will be honored for contributing your time and skill to a worthy cause.
