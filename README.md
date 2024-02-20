@@ -1,1 +1,2 @@
-Give your very best today.  Heaven knows it's little enough.
+No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
+		-- Sherlock Holmes
