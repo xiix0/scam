@@ -1,2 +1,2 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+Q:	What do little WASPs want to be when they grow up?
+A:	The very best person they can possibly be.
