@@ -1,1 +1,1 @@
-Bridge ahead.  Pay troll.
+Don't kiss an elephant on the lips today.
