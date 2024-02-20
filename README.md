@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+Q:	What is the sound of one cat napping?
+A:	Mu.
