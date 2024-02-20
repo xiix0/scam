@@ -1,1 +1,2 @@
-You will visit the Dung Pits of Glive soon.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
