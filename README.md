@@ -1,2 +1,4 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
