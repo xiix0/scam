@@ -1,1 +1,1 @@
-Accent on helpful side of your nature.  Drain the moat.
+Don't hate yourself in the morning -- sleep till noon.
