@@ -1,1 +1,2 @@
-You are only young once, but you can stay immature indefinitely.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
