@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+You're ugly and your mother dresses you funny.
