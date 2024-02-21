@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+Go to a movie tonight.  Darkness becomes you.
