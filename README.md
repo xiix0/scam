@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
