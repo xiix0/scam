@@ -1,1 +1,2 @@
-Don't look now, but the man in the moon is laughing at you.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
