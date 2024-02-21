@@ -1,1 +1,2 @@
-Do not overtax your powers.
+When in doubt, tell the truth.
+		-- Mark Twain
