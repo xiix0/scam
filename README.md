@@ -1,1 +1,2 @@
-You're at the end of the road again.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
