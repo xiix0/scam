@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+Among the lucky, you are the chosen one.
