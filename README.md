@@ -1,2 +1,2 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
