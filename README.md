@@ -1,3 +1,1 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+You are a fluke of the universe; you have no right to be here.
