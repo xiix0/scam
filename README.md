@@ -1,4 +1,2 @@
-O, it is excellent
-To have a giant's strength; but it is tyrannous
-To use it like a giant.
-		-- Shakespeare, "Measure for Measure", II, 2
+Q:	How many Harvard MBA's does it take to screw in a light bulb?
+A:	Just one.  He grasps it firmly and the universe revolves around him.
