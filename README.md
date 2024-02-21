@@ -1,1 +1,3 @@
-Beware of a tall black man with one blond shoe.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
