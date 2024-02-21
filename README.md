@@ -1,2 +1,2 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+He is now rising from affluence to poverty.
+		-- Mark Twain
