@@ -1,3 +1,3 @@
-There is no hunting like the hunting of man, and those who have hunted
-armed men long enough and liked it, never care for anything else thereafter.
-		-- Ernest Hemingway
+Your manuscript is both good and original, but the part that is good is not
+original and the part that is original is not good.
+		-- Samuel Johnson
