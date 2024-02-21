@@ -1,2 +1,2 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+Too much is just enough.
+		-- Mark Twain, on whiskey
