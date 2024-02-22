@@ -1,2 +1,3 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+Your manuscript is both good and original, but the part that is good is not
+original and the part that is original is not good.
+		-- Samuel Johnson
