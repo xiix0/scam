@@ -1,2 +1,1 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+You're definitely on their list.  The question to ask next is what list it is.
