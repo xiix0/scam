@@ -1,1 +1,2 @@
-Give your very best today.  Heaven knows it's little enough.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
