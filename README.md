@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Future looks spotty.  You will spill soup in late evening.
