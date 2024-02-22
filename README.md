@@ -1,2 +1,3 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+Q:	Why does Washington have the most lawyers per capita and
+	New Jersey the most toxic waste dumps?
+A:	God gave New Jersey first choice.
