@@ -1,1 +1,1 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+Try to get all of your posthumous medals in advance.
