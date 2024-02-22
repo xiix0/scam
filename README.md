@@ -1,2 +1,2 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
