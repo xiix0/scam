@@ -1,1 +1,2 @@
-Think twice before speaking, but don't say "think think click click".
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
