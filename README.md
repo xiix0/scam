@@ -1,6 +1,5 @@
-Q:	What did Tarzan say when he saw the elephants coming over the hill?
-A:	"The elephants are coming over the hill."
-
-Q:	What did he say when saw them coming over the hill wearing
-		sunglasses?
-A:	Nothing, for he didn't recognize them.
+Q:	How does the Polish Constitution differ from the American?
+A:	Under the Polish Constitution citizens are guaranteed freedom of
+	speech, but under the United States constitution they are
+	guaranteed freedom after speech.
+		-- being told in Poland, 1987
