@@ -1,1 +1,2 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
