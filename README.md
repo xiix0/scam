@@ -1,1 +1,1 @@
-Long life is in store for you.
+Love is in the offing.  Be affectionate to one who adores you.
