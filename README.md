@@ -1,1 +1,2 @@
-Don't you feel more like you do now than you did when you came in?
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
