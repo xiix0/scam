@@ -1,2 +1,2 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
