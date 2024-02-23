@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
