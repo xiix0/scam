@@ -1,2 +1,1 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+Cheer Up!  Things are getting worse at a slower rate.
