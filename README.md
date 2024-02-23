@@ -1,1 +1,3 @@
-You're definitely on their list.  The question to ask next is what list it is.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
+		-- Mark Twain
