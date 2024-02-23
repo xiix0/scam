@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Think twice before speaking, but don't say "think think click click".
