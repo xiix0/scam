@@ -1,1 +1,1 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+You shall be rewarded for a dastardly deed.
