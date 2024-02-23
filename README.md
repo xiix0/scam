@@ -1,2 +1,1 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Generosity and perfection are your everlasting goals.
