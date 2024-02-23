@@ -1,1 +1,2 @@
-Your aim is high and to the right.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
