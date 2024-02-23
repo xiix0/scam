@@ -1,2 +1,1 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+Your temporary financial embarrassment will be relieved in a surprising manner.
