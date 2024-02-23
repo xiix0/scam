@@ -1,2 +1,2 @@
-Q:	Why do mountain climbers rope themselves together?
-A:	To prevent the sensible ones from going home.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
