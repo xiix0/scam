@@ -1,2 +1,2 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+What I tell you three times is true.
+		-- Lewis Carroll
