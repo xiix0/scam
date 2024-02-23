@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+Beware of a tall blond man with one black shoe.
