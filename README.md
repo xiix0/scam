@@ -1,2 +1,2 @@
-If you tell the truth you don't have to remember anything.
-		-- Mark Twain
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
