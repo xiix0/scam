@@ -1,1 +1,2 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
