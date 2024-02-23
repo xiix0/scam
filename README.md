@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
