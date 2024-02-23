@@ -1,1 +1,2 @@
-Cheer Up!  Things are getting worse at a slower rate.
+He is now rising from affluence to poverty.
+		-- Mark Twain
