@@ -1,1 +1,2 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
