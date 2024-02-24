@@ -1,3 +1,1 @@
-The difference between a Miracle and a Fact is exactly the difference
-between a mermaid and a seal.
-		-- Mark Twain
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
