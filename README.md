@@ -1,2 +1,3 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+Q:	What do you call a WASP who doesn't work for his father, isn't a
+	lawyer, and believes in social causes?
+A:	A failure.
