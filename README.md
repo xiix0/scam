@@ -1,1 +1,1 @@
-A day for firm decisions!!!!!  Or is it?
+Your society will be sought by people of taste and refinement.
