@@ -1,1 +1,2 @@
-You teach best what you most need to learn.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
