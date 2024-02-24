@@ -1,2 +1,3 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
