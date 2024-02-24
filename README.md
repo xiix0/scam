@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+You will probably marry after a very brief courtship.
