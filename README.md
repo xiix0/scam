@@ -1,1 +1,2 @@
-Be careful!  UGLY strikes 9 out of 10!
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
