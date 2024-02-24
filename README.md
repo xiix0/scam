@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+Your boss is a few sandwiches short of a picnic.
