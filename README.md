@@ -1,2 +1,2 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
