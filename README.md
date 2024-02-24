@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+Communicate!  It can't make things any worse.
