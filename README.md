@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
