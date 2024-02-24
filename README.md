@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+You will be the victim of a bizarre joke.
