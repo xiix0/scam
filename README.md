@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
