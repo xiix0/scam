@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+Your business will go through a period of considerable expansion.
