@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+You have the power to influence all with whom you come in contact.
