@@ -1,1 +1,2 @@
-Don't look back, the lemmings are gaining on you.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
