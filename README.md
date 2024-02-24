@@ -1,2 +1,2 @@
-If you tell the truth you don't have to remember anything.
-		-- Mark Twain
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
