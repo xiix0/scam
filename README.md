@@ -1,1 +1,3 @@
-Beware of a tall blond man with one black shoe.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
