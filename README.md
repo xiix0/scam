@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+Your ignorance cramps my conversation.
