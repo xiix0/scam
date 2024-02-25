@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
