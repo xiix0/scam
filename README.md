@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+Your true value depends entirely on what you are compared with.
