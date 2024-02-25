@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Don't hate yourself in the morning -- sleep till noon.
