@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+You will inherit some money or a small piece of land.
