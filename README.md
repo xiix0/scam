@@ -1,2 +1,2 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
