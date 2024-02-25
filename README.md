@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Perfect day for scrubbing the floor and other exciting things.
