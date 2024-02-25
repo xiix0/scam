@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+Live in a world of your own, but always welcome visitors.
