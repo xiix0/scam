@@ -1,2 +1,2 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+Conscience doth make cowards of us all.
+		-- Shakespeare
