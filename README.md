@@ -1,3 +1,3 @@
-A long-forgotten loved one will appear soon.
+Questionable day.
 
-Buy the negatives at any price.
+Ask somebody something.
