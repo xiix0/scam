@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+You have been selected for a secret mission.
