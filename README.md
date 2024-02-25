@@ -1,2 +1,2 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+Don't Worry, Be Happy.
+		-- Meher Baba
