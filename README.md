@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+All generalizations are false, including this one.
+		-- Mark Twain
