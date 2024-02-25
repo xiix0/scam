@@ -1,2 +1,2 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
