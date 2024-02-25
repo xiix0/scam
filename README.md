@@ -1,1 +1,2 @@
-Never give an inch!
+Your goose is cooked.
+(Your current chick is burned up too!)
