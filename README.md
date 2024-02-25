@@ -1,1 +1,2 @@
-You will gain money by a speculation or lottery.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
