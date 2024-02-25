@@ -1,1 +1,2 @@
-Your business will go through a period of considerable expansion.
+When in doubt, tell the truth.
+		-- Mark Twain
