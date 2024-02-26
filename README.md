@@ -1,14 +1,8 @@
-You see, I consider that a man's brain originally is like a little empty
-attic, and you have to stock it with such furniture as you choose.  A fool
-takes in all the lumber of every sort he comes across, so that the knowledge
-which might be useful to him gets crowded out, or at best is jumbled up with
-a lot of other things, so that he has difficulty in laying his hands upon it.
-Now the skilful workman is very careful indeed as to what he takes into his
-brain-attic.  He will have nothing but the tools which may help him in doing
-his work, but of these he has a large assortment, and all in the most perfect
-order.  It is a mistake to think that that little room has elastic walls and
-can distend to any extent.  Depend upon it there comes a time when for every
-addition of knowledge you forget something that you knew before.  It is of
-the highest importance, therefore, not to have useless facts elbowing out
-the useful ones.
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+In the space of one hundred and seventy-six years the Mississippi has
+shortened itself two hundred and forty-two miles.  Therefore ... in the Old
+Silurian Period the Mississippi River was upward of one million three hundred
+thousand miles long ... seven hundred and forty-two years from now the
+Mississippi will be only a mile and three-quarters long.  ... There is
+something fascinating about science.  One gets such wholesome returns of
+conjecture out of such a trifling investment of fact.
+		-- Mark Twain
