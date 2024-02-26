@@ -1,3 +1,2 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
