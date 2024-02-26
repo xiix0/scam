@@ -1,2 +1,2 @@
-Q:	Why did the WASP cross the road?
-A:	To get to the middle.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
