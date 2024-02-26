@@ -1,2 +1,2 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
