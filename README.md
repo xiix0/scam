@@ -1,2 +1,3 @@
-English literature's performing flea.
-		-- Sean O'Casey on P. G. Wodehouse
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
