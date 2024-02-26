@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+Beware of a tall blond man with one black shoe.
