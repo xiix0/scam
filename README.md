@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+Today is the first day of the rest of your life.
