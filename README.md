@@ -1,1 +1,2 @@
-You will be successful in love.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
