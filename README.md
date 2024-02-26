@@ -1,1 +1,3 @@
-You teach best what you most need to learn.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
