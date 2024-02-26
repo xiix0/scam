@@ -1,1 +1,2 @@
-Be security conscious -- National defense is at stake.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
