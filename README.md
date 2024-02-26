@@ -1,1 +1,2 @@
-Don't look back, the lemmings are gaining on you.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
