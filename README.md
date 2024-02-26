@@ -1,2 +1,1 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+Best of all is never to have been born.  Second best is to die soon.
