@@ -1,1 +1,2 @@
-Avert misunderstanding by calm, poise, and balance.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
