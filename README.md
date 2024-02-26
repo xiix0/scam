@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+Time to be aggressive.  Go after a tattooed Virgo.
