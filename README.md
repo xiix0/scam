@@ -1,2 +1,1 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Good day to deal with people in high places; particularly lonely stewardesses.
