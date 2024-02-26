@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+Don't you wish you had more energy... or less ambition?
