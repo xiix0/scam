@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+Today is the tomorrow you worried about yesterday.
