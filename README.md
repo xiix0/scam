@@ -1,1 +1,1 @@
-Be different: conform.
+Blow it out your ear.
