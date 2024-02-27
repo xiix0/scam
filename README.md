@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+Be careful!  UGLY strikes 9 out of 10!
