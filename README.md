@@ -1,1 +1,1 @@
-Never give an inch!
+Don't go surfing in South Dakota for a while.
