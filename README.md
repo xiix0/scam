@@ -1,1 +1,1 @@
-You will be married within a year.
+Don't go surfing in South Dakota for a while.
