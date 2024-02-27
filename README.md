@@ -1,2 +1,1 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+Many changes of mind and mood; do not hesitate too long.
