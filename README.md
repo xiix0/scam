@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+Your object is to save the world, while still leading a pleasant life.
