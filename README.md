@@ -1,1 +1,1 @@
-Is that really YOU that is reading this?
+Don't tell any big lies today.  Small ones can be just as effective.
