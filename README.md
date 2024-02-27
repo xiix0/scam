@@ -1,2 +1,2 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
