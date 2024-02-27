@@ -1,1 +1,2 @@
-Be careful!  UGLY strikes 9 out of 10!
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
