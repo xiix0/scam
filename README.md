@@ -1,1 +1,1 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
