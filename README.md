@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+You are a very redundant person, that's what kind of person you are.
