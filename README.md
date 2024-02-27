@@ -1,1 +1,2 @@
-You will gain money by an immoral action.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
