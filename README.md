@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Beauty and harmony are as necessary to you as the very breath of life.
