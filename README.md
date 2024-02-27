@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+Things will be bright in P.M.  A cop will shine a light in your face.
