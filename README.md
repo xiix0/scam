@@ -1,1 +1,1 @@
-Your step will soil many countries.
+Don't look back, the lemmings are gaining on you.
