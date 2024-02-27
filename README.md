@@ -1,2 +1,1 @@
-Kiss me, Kate, we will be married o' Sunday.
-		-- William Shakespeare, "The Taming of the Shrew"
+You could live a better life, if you had a better mind and a better body.
