@@ -1,1 +1,1 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+You will be awarded a medal for disregarding safety in saving someone.
