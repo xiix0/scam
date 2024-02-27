@@ -1,2 +1,2 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
