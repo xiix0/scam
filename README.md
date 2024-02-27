@@ -1,1 +1,2 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
