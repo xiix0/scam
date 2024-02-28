@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+That secret you've been guarding, isn't.
