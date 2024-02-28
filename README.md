@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+Your aim is high and to the right.
