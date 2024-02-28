@@ -1,1 +1,1 @@
-Bridge ahead.  Pay troll.
+Chicken Little was right.
