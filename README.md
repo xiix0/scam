@@ -1,1 +1,3 @@
-Beware of a dark-haired man with a loud tie.
+Q:	What do you call a principal female opera singer whose high C
+	is lower than those of other principal female opera singers?
+A:	A deep C diva.
