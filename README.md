@@ -1,2 +1,1 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+You display the wonderful traits of charm and courtesy.
