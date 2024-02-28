@@ -1,2 +1,5 @@
-Q:	How many Harvard MBA's does it take to screw in a light bulb?
-A:	Just one.  He grasps it firmly and the universe revolves around him.
+April 1
+
+This is the day upon which we are reminded of what we are on the other three
+hundred and sixty-four.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
