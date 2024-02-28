@@ -1,3 +1,2 @@
-The mind is its own place, and in itself
-Can make a Heav'n of Hell, a Hell of Heav'n.
-		-- John Milton
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
