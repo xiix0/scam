@@ -1,2 +1,5 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
