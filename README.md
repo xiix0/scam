@@ -1,2 +1,1 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+Beware of a dark-haired man with a loud tie.
