@@ -1,2 +1,3 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
