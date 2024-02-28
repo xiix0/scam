@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+Tuesday After Lunch is the cosmic time of the week.
