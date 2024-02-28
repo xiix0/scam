@@ -1,2 +1,1 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+Don't you feel more like you do now than you did when you came in?
