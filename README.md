@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
