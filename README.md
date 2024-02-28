@@ -1,3 +1,2 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
