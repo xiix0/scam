@@ -1,5 +1,4 @@
-Q:	What do you call 15 blondes in a circle?
-A:	A dope ring.
-
-Q:	Why do blondes put their hair in ponytails?
-A:	To cover up the valve stem.
+	You will remember, Watson, how the dreadful business of the
+Abernetty family was first brought to my notice by the depth which the
+parsley had sunk into the butter upon a hot day.
+		-- Sherlock Holmes
