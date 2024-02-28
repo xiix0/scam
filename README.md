@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Don't you wish you had more energy... or less ambition?
