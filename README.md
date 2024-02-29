@@ -1,1 +1,1 @@
-Break into jail and claim police brutality.
+Beware of a tall black man with one blond shoe.
