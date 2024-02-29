@@ -1,2 +1,1 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+Your supervisor is thinking about you.
