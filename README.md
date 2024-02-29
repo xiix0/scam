@@ -1,1 +1,2 @@
-You will probably marry after a very brief courtship.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
