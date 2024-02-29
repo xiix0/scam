@@ -1,1 +1,1 @@
-Many pages make a thick book.
+You will be advanced socially, without any special effort on your part.
