@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+You work very hard.  Don't try to think as well.
