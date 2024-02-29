@@ -1,2 +1,2 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Conscience doth make cowards of us all.
+		-- Shakespeare
