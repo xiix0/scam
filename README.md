@@ -1,1 +1,2 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
