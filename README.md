@@ -1,1 +1,2 @@
-Beware of a tall black man with one blond shoe.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
