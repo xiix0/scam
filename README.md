@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
