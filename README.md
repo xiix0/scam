@@ -1,2 +1,3 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+Q:	What does a WASP Mom make for dinner?
+A:	A crisp salad, a hearty soup, a lovely entree, followed by
+	a delicious dessert.
