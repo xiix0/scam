@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+You display the wonderful traits of charm and courtesy.
