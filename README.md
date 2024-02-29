@@ -1,3 +1,3 @@
-Q:	How do you play religious roulette?
-A:	You stand around in a circle and blaspheme and see who gets
-	struck by lightning first.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
