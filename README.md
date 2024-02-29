@@ -1,1 +1,1 @@
-You will be successful in love.
+Future looks spotty.  You will spill soup in late evening.
