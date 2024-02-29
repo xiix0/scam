@@ -1,1 +1,1 @@
-You work very hard.  Don't try to think as well.
+You recoil from the crude; you tend naturally toward the exquisite.
