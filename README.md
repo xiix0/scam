@@ -1,1 +1,2 @@
-Long life is in store for you.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
