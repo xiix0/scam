@@ -1,2 +1,2 @@
-Q:	What is the difference between Texas and yogurt?
-A:	Yogurt has culture.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
