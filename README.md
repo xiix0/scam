@@ -1,3 +1,1 @@
-Perilous to all of us are the devices of an art deeper than we ourselves
-possess.
-		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
+You have the capacity to learn from mistakes.  You'll learn a lot today.
