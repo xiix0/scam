@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+You own a dog, but you can only feed a cat.
