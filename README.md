@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+You work very hard.  Don't try to think as well.
