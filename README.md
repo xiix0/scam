@@ -1,2 +1,1 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+You're at the end of the road again.
