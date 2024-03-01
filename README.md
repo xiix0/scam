@@ -1,3 +1,3 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
+are not the person involved.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
