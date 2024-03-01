@@ -1,1 +1,1 @@
-You now have Asian Flu.
+You will be awarded the Nobel Peace Prize... posthumously.
