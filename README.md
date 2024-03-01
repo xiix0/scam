@@ -1,2 +1,2 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
