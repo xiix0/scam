@@ -1,1 +1,2 @@
-You're at the end of the road again.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
