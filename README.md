@@ -1,1 +1,2 @@
-Just to have it is enough.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
