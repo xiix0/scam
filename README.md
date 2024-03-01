@@ -1,2 +1,1 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+You love your home and want it to be beautiful.
