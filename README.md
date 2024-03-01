@@ -1,1 +1,2 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
