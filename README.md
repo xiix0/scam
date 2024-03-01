@@ -1,2 +1,2 @@
-Civilization is the limitless multiplication of unnecessary necessities.
+Wrinkles should merely indicate where smiles have been.
 		-- Mark Twain
