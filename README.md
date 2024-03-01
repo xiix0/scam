@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+You own a dog, but you can only feed a cat.
