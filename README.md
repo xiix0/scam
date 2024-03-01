@@ -1,2 +1,3 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
