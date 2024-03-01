@@ -1,2 +1,2 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
