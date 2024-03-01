@@ -1,3 +1,3 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
