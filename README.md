@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+You will not be elected to public office this year.
