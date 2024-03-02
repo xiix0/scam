@@ -1,3 +1,3 @@
-In a museum in Havana, there are two skulls of Christopher Columbus,
-"one when he was a boy and one when he was a man."
-		-- Mark Twain
+There is no hunting like the hunting of man, and those who have hunted
+armed men long enough and liked it, never care for anything else thereafter.
+		-- Ernest Hemingway
