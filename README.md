@@ -1,1 +1,1 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+Increased knowledge will help you now.  Have mate's phone bugged.
