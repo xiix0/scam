@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+You tread upon my patience.
+		-- William Shakespeare, "Henry IV"
