@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+Good day to let down old friends who need help.
