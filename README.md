@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+Try the Moo Shu Pork.  It is especially good today.
