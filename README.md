@@ -1,2 +1,2 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
