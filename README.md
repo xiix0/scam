@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+Be security conscious -- National defense is at stake.
