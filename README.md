@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+That secret you've been guarding, isn't.
