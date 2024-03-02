@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+You possess a mind not merely twisted, but actually sprained.
