@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
