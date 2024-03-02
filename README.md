@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
