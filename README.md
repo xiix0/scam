@@ -1,2 +1,1 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+Don't get to bragging.
