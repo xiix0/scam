@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+You will become rich and famous unless you don't.
