@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Your love life will be... interesting.
