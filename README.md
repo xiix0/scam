@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+You are deeply attached to your friends and acquaintances.
