@@ -1,2 +1,2 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
