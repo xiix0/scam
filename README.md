@@ -1,2 +1,2 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+I fell asleep reading a dull book, and I dreamt that I was reading on,
+so I woke up from sheer boredom.
