@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+After your lover has gone you will still have PEANUT BUTTER!
