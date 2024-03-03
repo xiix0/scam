@@ -1,1 +1,3 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
