@@ -1,1 +1,2 @@
-You are number 6!  Who is number one?
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
