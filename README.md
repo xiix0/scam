@@ -1,1 +1,1 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+You plan things that you do not even attempt because of your extreme caution.
