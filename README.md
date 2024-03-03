@@ -1,1 +1,2 @@
-You are a fluke of the universe; you have no right to be here.
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
