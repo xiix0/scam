@@ -1,1 +1,2 @@
-You have a strong appeal for members of your own sex.
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
