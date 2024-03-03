@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+You have a strong appeal for members of your own sex.
