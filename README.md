@@ -1,2 +1,2 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
