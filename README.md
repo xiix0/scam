@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You will be advanced socially, without any special effort on your part.
