@@ -1,2 +1,2 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
