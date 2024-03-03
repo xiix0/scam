@@ -1,3 +1,3 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
+The man who sets out to carry a cat by its tail learns something that
+will always be useful and which never will grow dim or doubtful.
 		-- Mark Twain
