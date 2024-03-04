@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Generosity and perfection are your everlasting goals.
