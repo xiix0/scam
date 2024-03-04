@@ -1,2 +1,1 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+Don't look now, but the man in the moon is laughing at you.
