@@ -1,2 +1,2 @@
-You will be attacked by a beast who has the body of a wolf, the tail of
-a lion, and the face of Donald Duck.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
