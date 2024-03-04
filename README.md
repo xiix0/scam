@@ -1,3 +1,2 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
