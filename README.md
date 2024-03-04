@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+There is a fly on your nose.
