@@ -1,1 +1,1 @@
-There will be big changes for you but you will be happy.
+Someone whom you reject today, will reject you tomorrow.
