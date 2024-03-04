@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+Write yourself a threatening letter and pen a defiant reply.
