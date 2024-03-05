@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+You have a deep appreciation of the arts and music.
