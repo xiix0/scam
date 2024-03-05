@@ -1,2 +1,2 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
