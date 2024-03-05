@@ -1,1 +1,2 @@
-Today is the first day of the rest of your life.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
