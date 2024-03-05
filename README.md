@@ -1,2 +1,7 @@
-Q:	How many Harvard MBA's does it take to screw in a light bulb?
-A:	Just one.  He grasps it firmly and the universe revolves around him.
+Mind!  I don't mean to say that I know, of my own knowledge, what there is
+particularly dead about a door-nail.  I might have been inclined, myself,
+to regard a coffin-nail as the deadest piece of ironmongery in the trade.
+But the wisdom of our ancestors is in the simile; and my unhallowed hands
+shall not disturb it, or the Country's done for.  You will therefore permit
+me to repeat, emphatically, that Marley was as dead as a door-nail.
+		-- Charles Dickens, "A Christmas Carol"
