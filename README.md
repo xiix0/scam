@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Do something unusual today.  Pay a bill.
