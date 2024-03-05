@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+You will not be elected to public office this year.
