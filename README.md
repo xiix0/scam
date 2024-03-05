@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+Expect the worst, it's the least you can do.
