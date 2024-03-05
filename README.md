@@ -1,1 +1,2 @@
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
