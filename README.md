@@ -1,1 +1,1 @@
-There is a fly on your nose.
+An avocado-tone refrigerator would look good on your resume.
