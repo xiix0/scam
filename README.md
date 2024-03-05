@@ -1,2 +1,1 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+You are so boring that when I see you my feet go to sleep.
