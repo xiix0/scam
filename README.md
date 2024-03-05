@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+You will have domestic happiness and faithful friends.
