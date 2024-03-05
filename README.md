@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+There is a 20% chance of tomorrow.
