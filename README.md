@@ -1,2 +1,2 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
