@@ -1,1 +1,2 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
