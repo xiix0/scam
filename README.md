@@ -1,1 +1,2 @@
-You would if you could but you can't so you won't.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
