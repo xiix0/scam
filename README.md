@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
