@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+Excellent day to have a rotten day.
