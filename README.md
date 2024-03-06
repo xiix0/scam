@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
