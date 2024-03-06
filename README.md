@@ -1,2 +1,2 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
