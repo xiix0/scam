@@ -1,3 +1,2 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
