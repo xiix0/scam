@@ -1,2 +1,1 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+You will wish you hadn't.
