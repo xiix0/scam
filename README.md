@@ -1,2 +1,2 @@
-The naked truth of it is, I have no shirt.
-		-- William Shakespeare, "Love's Labour's Lost"
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
