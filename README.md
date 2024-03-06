@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+You will be reincarnated as a toad; and you will be much happier.
