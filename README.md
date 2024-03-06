@@ -1,1 +1,2 @@
-You will be run over by a beer truck.
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
