@@ -1,2 +1,1 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+An avocado-tone refrigerator would look good on your resume.
