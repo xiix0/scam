@@ -1,1 +1,1 @@
-Be different: conform.
+You will always have good luck in your personal affairs.
