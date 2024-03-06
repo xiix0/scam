@@ -1,2 +1,1 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+You will remember something that you should not have forgotten.
