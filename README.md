@@ -1,2 +1,3 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+In a museum in Havana, there are two skulls of Christopher Columbus,
+"one when he was a boy and one when he was a man."
+		-- Mark Twain
