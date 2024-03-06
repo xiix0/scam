@@ -1,1 +1,1 @@
-You will be reincarnated as a toad; and you will be much happier.
+You will experience a strong urge to do good; but it will pass.
