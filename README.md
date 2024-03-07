@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+You have taken yourself too seriously.
