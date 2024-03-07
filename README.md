@@ -1,2 +1,1 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+Q:	How do you keep a moron in suspense?
