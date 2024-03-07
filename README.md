@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+Bank error in your favor.  Collect $200.
