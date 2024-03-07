@@ -1,2 +1,1 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+Your mode of life will be changed for the better because of new developments.
