@@ -1,1 +1,2 @@
-You will never know hunger.
+If you tell the truth you don't have to remember anything.
+		-- Mark Twain
