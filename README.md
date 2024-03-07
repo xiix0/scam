@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Chicken Little only has to be right once.
