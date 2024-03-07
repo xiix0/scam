@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+Many pages make a thick book.
