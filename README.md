@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+Lady Luck brings added income today.  Lady friend takes it away tonight.
