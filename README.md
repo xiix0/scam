@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+You're currently going through a difficult transition period called "Life."
