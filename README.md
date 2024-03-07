@@ -1,1 +1,2 @@
-Many pages make a thick book.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
