@@ -1,1 +1,2 @@
-A tall, dark stranger will have more fun than you.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
