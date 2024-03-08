@@ -1,3 +1,3 @@
-It is by the fortune of God that, in this country, we have three benefits:
-freedom of speech, freedom of thought, and the wisdom never to use either.
-		-- Mark Twain
+This is the first age that's paid much attention to the future, which is a
+little ironic since we may not have one.
+		-- Arthur Clarke
