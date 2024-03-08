@@ -1,4 +1,5 @@
-In India, "cold weather" is merely a conventional phrase and has come into
-use through the necessity of having some way to distinguish between weather
-which will melt a brass door-knob and weather which will only make it mushy.
-		-- Mark Twain
+Steady movement is more important than speed, much of the time.  So long
+as there is a regular progression of stimuli to get your mental hooks
+into, there is room for lateral movement.  Once this begins, its rate is
+a matter of discretion.
+		-- Corwin, Prince of Amber
