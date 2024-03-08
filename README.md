@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+Don't you feel more like you do now than you did when you came in?
