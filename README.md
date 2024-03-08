@@ -1,1 +1,1 @@
-You will be married within a year.
+You will gain money by an immoral action.
