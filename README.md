@@ -1,1 +1,3 @@
-Your reasoning powers are good, and you are a fairly good planner.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
