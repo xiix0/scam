@@ -1,1 +1,1 @@
-You have had a long-term stimulation relative to business.
+You are taking yourself far too seriously.
