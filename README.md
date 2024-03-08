@@ -1,1 +1,1 @@
-Don't get to bragging.
+Your domestic life may be harmonious.
