@@ -1,2 +1,2 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
