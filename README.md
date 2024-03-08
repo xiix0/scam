@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+Write yourself a threatening letter and pen a defiant reply.
