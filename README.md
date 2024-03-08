@@ -1,1 +1,2 @@
-You're a card which will have to be dealt with.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
