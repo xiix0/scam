@@ -1,2 +1,2 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
