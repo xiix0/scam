@@ -1,2 +1,1 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+You need no longer worry about the future.  This time tomorrow you'll be dead.
