@@ -1,3 +1,5 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+Q:	Why is Poland just like the United States?
+A:	In the United States you can't buy anything for zlotys and in
+	Poland you can't either, while in the U.S. you can get whatever
+	you want for dollars, just as you can in Poland.
+		-- being told in Poland, 1987
