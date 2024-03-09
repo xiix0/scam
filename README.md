@@ -1,1 +1,1 @@
-You are not dead yet.  But watch for further reports.
+Cheer Up!  Things are getting worse at a slower rate.
