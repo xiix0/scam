@@ -1,1 +1,2 @@
-Cheer Up!  Things are getting worse at a slower rate.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
