@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+You will always have good luck in your personal affairs.
