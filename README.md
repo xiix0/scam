@@ -1,2 +1,2 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+You are destined to become the commandant of the fighting men of the
+department of transportation.
