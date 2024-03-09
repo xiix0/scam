@@ -1,2 +1,2 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
