@@ -1,1 +1,2 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Q:	What is the sound of one cat napping?
+A:	Mu.
