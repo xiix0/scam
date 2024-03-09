@@ -1,2 +1,2 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
