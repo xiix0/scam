@@ -1,2 +1,1 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+Never be led astray onto the path of virtue.
