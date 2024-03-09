@@ -1,1 +1,2 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
