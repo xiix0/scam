@@ -1,1 +1,1 @@
-You are capable of planning your future.
+Don't let your mind wander -- it's too little to be let out alone.
