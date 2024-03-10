@@ -1,1 +1,2 @@
-Alimony and bribes will engage a large share of your wealth.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
