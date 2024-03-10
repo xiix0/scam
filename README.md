@@ -1,1 +1,2 @@
-Another good night not to sleep in a eucalyptus tree.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
