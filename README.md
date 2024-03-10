@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+Tuesday After Lunch is the cosmic time of the week.
