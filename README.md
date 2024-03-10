@@ -1,1 +1,3 @@
-You can rent this space for only $5 a week.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
