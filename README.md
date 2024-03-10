@@ -1,2 +1,2 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
