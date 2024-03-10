@@ -1,1 +1,2 @@
-Are you ever going to do the dishes?  Or will you change your major to biology?
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
