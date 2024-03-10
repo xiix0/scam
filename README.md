@@ -1,1 +1,5 @@
-Tuesday After Lunch is the cosmic time of the week.
+Q:	How do you catch a unique rabbit?
+A:	Unique up on it!
+
+Q:	How do you catch a tame rabbit?
+A:	The tame way!
