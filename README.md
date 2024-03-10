@@ -1,2 +1,1 @@
-"... all the modern inconveniences ..."
-		-- Mark Twain
+Alimony and bribes will engage a large share of your wealth.
