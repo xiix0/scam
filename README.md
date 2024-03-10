@@ -1,2 +1,1 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+You single-handedly fought your way into this hopeless mess.
