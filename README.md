@@ -1,1 +1,2 @@
-You will be divorced within a year.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
