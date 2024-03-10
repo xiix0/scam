@@ -1,1 +1,1 @@
-Never reveal your best argument.
+Your ignorance cramps my conversation.
