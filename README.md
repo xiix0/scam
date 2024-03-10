@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+Good day to deal with people in high places; particularly lonely stewardesses.
