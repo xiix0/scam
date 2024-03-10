@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
