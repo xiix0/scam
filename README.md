@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Just to have it is enough.
