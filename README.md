@@ -1,3 +1,1 @@
-Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
-that think they are truffles.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+This life is yours.  Some of it was given to you; the rest, you made yourself.
