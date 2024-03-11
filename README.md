@@ -1,3 +1,5 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
+sword wielding purple fish glued to Harley-Davidson motorcycles.
+
+Oh, and have a nice day!
+		-- Bryce Nesbitt '84
