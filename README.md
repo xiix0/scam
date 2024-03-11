@@ -1,2 +1,2 @@
-Alas, how love can trifle with itself!
-		-- William Shakespeare, "The Two Gentlemen of Verona"
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
