@@ -1,1 +1,2 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
