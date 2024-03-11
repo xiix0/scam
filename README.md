@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+You'd like to do it instantaneously, but that's too slow.
