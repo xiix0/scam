@@ -1,2 +1,1 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+Learn to pause -- or nothing worthwhile can catch up to you.
