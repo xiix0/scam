@@ -1,1 +1,2 @@
-Fine day to work off excess energy.  Steal something heavy.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
