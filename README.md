@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+You will live a long, healthy, happy life and make bags of money.
