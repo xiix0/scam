@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
