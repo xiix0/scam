@@ -1,2 +1,5 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Q:	What do monsters eat?
+A:	Things.
+
+Q:	What do monsters drink?
+A:	Coke.  (Because Things go better with Coke.)
