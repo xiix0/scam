@@ -1,1 +1,1 @@
-You have a deep appreciation of the arts and music.
+You are confused; but this is your normal state.
