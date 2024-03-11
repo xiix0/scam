@@ -1,2 +1,1 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+You've been leading a dog's life.  Stay off the furniture.
