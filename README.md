@@ -1,3 +1,3 @@
-I don't know half of you half as well as I should like; and I like less
-than half of you half as well as you deserve.
+"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
+for you and me."
 		-- J. R. R. Tolkien
