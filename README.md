@@ -1,1 +1,2 @@
-In the stairway of life, you'd best take the elevator.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
