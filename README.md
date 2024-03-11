@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Give him an evasive answer.
