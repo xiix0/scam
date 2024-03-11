@@ -1,2 +1,2 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
