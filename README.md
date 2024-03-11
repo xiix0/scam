@@ -1,2 +1,3 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+It is often the case that the man who can't tell a lie thinks he is the best
+judge of one.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
