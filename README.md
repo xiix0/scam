@@ -1,1 +1,1 @@
-You may be recognized soon.  Hide.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
