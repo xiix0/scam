@@ -1,1 +1,1 @@
-Your object is to save the world, while still leading a pleasant life.
+Give your very best today.  Heaven knows it's little enough.
