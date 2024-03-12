@@ -1,2 +1,1 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+You seek to shield those you love and you like the role of the provider.
