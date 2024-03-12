@@ -1,1 +1,3 @@
-You will meet an important person who will help you advance professionally.
+The man who sets out to carry a cat by its tail learns something that
+will always be useful and which never will grow dim or doubtful.
+		-- Mark Twain
