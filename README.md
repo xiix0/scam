@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+You could live a better life, if you had a better mind and a better body.
