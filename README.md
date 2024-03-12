@@ -1,2 +1,2 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
