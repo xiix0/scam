@@ -1,2 +1,2 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
