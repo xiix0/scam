@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+Too much is just enough.
+		-- Mark Twain, on whiskey
