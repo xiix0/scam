@@ -1,2 +1,4 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
