@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Be careful!  UGLY strikes 9 out of 10!
