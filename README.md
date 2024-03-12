@@ -1,1 +1,3 @@
-You are fighting for survival in your own sweet and gentle way.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
