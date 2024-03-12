@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+Fine day for friends.
+So-so day for you.
