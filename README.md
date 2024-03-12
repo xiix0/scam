@@ -1,1 +1,2 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
