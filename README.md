@@ -1,1 +1,2 @@
-Your business will assume vast proportions.
+There is a great discovery still to be made in Literature: that of
+paying literary men by the quantity they do NOT write.
