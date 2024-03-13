@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+Don't worry so loud, your roommate can't think.
