@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
-A:	Dr. Livingston I. Presume.
-Q:	What's Dr. Presume's full name?
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
