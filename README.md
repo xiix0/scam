@@ -1,1 +1,2 @@
-You have had a long-term stimulation relative to business.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
