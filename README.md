@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
+It usually takes more than three weeks to prepare a good impromptu speech.
 		-- Mark Twain
