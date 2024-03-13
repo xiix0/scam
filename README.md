@@ -1,3 +1,3 @@
-Zounds!  I was never so bethumped with words
-since I first called my brother's father dad.
-		-- William Shakespeare, "Kind John"
+It is by the fortune of God that, in this country, we have three benefits:
+freedom of speech, freedom of thought, and the wisdom never to use either.
+		-- Mark Twain
