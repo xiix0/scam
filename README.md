@@ -1,1 +1,2 @@
-You will be run over by a beer truck.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
