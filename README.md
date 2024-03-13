@@ -1,2 +1,2 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
