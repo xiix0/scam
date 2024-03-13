@@ -1,1 +1,2 @@
-Don't worry so loud, your roommate can't think.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
