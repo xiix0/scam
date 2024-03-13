@@ -1,2 +1,3 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
+		-- Mark Twain
