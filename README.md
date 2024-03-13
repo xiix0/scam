@@ -1,1 +1,2 @@
-You can rent this space for only $5 a week.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
