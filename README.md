@@ -1,2 +1,2 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+He is now rising from affluence to poverty.
+		-- Mark Twain
