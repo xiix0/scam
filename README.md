@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+Slow day.  Practice crawling.
