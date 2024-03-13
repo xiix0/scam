@@ -1,1 +1,2 @@
-If your life was a horse, you'd have to shoot it.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
