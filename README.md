@@ -1,2 +1,3 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
