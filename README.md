@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+Your society will be sought by people of taste and refinement.
