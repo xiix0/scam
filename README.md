@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+You will gain money by an illegal action.
