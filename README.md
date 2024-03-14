@@ -1,2 +1,3 @@
-What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
+		-- Mark Twain
