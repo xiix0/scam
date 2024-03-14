@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
