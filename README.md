@@ -1,5 +1,7 @@
-Q:	Why is Poland just like the United States?
-A:	In the United States you can't buy anything for zlotys and in
-	Poland you can't either, while in the U.S. you can get whatever
-	you want for dollars, just as you can in Poland.
-		-- being told in Poland, 1987
+Sheriff Chameleotoptor sighed with an air of weary sadness, and then
+turned to Doppelgutt and said 'The Senator must really have been on a
+bender this time -- he left a party in Cleveland, Ohio, at 11:30 last
+night, and they found his car this morning in the smokestack of a British
+aircraft carrier in the Formosa Straits.'
+		-- Grand Panjandrum's Special Award, 1985 Bulwer-Lytton
+		   bad fiction contest.
