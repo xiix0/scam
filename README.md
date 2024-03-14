@@ -1,1 +1,1 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+Alimony and bribes will engage a large share of your wealth.
