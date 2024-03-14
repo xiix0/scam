@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+You single-handedly fought your way into this hopeless mess.
