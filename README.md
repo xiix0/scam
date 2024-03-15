@@ -1,4 +1,2 @@
-"I understand this is your first dead client," Sabian was saying.  The
-absurdity of the statement made me want to laugh but they don't call me
-Deadpan Allie and lie.
-		-- Pat Cadigan, "Mindplayers"
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
