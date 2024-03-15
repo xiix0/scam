@@ -1,2 +1,2 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
