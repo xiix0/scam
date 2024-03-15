@@ -1,1 +1,2 @@
-You work very hard.  Don't try to think as well.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
