@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+Avoid gunfire in the bathroom tonight.
