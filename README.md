@@ -1,2 +1,2 @@
-The fashion wears out more apparel than the man.
-		-- William Shakespeare, "Much Ado About Nothing"
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
