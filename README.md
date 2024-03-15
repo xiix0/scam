@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+You will soon forget this.
