@@ -1,1 +1,2 @@
-You are so boring that when I see you my feet go to sleep.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
