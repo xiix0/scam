@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+Your love life will be... interesting.
