@@ -1,1 +1,1 @@
-Be different: conform.
+It was all so different before everything changed.
