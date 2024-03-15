@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Ships are safe in harbor, but they were never meant to stay there.
