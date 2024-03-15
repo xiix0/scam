@@ -1,2 +1,3 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
