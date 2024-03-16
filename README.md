@@ -1,2 +1,6 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+Q:	How do you shoot a blue elephant?
+A:	With a blue-elephant gun.
+
+Q:	How do you shoot a pink elephant?
+A:	Twist its trunk until it turns blue, then shoot it with
+	a blue-elephant gun.
