@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+You have an ability to sense and know higher truth.
