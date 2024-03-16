@@ -1,1 +1,2 @@
-Never reveal your best argument.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
