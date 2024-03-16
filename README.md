@@ -1,1 +1,1 @@
-You love peace.
+Do something unusual today.  Pay a bill.
