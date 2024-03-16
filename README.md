@@ -1,1 +1,2 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
