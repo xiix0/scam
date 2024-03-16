@@ -1,1 +1,2 @@
-You are the only person to ever get this message.
+Q:	Are we not men?
+A:	We are Vaxen.
