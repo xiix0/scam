@@ -1,1 +1,2 @@
-Are you making all this up as you go along?
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
