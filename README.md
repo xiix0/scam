@@ -1,2 +1,2 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
