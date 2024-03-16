@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+You are destined to become the commandant of the fighting men of the
+department of transportation.
