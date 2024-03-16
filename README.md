@@ -1,1 +1,2 @@
-You'll be sorry...
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
