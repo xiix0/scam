@@ -1,2 +1,2 @@
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+Q:	What do little WASPs want to be when they grow up?
+A:	The very best person they can possibly be.
