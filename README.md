@@ -1,2 +1,1 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+Live in a world of your own, but always welcome visitors.
