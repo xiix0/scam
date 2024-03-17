@@ -1,1 +1,2 @@
-There is a fly on your nose.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
