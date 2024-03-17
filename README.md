@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+You will not be elected to public office this year.
