@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
