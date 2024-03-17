@@ -1,1 +1,3 @@
-Your talents will be recognized and suitably rewarded.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
