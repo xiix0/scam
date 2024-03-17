@@ -1,3 +1,3 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
+are not the person involved.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
