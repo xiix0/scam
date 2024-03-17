@@ -1,1 +1,3 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
