@@ -1,2 +1,2 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
