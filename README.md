@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
