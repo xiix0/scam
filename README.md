@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
