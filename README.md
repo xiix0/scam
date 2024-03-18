@@ -1,2 +1,2 @@
-What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, "The League of Frightened Men"
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
