@@ -1,1 +1,2 @@
-You will be surrounded by luxury.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
