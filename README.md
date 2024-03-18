@@ -1,1 +1,1 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
