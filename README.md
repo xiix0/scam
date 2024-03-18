@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+Don't kiss an elephant on the lips today.
