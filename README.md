@@ -1,2 +1,1 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
