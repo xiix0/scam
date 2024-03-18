@@ -1,1 +1,2 @@
-Expect the worst, it's the least you can do.
+I fell asleep reading a dull book, and I dreamt that I was reading on,
+so I woke up from sheer boredom.
