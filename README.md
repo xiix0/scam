@@ -1,1 +1,2 @@
-You'll never be the man your mother was!
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
