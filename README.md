@@ -1,3 +1,3 @@
-... A solemn, unsmiling, sanctimonious old iceberg who looked like he
-was waiting for a vacancy in the Trinity.
-		-- Mark Twain
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
+A:	The Halls of Montezuma and the Shores of Tripoli.
+Q:	Name two families whose kids won't join the Marines.
