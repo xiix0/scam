@@ -1,3 +1,3 @@
-Q:	Why is it that the more accuracy you demand from an interpolation
-	function, the more expensive it becomes to compute?
-A:	That's the Law of Spline Demand.
+Q:	Why should you always serve a Southern Carolina football man
+	soup in a plate?
+A:	'Cause if you give him a bowl, he'll throw it away.
