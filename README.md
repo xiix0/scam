@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+You have the power to influence all with whom you come in contact.
