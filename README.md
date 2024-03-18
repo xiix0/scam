@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+You will remember something that you should not have forgotten.
