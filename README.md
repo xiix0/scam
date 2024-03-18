@@ -1,1 +1,1 @@
-You will remember something that you should not have forgotten.
+A few hours grace before the madness begins again.
