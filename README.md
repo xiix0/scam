@@ -1,2 +1,5 @@
-I fell asleep reading a dull book, and I dreamt that I was reading on,
-so I woke up from sheer boredom.
+Steady movement is more important than speed, much of the time.  So long
+as there is a regular progression of stimuli to get your mental hooks
+into, there is room for lateral movement.  Once this begins, its rate is
+a matter of discretion.
+		-- Corwin, Prince of Amber
