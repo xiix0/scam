@@ -1,3 +1,5 @@
-Q:	How many psychiatrists does it take to change a light bulb?
-A:	Only one, but it takes a long time, and the light bulb has
-	to really want to change.
+Q:	Where's the Lone Ranger take his garbage?
+A:	To the dump, to the dump, to the dump dump dump!
+
+Q:	What's the Pink Panther say when he steps on an ant hill?
+A:	Dead ant, dead ant, dead ant dead ant dead ant...
