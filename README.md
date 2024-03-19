@@ -1,2 +1,1 @@
-Kiss me, Kate, we will be married o' Sunday.
-		-- William Shakespeare, "The Taming of the Shrew"
+You will reach the highest possible point in your business or profession.
