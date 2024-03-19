@@ -1,1 +1,1 @@
-You have no real enemies.
+Think twice before speaking, but don't say "think think click click".
