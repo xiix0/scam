@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
