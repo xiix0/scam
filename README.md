@@ -1,2 +1,2 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
