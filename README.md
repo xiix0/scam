@@ -1,1 +1,1 @@
-You will attract cultured and artistic people to your home.
+Give your very best today.  Heaven knows it's little enough.
