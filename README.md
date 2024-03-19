@@ -1,2 +1,3 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
