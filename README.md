@@ -1,1 +1,3 @@
-You will gain money by a speculation or lottery.
+Someone is speaking well of you.
+
+How unusual!
