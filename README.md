@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
