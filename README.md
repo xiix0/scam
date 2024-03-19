@@ -1,1 +1,1 @@
-You would if you could but you can't so you won't.
+You are confused; but this is your normal state.
