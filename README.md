@@ -1,1 +1,2 @@
-You should go home.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
