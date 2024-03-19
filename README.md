@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+You'll never be the man your mother was!
