@@ -1,4 +1,2 @@
-	You will remember, Watson, how the dreadful business of the
-Abernetty family was first brought to my notice by the depth which the
-parsley had sunk into the butter upon a hot day.
-		-- Sherlock Holmes
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
