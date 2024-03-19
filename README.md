@@ -1,1 +1,1 @@
-Stay the curse.
+Among the lucky, you are the chosen one.
