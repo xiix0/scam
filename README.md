@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+Think twice before speaking, but don't say "think think click click".
