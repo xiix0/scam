@@ -1,3 +1,2 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	You won't find a lawyer who can change a light bulb.  Now, if
-	you're looking for a lawyer to screw a light bulb...
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
