@@ -1,2 +1,1 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
