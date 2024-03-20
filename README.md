@@ -1,2 +1,1 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+Fine day to work off excess energy.  Steal something heavy.
