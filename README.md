@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+You will obey or molten silver will be poured into your ears.
