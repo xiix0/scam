@@ -1,1 +1,2 @@
-Bank error in your favor.  Collect $200.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
