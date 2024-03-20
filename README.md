@@ -1,2 +1,1 @@
-Q:	How many marketing people does it take to change a light bulb?
-A:	I'll have to get back to you on that.
+You're being followed.  Cut out the hanky-panky for a few days.
