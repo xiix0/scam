@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+You will win success in whatever calling you adopt.
