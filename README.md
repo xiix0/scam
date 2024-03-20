@@ -1,1 +1,2 @@
-Excellent day to have a rotten day.
+What I tell you three times is true.
+		-- Lewis Carroll
