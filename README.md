@@ -1,2 +1,3 @@
-Q:	What's the difference betweeen USL and the Graf Zeppelin?
-A:	The Graf Zeppelin represented cutting edge technology for its time.
+There is no hunting like the hunting of man, and those who have hunted
+armed men long enough and liked it, never care for anything else thereafter.
+		-- Ernest Hemingway
