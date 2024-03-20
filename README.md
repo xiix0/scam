@@ -1,2 +1,3 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
