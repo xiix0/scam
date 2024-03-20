@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Your own qualities will help prevent your advancement in the world.
