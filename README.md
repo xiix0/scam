@@ -1,3 +1,2 @@
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
-Some think it is the voice of God.
-		-- Mark Twain
+Q:	What's the difference between a duck and an elephant?
+A:	You can't get down off an elephant.
