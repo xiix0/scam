@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
