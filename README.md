@@ -1,2 +1,2 @@
-He that breaks a thing to find out what it is has left the path of wisdom.
-		-- J.R.R. Tolkien
+Q:	What do little WASPs want to be when they grow up?
+A:	The very best person they can possibly be.
