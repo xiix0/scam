@@ -1,2 +1,2 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
