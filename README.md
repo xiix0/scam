@@ -1,1 +1,2 @@
-You will have long and healthy life.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
