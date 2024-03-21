@@ -1,4 +1,3 @@
-"I understand this is your first dead client," Sabian was saying.  The
-absurdity of the statement made me want to laugh but they don't call me
-Deadpan Allie and lie.
-		-- Pat Cadigan, "Mindplayers"
+Q:	How does a hacker fix a function which
+	doesn't work for all of the elements in its domain?
+A:	He changes the domain.
