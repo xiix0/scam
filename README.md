@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+There will be big changes for you but you will be happy.
