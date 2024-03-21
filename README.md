@@ -1,1 +1,3 @@
-You will be reincarnated as a toad; and you will be much happier.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
+A:	The Halls of Montezuma and the Shores of Tripoli.
+Q:	Name two families whose kids won't join the Marines.
