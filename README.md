@@ -1,2 +1,2 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+You're growing out of some of your problems, but there are others that
+you're growing into.
