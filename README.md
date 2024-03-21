@@ -1,2 +1,2 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
