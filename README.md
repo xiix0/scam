@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Never commit yourself!  Let someone else commit you.
