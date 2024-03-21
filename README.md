@@ -1,2 +1,1 @@
-Every why hath a wherefore.
-		-- William Shakespeare, "A Comedy of Errors"
+A gift of a flower will soon be made to you.
