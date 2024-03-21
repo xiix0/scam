@@ -1,1 +1,1 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+You will be held hostage by a radical group.
