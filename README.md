@@ -1,1 +1,1 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+You have an unusual understanding of the problems of human relationships.
