@@ -1,2 +1,2 @@
-question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
