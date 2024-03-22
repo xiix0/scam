@@ -1,2 +1,2 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+Too much is just enough.
+		-- Mark Twain, on whiskey
