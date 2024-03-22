@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+You will be a winner today.  Pick a fight with a four-year-old.
