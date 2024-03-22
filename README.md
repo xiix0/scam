@@ -1,2 +1,2 @@
-Q:	Why do WASPs play golf ?
-A:	So they can dress like pimps.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
