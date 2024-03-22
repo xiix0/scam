@@ -1,1 +1,2 @@
-Many pages make a thick book.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
