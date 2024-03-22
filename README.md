@@ -1,1 +1,3 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
