@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+A few hours grace before the madness begins again.
