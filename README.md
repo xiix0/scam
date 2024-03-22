@@ -1,2 +1,2 @@
-If you laid all of our laws end to end, there would be no end.
+Man is the only animal that blushes -- or needs to.
 		-- Mark Twain
