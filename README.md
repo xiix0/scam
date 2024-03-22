@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+Don't look now, but the man in the moon is laughing at you.
