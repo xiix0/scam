@@ -1,1 +1,2 @@
-You're not my type.  For that matter, you're not even my species!!!
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
