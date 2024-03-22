@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+You will be traveling and coming into a fortune.
