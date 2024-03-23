@@ -1,3 +1,1 @@
-You never have to change anything you got up in the middle of the night
-to write.
-		-- Saul Bellow
+Many pages make a thick book.
