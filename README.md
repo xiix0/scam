@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
