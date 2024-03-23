@@ -1,1 +1,2 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
