@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+Don't look back, the lemmings are gaining on you.
