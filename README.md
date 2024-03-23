@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+People are beginning to notice you.  Try dressing before you leave the house.
