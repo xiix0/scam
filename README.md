@@ -1,1 +1,1 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Never be led astray onto the path of virtue.
