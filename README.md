@@ -1,2 +1,2 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
