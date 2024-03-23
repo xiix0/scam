@@ -1,3 +1,3 @@
-You never have to change anything you got up in the middle of the night
-to write.
-		-- Saul Bellow
+Training is everything.  The peach was once a bitter almond; cauliflower is
+nothing but cabbage with a college education.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
