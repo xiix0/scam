@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+You two ought to be more careful--your love could drag on for years and years.
