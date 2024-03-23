@@ -1,1 +1,2 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
