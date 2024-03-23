@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+Try to have as good a life as you can under the circumstances.
