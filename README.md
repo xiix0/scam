@@ -1,1 +1,1 @@
-Many pages make a thick book.
+Today is the last day of your life so far.
