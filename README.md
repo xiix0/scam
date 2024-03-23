@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+You are the only person to ever get this message.
