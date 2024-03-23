@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
