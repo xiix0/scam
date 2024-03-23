@@ -1,2 +1,3 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
