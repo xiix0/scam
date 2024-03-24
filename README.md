@@ -1,1 +1,2 @@
-Your lucky number has been disconnected.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
