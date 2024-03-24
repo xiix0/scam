@@ -1,3 +1,2 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
