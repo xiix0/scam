@@ -1,1 +1,2 @@
-You definitely intend to start living sometime soon.
+Don't Worry, Be Happy.
+		-- Meher Baba
