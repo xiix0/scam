@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+Tomorrow, you can be anywhere.
