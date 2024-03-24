@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+Fine day for friends.
+So-so day for you.
