@@ -1,2 +1,3 @@
-Kindness is a language which the deaf can hear and the blind can read.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
 		-- Mark Twain
