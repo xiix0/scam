@@ -1,2 +1,1 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+Perfect day for scrubbing the floor and other exciting things.
