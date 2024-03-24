@@ -1,1 +1,2 @@
-Caution: breathing may be hazardous to your health.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
