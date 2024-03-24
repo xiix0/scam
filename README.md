@@ -1,1 +1,1 @@
-You seek to shield those you love and you like the role of the provider.
+Your nature demands love and your happiness depends on it.
