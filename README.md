@@ -1,1 +1,1 @@
-Long life is in store for you.
+Your sister swims out to meet troop ships.
