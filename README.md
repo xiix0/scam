@@ -1,1 +1,2 @@
-Ships are safe in harbor, but they were never meant to stay there.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
