@@ -1,1 +1,2 @@
-You will receive a legacy which will place you above want.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
