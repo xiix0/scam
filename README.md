@@ -1,1 +1,2 @@
-You are taking yourself far too seriously.
+Fine day for friends.
+So-so day for you.
