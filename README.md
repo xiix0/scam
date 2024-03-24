@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+Cheer Up!  Things are getting worse at a slower rate.
