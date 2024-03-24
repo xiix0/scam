@@ -1,3 +1,3 @@
-Your manuscript is both good and original, but the part that is good is not
-original and the part that is original is not good.
-		-- Samuel Johnson
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
