@@ -1,2 +1,1 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+You will receive a legacy which will place you above want.
