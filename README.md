@@ -1,2 +1,2 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
