@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+Your mode of life will be changed for the better because of new developments.
