@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+A day for firm decisions!!!!!  Or is it?
