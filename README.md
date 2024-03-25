@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+Expect the worst, it's the least you can do.
