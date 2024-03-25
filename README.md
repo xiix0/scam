@@ -1,2 +1,1 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+Abandon the search for Truth; settle for a good fantasy.
