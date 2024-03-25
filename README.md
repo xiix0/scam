@@ -1,3 +1,3 @@
-The only way to keep your health is to eat what you don't want, drink what
-you don't like, and do what you'd rather not.
-		-- Mark Twain
+It is often the case that the man who can't tell a lie thinks he is the best
+judge of one.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
