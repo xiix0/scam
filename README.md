@@ -1,1 +1,4 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Gratitude and treachery are merely the two extremities of the same procession.
+You have seen all of it that is worth staying for when the band and the gaudy
+officials have gone by.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
