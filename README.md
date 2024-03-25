@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Good news from afar can bring you a welcome visitor.
