@@ -1,2 +1,1 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Stay away from hurricanes for a while.
