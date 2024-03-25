@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
