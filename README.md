@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+You are sick, twisted and perverted.  I like that in a person.
