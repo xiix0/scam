@@ -1,1 +1,1 @@
-Think twice before speaking, but don't say "think think click click".
+You could live a better life, if you had a better mind and a better body.
