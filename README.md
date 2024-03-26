@@ -1,1 +1,2 @@
-A vivid and creative mind characterizes you.
+Q:	Are we not men?
+A:	We are Vaxen.
