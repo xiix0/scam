@@ -1,1 +1,1 @@
-You have many friends and very few living enemies.
+Good day to deal with people in high places; particularly lonely stewardesses.
