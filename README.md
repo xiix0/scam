@@ -1,1 +1,2 @@
-You will experience a strong urge to do good; but it will pass.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
