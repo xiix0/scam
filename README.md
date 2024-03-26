@@ -1,1 +1,2 @@
-You're a card which will have to be dealt with.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
