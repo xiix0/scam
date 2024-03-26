@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+You get along very well with everyone except animals and people.
