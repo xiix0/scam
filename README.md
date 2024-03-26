@@ -1,1 +1,2 @@
-Be security conscious -- National defense is at stake.
+He is now rising from affluence to poverty.
+		-- Mark Twain
