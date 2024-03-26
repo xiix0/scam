@@ -1,3 +1,1 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+You will experience a strong urge to do good; but it will pass.
