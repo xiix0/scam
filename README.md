@@ -1,1 +1,2 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
