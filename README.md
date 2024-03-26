@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+You will always have good luck in your personal affairs.
