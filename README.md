@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+You're being followed.  Cut out the hanky-panky for a few days.
