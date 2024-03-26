@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+Your own qualities will help prevent your advancement in the world.
