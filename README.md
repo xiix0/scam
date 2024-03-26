@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+You will have domestic happiness and faithful friends.
