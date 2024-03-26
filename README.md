@@ -1,1 +1,2 @@
-You will pass away very quickly.
+When in doubt, tell the truth.
+		-- Mark Twain
