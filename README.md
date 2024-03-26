@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+You're a card which will have to be dealt with.
