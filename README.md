@@ -1,1 +1,1 @@
-You will outgrow your usefulness.
+You will get what you deserve.
