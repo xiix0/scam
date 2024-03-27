@@ -1,1 +1,2 @@
-You will have domestic happiness and faithful friends.
+When in doubt, tell the truth.
+		-- Mark Twain
