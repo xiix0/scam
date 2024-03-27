@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+The time is right to make new friends.
