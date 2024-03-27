@@ -1,2 +1,2 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
