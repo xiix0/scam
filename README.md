@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+He is now rising from affluence to poverty.
+		-- Mark Twain
