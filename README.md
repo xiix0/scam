@@ -1,1 +1,1 @@
-Bank error in your favor.  Collect $200.
+You look like a million dollars.  All green and wrinkled.
