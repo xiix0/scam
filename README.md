@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+You don't become a failure until you're satisfied with being one.
