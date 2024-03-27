@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+Everything will be just tickety-boo today.
