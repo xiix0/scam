@@ -1,2 +1,1 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Keep emotionally active.  Cater to your favorite neurosis.
