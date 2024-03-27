@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
