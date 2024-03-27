@@ -1,2 +1,1 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+You have a strong appeal for members of the opposite sex.
