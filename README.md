@@ -1,1 +1,2 @@
-A visit to a fresh place will bring strange work.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
