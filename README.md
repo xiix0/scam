@@ -1,3 +1,3 @@
-Q:	How many Zen masters does it take to screw in a light bulb?
-A:	None.  The Universe spins the bulb, and the Zen master stays out
-	of the way.
+Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
+A:	Easy.  It's because they can't figure out how to get the little
+	bottles into the typewriter.
