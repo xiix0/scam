@@ -1,2 +1,1 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+You teach best what you most need to learn.
