@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
