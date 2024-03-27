@@ -1,1 +1,1 @@
-Don't you feel more like you do now than you did when you came in?
+Your nature demands love and your happiness depends on it.
