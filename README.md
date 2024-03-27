@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
