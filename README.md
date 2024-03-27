@@ -1,3 +1,3 @@
-Don't go around saying the world owes you a living.  The world owes you
-nothing.  It was here first.
-		-- Mark Twain
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #19
+A:	To be or not to be.
+Q:	What is the square root of 4b^2?
