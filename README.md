@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Don't you wish you had more energy... or less ambition?
