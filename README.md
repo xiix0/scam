@@ -1,1 +1,2 @@
-Never look up when dragons fly overhead.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
