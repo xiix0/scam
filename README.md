@@ -1,1 +1,1 @@
-You will remember something that you should not have forgotten.
+You will inherit some money or a small piece of land.
