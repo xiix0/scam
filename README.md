@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+You will always have good luck in your personal affairs.
