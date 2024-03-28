@@ -1,5 +1,5 @@
-When I was younger, I could remember anything, whether it had happened
-or not; but my faculties are decaying now and soon I shall be so I
-cannot remember any but the things that never happened.  It is sad to
-go to pieces like this but we all have to do it.
-		-- Mark Twain
+Q:	How many existentialists does it take to screw in a light bulb?
+A:	Two.  One to screw it in and one to observe how the light bulb
+	itself symbolizes a single incandescent beacon of subjective
+	reality in a netherworld of endless absurdity reaching out toward a
+	maudlin cosmos of nothingness.
