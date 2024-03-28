@@ -1,2 +1,1 @@
-Q:	What's the difference between a Mac and an Etch-a-Sketch?
-A:	You don't have to shake the Mac to clear the screen.
+Expect a letter from a friend who will ask a favor of you.
