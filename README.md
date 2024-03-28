@@ -1,2 +1,1 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+A few hours grace before the madness begins again.
