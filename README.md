@@ -1,1 +1,1 @@
-You have had a long-term stimulation relative to business.
+After your lover has gone you will still have PEANUT BUTTER!
