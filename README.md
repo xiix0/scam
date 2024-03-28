@@ -1,5 +1,2 @@
-Q:	What do monsters eat?
-A:	Things.
-
-Q:	What do monsters drink?
-A:	Coke.  (Because Things go better with Coke.)
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
