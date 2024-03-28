@@ -1,2 +1,2 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+Q:	What's the difference between a Mac and an Etch-a-Sketch?
+A:	You don't have to shake the Mac to clear the screen.
