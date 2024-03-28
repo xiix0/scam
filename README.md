@@ -1,5 +1,3 @@
-Q:	How many existentialists does it take to screw in a light bulb?
-A:	Two.  One to screw it in and one to observe how the light bulb
-	itself symbolizes a single incandescent beacon of subjective
-	reality in a netherworld of endless absurdity reaching out toward a
-	maudlin cosmos of nothingness.
+Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
+that think they are truffles.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
