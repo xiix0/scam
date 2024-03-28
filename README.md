@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+Expect the worst, it's the least you can do.
