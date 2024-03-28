@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
