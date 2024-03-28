@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+You have had a long-term stimulation relative to business.
