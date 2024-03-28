@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+You will never know hunger.
