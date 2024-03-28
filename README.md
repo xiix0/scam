@@ -1,1 +1,1 @@
-A day for firm decisions!!!!!  Or is it?
+Today is the tomorrow you worried about yesterday.
