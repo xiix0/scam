@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+You will be winged by an anti-aircraft battery.
