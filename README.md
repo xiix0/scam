@@ -1,1 +1,2 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
