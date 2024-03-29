@@ -1,2 +1,2 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
