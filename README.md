@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+There will be big changes for you but you will be happy.
