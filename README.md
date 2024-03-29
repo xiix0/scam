@@ -1,6 +1,6 @@
-The lovely woman-child Kaa was mercilessly chained to the cruel post of
-the warrior-chief Beast, with his barbarian tribe now stacking wood at
-her nubile feet, when the strong clear voice of the poetic and heroic
-Handsomas roared, 'Flick your Bic, crisp that chick, and you'll feel my
-steel through your last meal!'
-		-- Winning sentence, 1984 Bulwer-Lytton bad fiction contest.
+Even the clearest and most perfect circumstantial evidence is likely to be at
+fault, after all, and therefore ought to be received with great caution.  Take
+the case of any pencil, sharpened by any woman; if you have witnesses, you will
+find she did it with a knife; but if you take simply the aspect of the pencil,
+you will say that she did it with her teeth.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
