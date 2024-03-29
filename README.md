@@ -1,2 +1,1 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+Do what comes naturally.  Seethe and fume and throw a tantrum.
