@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+Hope that the day after you die is a nice day.
