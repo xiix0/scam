@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+You need no longer worry about the future.  This time tomorrow you'll be dead.
