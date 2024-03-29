@@ -1,2 +1,2 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
