@@ -1,3 +1,3 @@
-The difference between a Miracle and a Fact is exactly the difference
-between a mermaid and a seal.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
 		-- Mark Twain
