@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+An exotic journey in downtown Newark is in your future.
