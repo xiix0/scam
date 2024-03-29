@@ -1,1 +1,2 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
