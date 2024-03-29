@@ -1,1 +1,2 @@
-Everything that you know is wrong, but you can be straightened out.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
