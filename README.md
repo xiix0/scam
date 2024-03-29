@@ -1,2 +1,1 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+You're ugly and your mother dresses you funny.
