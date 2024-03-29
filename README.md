@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+Everything that you know is wrong, but you can be straightened out.
