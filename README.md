@@ -1,3 +1,1 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
