@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+You have literary talent that you should take pains to develop.
