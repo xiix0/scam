@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+Your sister swims out to meet troop ships.
