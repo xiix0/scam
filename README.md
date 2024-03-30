@@ -1,2 +1,3 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+Consider well the proportions of things.  It is better to be a young June-bug
+than an old bird of paradise.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
