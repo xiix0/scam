@@ -1,2 +1,3 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	One.  Only it's his light bulb when he's done.
+Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
+are not the person involved.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
