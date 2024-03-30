@@ -1,2 +1,1 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+Good news.  Ten weeks from Friday will be a pretty good day.
