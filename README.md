@@ -1,1 +1,1 @@
-You'll never be the man your mother was!
+A gift of a flower will soon be made to you.
