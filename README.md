@@ -1,1 +1,1 @@
-You are always busy.
+Never look up when dragons fly overhead.
