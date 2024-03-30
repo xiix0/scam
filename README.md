@@ -1,2 +1,2 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
