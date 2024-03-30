@@ -1,1 +1,2 @@
-You display the wonderful traits of charm and courtesy.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
