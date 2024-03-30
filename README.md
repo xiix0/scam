@@ -1,1 +1,1 @@
-Blow it out your ear.
+Tuesday is the Wednesday of the rest of your life.
