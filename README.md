@@ -1,1 +1,2 @@
-Don't get to bragging.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
