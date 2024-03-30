@@ -1,1 +1,2 @@
-Never look up when dragons fly overhead.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
