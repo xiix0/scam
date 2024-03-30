@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+Good day for overcoming obstacles.  Try a steeplechase.
