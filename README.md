@@ -1,1 +1,2 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
