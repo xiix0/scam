@@ -1,2 +1,2 @@
-If you tell the truth you don't have to remember anything.
-		-- Mark Twain
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
