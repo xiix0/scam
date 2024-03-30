@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+Don't get to bragging.
