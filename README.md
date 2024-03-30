@@ -1,1 +1,2 @@
-Tuesday is the Wednesday of the rest of your life.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
