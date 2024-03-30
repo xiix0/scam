@@ -1,1 +1,1 @@
-Are you a turtle?
+You possess a mind not merely twisted, but actually sprained.
