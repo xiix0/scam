@@ -1,2 +1,2 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
