@@ -1,6 +1,6 @@
-In the plot, people came to the land; the land loved them; they worked and
-struggled and had lots of children.  There was a Frenchman who talked funny
-and a greenhorn from England who was a fancy-pants but when it came to the
-crunch he was all courage.  Those novels would make you retch.
-		-- Canadian novelist Robertson Davies, on the generic Canadian
-		   novel.
+Q:	How do you shoot a blue elephant?
+A:	With a blue-elephant gun.
+
+Q:	How do you shoot a pink elephant?
+A:	Twist its trunk until it turns blue, then shoot it with
+	a blue-elephant gun.
