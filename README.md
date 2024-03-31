@@ -1,2 +1,1 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+You are fighting for survival in your own sweet and gentle way.
