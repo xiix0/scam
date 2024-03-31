@@ -1,1 +1,1 @@
-Your step will soil many countries.
+The time is right to make new friends.
