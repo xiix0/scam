@@ -1,1 +1,1 @@
-Never reveal your best argument.
+Beware of a dark-haired man with a loud tie.
