@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+You will give someone a piece of your mind, which you can ill afford.
