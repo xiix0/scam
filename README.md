@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+Q:	How many supply-siders does it take to change a light bulb?
+A:	None.  The darkness will cause the light bulb to change by itself.
