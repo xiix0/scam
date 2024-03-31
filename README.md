@@ -1,2 +1,2 @@
-Every why hath a wherefore.
-		-- William Shakespeare, "A Comedy of Errors"
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
