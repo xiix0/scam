@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
