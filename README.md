@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
