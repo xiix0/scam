@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+Don't get stuck in a closet -- wear yourself out.
