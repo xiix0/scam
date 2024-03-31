@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+Your temporary financial embarrassment will be relieved in a surprising manner.
