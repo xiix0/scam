@@ -1,2 +1,2 @@
-Q:	Why do firemen wear red suspenders?
-A:	To conform with departmental regulations concerning uniform dress.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
