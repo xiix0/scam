@@ -1,1 +1,1 @@
-The time is right to make new friends.
+You own a dog, but you can only feed a cat.
