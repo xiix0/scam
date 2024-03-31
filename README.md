@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+After your lover has gone you will still have PEANUT BUTTER!
