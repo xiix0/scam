@@ -1,1 +1,2 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
