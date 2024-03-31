@@ -1,2 +1,1 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+You've been leading a dog's life.  Stay off the furniture.
