@@ -1,1 +1,1 @@
-You are number 6!  Who is number one?
+Try to value useful qualities in one who loves you.
