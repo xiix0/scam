@@ -1,2 +1,2 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+Wagner's music is better than it sounds.
+		-- Mark Twain
