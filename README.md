@@ -1,1 +1,2 @@
-Try to value useful qualities in one who loves you.
+Big book, big bore.
+		-- Callimachus
