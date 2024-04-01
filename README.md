@@ -1,1 +1,2 @@
-Be careful!  UGLY strikes 9 out of 10!
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
