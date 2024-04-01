@@ -1,2 +1,3 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
