@@ -1,1 +1,2 @@
-You love your home and want it to be beautiful.
+When in doubt, tell the truth.
+		-- Mark Twain
