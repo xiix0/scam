@@ -1,1 +1,2 @@
-Today is the last day of your life so far.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
