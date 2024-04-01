@@ -1,1 +1,2 @@
-Of course you have a purpose -- to find a purpose.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
