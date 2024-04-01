@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+Today is what happened to yesterday.
