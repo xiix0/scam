@@ -1,2 +1,3 @@
-What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, "The League of Frightened Men"
+Zounds!  I was never so bethumped with words
+since I first called my brother's father dad.
+		-- William Shakespeare, "Kind John"
