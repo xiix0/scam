@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Chicken Little only has to be right once.
