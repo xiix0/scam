@@ -1,2 +1,3 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+Consider well the proportions of things.  It is better to be a young June-bug
+than an old bird of paradise.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
