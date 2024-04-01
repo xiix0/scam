@@ -1,2 +1,3 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+It were not best that we should all think alike; it is difference of opinion
+that makes horse-races.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
