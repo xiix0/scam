@@ -1,1 +1,1 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+Your society will be sought by people of taste and refinement.
