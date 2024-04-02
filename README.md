@@ -1,3 +1,2 @@
-Your manuscript is both good and original, but the part that is good is not
-original and the part that is original is not good.
-		-- Samuel Johnson
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
