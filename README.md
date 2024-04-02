@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
