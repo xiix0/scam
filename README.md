@@ -1,3 +1,2 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
+Wagner's music is better than it sounds.
 		-- Mark Twain
