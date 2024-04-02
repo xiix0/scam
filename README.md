@@ -1,2 +1,2 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
