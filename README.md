@@ -1,1 +1,2 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
