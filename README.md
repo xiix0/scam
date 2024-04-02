@@ -1,1 +1,1 @@
-There is a fly on your nose.
+Good news from afar can bring you a welcome visitor.
