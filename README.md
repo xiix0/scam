@@ -1,2 +1,1 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
