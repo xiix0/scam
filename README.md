@@ -1,2 +1,2 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
