@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+Look afar and see the end from the beginning.
