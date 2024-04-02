@@ -1,1 +1,3 @@
-You are sick, twisted and perverted.  I like that in a person.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
