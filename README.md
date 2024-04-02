@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
