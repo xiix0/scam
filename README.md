@@ -1,1 +1,1 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
