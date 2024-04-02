@@ -1,2 +1,1 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+Good news from afar can bring you a welcome visitor.
