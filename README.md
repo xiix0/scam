@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+You have the power to influence all with whom you come in contact.
