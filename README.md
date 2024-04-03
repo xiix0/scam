@@ -1,2 +1,1 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+An exotic journey in downtown Newark is in your future.
