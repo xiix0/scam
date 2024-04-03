@@ -1,1 +1,2 @@
-Try the Moo Shu Pork.  It is especially good today.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
