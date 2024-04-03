@@ -1,2 +1,3 @@
-All generalizations are false, including this one.
+Reader, suppose you were an idiot.  And suppose you were a member of
+Congress.  But I repeat myself.
 		-- Mark Twain
