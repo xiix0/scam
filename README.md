@@ -1,2 +1,1 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+You are a bundle of energy, always on the go.
