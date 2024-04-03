@@ -1,1 +1,2 @@
-You are only young once, but you can stay immature indefinitely.
+Conscience doth make cowards of us all.
+		-- Shakespeare
