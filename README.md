@@ -1,1 +1,1 @@
-You have had a long-term stimulation relative to business.
+Don't read any sky-writing for the next two weeks.
