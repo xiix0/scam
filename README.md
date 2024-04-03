@@ -1,2 +1,1 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+If you sow your wild oats, hope for a crop failure.
