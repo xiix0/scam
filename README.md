@@ -1,2 +1,2 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
