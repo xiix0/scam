@@ -1,1 +1,1 @@
-You will remember something that you should not have forgotten.
+Don't kiss an elephant on the lips today.
