@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+You will remember something that you should not have forgotten.
