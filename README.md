@@ -1,2 +1,3 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
