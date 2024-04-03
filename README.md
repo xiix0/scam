@@ -1,1 +1,1 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+Things will be bright in P.M.  A cop will shine a light in your face.
