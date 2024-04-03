@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Someone whom you reject today, will reject you tomorrow.
