@@ -1,1 +1,2 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
