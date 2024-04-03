@@ -1,2 +1,2 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
