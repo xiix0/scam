@@ -1,2 +1,1 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+You have an unusual equipment for success.  Be sure to use it properly.
