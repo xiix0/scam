@@ -1,1 +1,2 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
