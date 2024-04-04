@@ -1,3 +1,1 @@
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
-Some think it is the voice of God.
-		-- Mark Twain
+Beauty and harmony are as necessary to you as the very breath of life.
