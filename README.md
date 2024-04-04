@@ -1,1 +1,1 @@
-Be careful!  Is it classified?
+Your boyfriend takes chocolate from strangers.
