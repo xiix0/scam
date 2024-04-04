@@ -1,2 +1,2 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
