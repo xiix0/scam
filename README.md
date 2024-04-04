@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+You have Egyptian flu: you're going to be a mummy.
