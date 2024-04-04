@@ -1,1 +1,2 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
