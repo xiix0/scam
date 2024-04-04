@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+Beware of a tall blond man with one black shoe.
