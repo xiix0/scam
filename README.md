@@ -1,2 +1,2 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
