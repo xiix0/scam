@@ -1,1 +1,1 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+Your reasoning powers are good, and you are a fairly good planner.
