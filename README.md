@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
