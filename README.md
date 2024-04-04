@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+You have an unusual equipment for success.  Be sure to use it properly.
