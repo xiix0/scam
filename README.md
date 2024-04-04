@@ -1,2 +1,1 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+Things will be bright in P.M.  A cop will shine a light in your face.
