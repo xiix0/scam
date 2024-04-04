@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
