@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
