@@ -1,2 +1,1 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
