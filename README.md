@@ -1,2 +1,2 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
