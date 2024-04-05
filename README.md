@@ -1,1 +1,2 @@
-In the stairway of life, you'd best take the elevator.
+What I tell you three times is true.
+		-- Lewis Carroll
