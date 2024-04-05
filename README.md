@@ -1,2 +1,2 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
