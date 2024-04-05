@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Your boss climbed the corporate ladder, wrong by wrong.
