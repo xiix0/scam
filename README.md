@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+You will be advanced socially, without any special effort on your part.
