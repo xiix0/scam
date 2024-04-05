@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+Make a wish, it might come true.
