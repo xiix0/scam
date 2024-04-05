@@ -1,2 +1,2 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
