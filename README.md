@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+Abandon the search for Truth; settle for a good fantasy.
