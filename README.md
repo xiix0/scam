@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Live in a world of your own, but always welcome visitors.
