@@ -1,1 +1,2 @@
-Your own qualities will help prevent your advancement in the world.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
