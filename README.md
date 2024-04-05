@@ -1,2 +1,4 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+O, it is excellent
+To have a giant's strength; but it is tyrannous
+To use it like a giant.
+		-- Shakespeare, "Measure for Measure", II, 2
