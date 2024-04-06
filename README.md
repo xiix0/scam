@@ -1,1 +1,1 @@
-You will have a long and boring life.
+Your lucky number has been disconnected.
