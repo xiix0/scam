@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Your true value depends entirely on what you are compared with.
