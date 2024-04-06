@@ -1,1 +1,2 @@
-Don't look back, the lemmings are gaining on you.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
