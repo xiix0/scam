@@ -1,2 +1,4 @@
-Q:	What do you have when you have a lawyer buried up to his neck in sand?
-A:	Not enough sand.
+The holy passion of Friendship is of so sweet and steady and loyal and
+enduring a nature that it will last through a whole lifetime, if not asked to
+lend money.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
