@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+Caution: Keep out of reach of children.
