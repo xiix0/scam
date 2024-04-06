@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
