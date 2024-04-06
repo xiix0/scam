@@ -1,2 +1,1 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
