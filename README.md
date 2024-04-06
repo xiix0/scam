@@ -1,2 +1,5 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
