@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+There is a great discovery still to be made in Literature: that of
+paying literary men by the quantity they do NOT write.
