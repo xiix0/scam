@@ -1,1 +1,1 @@
-Perfect day for scrubbing the floor and other exciting things.
+After your lover has gone you will still have PEANUT BUTTER!
