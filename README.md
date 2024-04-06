@@ -1,1 +1,2 @@
-An avocado-tone refrigerator would look good on your resume.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
