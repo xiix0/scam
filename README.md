@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+You will be winged by an anti-aircraft battery.
