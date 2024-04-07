@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+Your object is to save the world, while still leading a pleasant life.
