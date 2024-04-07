@@ -1,2 +1,2 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
