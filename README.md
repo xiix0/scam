@@ -1,1 +1,2 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
