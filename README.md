@@ -1,1 +1,3 @@
-Today is the last day of your life so far.
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
