@@ -1,3 +1,5 @@
-Q:	What do you call a principal female opera singer whose high C
-	is lower than those of other principal female opera singers?
-A:	A deep C diva.
+Q:	Why do ducks have big flat feet?
+A:	To stamp out forest fires.
+
+Q:	Why do elephants have big flat feet?
+A:	To stamp out flaming ducks.
