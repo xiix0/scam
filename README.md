@@ -1,2 +1,2 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
