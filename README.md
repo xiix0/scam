@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
