@@ -1,1 +1,2 @@
-Don't go surfing in South Dakota for a while.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
