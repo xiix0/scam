@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+Future looks spotty.  You will spill soup in late evening.
