@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
