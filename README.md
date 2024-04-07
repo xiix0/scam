@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+Look afar and see the end from the beginning.
