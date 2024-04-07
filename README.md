@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+You prefer the company of the opposite sex, but are well liked by your own.
