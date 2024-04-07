@@ -1,1 +1,1 @@
-You will be successful in love.
+Your domestic life may be harmonious.
