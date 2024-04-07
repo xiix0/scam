@@ -1,3 +1,2 @@
-Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
-A:	That's proprietary information.  Answer available from AT&T on payment
-	of license fee (binary only).
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
