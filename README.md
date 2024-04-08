@@ -1,2 +1,1 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+You will be awarded the Nobel Peace Prize... posthumously.
