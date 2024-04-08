@@ -1,2 +1,2 @@
-	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
+Q:	What do little WASPs want to be when they grow up?
+A:	The very best person they can possibly be.
