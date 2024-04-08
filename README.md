@@ -1,3 +1,2 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
