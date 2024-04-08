@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
