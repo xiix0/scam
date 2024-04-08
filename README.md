@@ -1,2 +1,1 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+Your heart is pure, and your mind clear, and your soul devout.
