@@ -1,1 +1,3 @@
-You can rent this space for only $5 a week.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
