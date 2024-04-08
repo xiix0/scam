@@ -1,1 +1,3 @@
-You have many friends and very few living enemies.
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
