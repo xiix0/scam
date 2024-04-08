@@ -1,1 +1,3 @@
-You need more time; and you probably always will.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
