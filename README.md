@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
