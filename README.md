@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
