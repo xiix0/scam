@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+Live in a world of your own, but always welcome visitors.
