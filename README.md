@@ -1,2 +1,2 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
