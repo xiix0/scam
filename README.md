@@ -1,2 +1,2 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
