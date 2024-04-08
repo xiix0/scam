@@ -1,2 +1,1 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+Do something unusual today.  Pay a bill.
