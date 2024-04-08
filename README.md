@@ -1,1 +1,2 @@
-You should go home.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
