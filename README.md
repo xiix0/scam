@@ -1,3 +1,1 @@
-The human race is a race of cowards; and I am not only marching in that
-procession but carrying a banner.
-		-- Mark Twain
+Tuesday is the Wednesday of the rest of your life.
