@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+Among the lucky, you are the chosen one.
