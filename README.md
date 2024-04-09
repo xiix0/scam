@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
