@@ -1,1 +1,2 @@
-A few hours grace before the madness begins again.
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
