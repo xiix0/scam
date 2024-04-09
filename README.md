@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+A gift of a flower will soon be made to you.
