@@ -1,1 +1,3 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+If you pick up a starving dog and make him prosperous, he will not bite you.
+This is the principal difference between a dog and a man.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
