@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+You are destined to become the commandant of the fighting men of the
+department of transportation.
