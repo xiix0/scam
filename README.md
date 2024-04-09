@@ -1,2 +1,2 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
