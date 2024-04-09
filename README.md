@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+You have an ambitious nature and may make a name for yourself.
