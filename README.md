@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
