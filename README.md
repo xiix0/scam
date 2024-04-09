@@ -1,1 +1,1 @@
-You definitely intend to start living sometime soon.
+You will be recognized and honored as a community leader.
