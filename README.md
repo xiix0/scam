@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+You have many friends and very few living enemies.
