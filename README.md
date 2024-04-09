@@ -1,1 +1,1 @@
-Tuesday is the Wednesday of the rest of your life.
+All the troubles you have will pass away very quickly.
