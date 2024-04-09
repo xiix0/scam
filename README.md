@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+You too can wear a nose mitten.
