@@ -1,1 +1,2 @@
-Accent on helpful side of your nature.  Drain the moat.
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
