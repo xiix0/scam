@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+You will pioneer the first Martian colony.
