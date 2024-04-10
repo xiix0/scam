@@ -1,2 +1,5 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
+sword wielding purple fish glued to Harley-Davidson motorcycles.
+
+Oh, and have a nice day!
+		-- Bryce Nesbitt '84
