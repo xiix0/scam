@@ -1,3 +1,2 @@
-Q:	How many mathematicians does it take to screw in a light bulb?
-A:	One.  He gives it to six Californians, thereby reducing the problem
-	to the earlier joke.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
