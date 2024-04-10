@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+Exercise caution in your daily affairs.
