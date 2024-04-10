@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
