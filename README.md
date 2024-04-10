@@ -1,2 +1,4 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Whoever has lived long enough to find out what life is, knows how deep a debt
+of gratitude we owe to Adam, the first great benefactor of our race.  He
+brought death into the world.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
