@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+Tomorrow will be cancelled due to lack of interest.
