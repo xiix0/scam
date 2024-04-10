@@ -1,2 +1,2 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
