@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+Good day to let down old friends who need help.
