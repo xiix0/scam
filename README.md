@@ -1,5 +1,5 @@
-Q:	Where's the Lone Ranger take his garbage?
-A:	To the dump, to the dump, to the dump dump dump!
-
-Q:	What's the Pink Panther say when he steps on an ant hill?
-A:	Dead ant, dead ant, dead ant dead ant dead ant...
+It is right that he too should have his little chronicle, his memories,
+his reason, and be able to recognize the good in the bad, the bad in the
+worst, and so grow gently old all down the unchanging days and die one
+day like any other day, only shorter.
+		-- Samuel Beckett, "Malone Dies"
