@@ -1,2 +1,2 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
+Kindness is a language which the deaf can hear and the blind can read.
 		-- Mark Twain
