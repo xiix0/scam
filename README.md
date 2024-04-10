@@ -1,2 +1,3 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+Grief can take care of itself; but to get the full value of a joy you must
+have somebody to divide it with.
+		-- Mark Twain
