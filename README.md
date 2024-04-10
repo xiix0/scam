@@ -1,2 +1,3 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+I must have a prodigious quantity of mind; it takes me as much as a
+week sometimes to make it up.
+		-- Mark Twain, "The Innocents Abroad"
