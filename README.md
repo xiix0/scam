@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
