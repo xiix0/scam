@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+Beware of a dark-haired man with a loud tie.
