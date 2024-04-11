@@ -1,3 +1,1 @@
-Your manuscript is both good and original, but the part that is good is not
-original and the part that is original is not good.
-		-- Samuel Johnson
+You have the capacity to learn from mistakes.  You'll learn a lot today.
