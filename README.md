@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+It's lucky you're going so slowly, because you're going in the wrong direction.
