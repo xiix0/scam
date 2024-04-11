@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+You'll feel much better once you've given up hope.
