@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+Think twice before speaking, but don't say "think think click click".
