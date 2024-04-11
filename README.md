@@ -1,2 +1,2 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+What I tell you three times is true.
+		-- Lewis Carroll
