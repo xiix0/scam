@@ -1,3 +1,3 @@
-Q:	How many Oregonians does it take to screw in a light bulb?
-A:	Three.  One to screw in the light bulb and two to fend off all those
-	Californians trying to share the experience.
+Q:	Why should you always serve a Southern Carolina football man
+	soup in a plate?
+A:	'Cause if you give him a bowl, he'll throw it away.
