@@ -1,2 +1,2 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
