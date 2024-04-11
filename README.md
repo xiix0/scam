@@ -1,2 +1,1 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+Think twice before speaking, but don't say "think think click click".
