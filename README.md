@@ -1,1 +1,1 @@
-You now have Asian Flu.
+Your fly might be open (but don't check it just now).
