@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+Fine day to work off excess energy.  Steal something heavy.
