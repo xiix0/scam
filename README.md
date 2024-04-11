@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+Increased knowledge will help you now.  Have mate's phone bugged.
