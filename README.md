@@ -1,2 +1,2 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
