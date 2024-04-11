@@ -1,1 +1,1 @@
-You are number 6!  Who is number one?
+Try to get all of your posthumous medals in advance.
