@@ -1,1 +1,1 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+What happened last night can happen again.
