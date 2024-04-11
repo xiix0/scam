@@ -1,1 +1,2 @@
-Think twice before speaking, but don't say "think think click click".
+What I tell you three times is true.
+		-- Lewis Carroll
