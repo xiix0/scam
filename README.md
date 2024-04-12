@@ -1,3 +1,3 @@
-Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
-as intelligent as ever.
-		-- Samuel Beckett, "Endgame"
+Q:	How many Oregonians does it take to screw in a light bulb?
+A:	Three.  One to screw in the light bulb and two to fend off all those
+	Californians trying to share the experience.
