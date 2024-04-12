@@ -1,1 +1,2 @@
-Is that really YOU that is reading this?
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
