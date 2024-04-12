@@ -1,1 +1,2 @@
-In the stairway of life, you'd best take the elevator.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
