@@ -1,2 +1,1 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Tuesday is the Wednesday of the rest of your life.
