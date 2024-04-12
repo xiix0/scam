@@ -1,1 +1,3 @@
-If your life was a horse, you'd have to shoot it.
+The only way to keep your health is to eat what you don't want, drink what
+you don't like, and do what you'd rather not.
+		-- Mark Twain
