@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+Tuesday After Lunch is the cosmic time of the week.
