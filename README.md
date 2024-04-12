@@ -1,1 +1,1 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
