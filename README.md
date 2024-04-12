@@ -1,2 +1,1 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
-		-- Mark Twain
+Accent on helpful side of your nature.  Drain the moat.
