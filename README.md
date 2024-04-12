@@ -1,2 +1,1 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Your life would be very empty if you had nothing to regret.
