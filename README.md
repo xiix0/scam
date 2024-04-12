@@ -1,2 +1,2 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+You will pay for your sins.  If you have already paid, please disregard
+this message.
