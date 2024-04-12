@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
