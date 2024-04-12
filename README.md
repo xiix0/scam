@@ -1,2 +1,2 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
