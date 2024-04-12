@@ -1,1 +1,1 @@
-You are capable of planning your future.
+Beware the one behind you.
