@@ -1,1 +1,2 @@
-You will probably marry after a very brief courtship.
+"... all the modern inconveniences ..."
+		-- Mark Twain
