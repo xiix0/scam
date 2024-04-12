@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
