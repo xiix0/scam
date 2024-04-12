@@ -1,1 +1,1 @@
-Accent on helpful side of your nature.  Drain the moat.
+Don't read any sky-writing for the next two weeks.
