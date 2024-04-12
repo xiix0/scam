@@ -1,2 +1,1 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Hope that the day after you die is a nice day.
