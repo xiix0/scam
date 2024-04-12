@@ -1,5 +1,3 @@
-Q:	Why did the chicken cross the road?
-A:	To see his friend Gregory peck.
-
-Q:	Why did the chicken cross the playground?
-A:	To get to the other slide.
+There is an old time toast which is golden for its beauty.
+"When you ascend the hill of prosperity may you not meet a friend."
+		-- Mark Twain
