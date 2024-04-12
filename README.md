@@ -1,1 +1,1 @@
-Tuesday is the Wednesday of the rest of your life.
+Today is the tomorrow you worried about yesterday.
