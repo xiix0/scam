@@ -1,1 +1,2 @@
-An exotic journey in downtown Newark is in your future.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
