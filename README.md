@@ -1,1 +1,3 @@
-You have a strong desire for a home and your family interests come first.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
+		-- Mark Twain
