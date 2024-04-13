@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
