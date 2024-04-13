@@ -1,5 +1,2 @@
-Q:	What do monsters eat?
-A:	Things.
-
-Q:	What do monsters drink?
-A:	Coke.  (Because Things go better with Coke.)
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
