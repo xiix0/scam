@@ -1,1 +1,1 @@
-Are you a turtle?
+You are as I am with You.
