@@ -1,2 +1,2 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
