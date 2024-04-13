@@ -1,2 +1,3 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Q:	How do you play religious roulette?
+A:	You stand around in a circle and blaspheme and see who gets
+	struck by lightning first.
