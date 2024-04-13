@@ -1,1 +1,2 @@
-Is that really YOU that is reading this?
+Too much is just enough.
+		-- Mark Twain, on whiskey
