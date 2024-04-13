@@ -1,1 +1,2 @@
-Don't read any sky-writing for the next two weeks.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
