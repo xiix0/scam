@@ -1,2 +1,1 @@
-Patch griefs with proverbs.
-		-- William Shakespeare, "Much Ado About Nothing"
+You will gain money by an illegal action.
