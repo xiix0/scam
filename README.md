@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+Someone whom you reject today, will reject you tomorrow.
