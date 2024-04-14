@@ -1,3 +1,2 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
