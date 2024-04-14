@@ -1,2 +1,3 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+Q:	What looks like a cat, flies like a bat, brays like a donkey, and
+	plays like a monkey?
+A:	Nothing.
