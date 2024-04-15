@@ -1,1 +1,1 @@
-There was a phone call for you.
+Day of inquiry.  You will be subpoenaed.
