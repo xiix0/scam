@@ -1,1 +1,2 @@
-Bank error in your favor.  Collect $200.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
