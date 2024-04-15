@@ -1,3 +1,1 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+Your business will go through a period of considerable expansion.
