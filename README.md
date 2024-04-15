@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+Your depth of comprehension may tend to make you lax in worldly ways.
