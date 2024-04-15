@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
