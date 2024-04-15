@@ -1,1 +1,2 @@
-Bank error in your favor.  Collect $200.
+Q:	Are we not men?
+A:	We are Vaxen.
