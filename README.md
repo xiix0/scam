@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+Be careful!  UGLY strikes 9 out of 10!
