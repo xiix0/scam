@@ -1,2 +1,3 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
