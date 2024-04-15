@@ -1,1 +1,1 @@
-Your lucky color has faded.
+It was all so different before everything changed.
