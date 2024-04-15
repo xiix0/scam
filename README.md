@@ -1,2 +1,3 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
