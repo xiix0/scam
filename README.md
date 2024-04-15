@@ -1,11 +1,3 @@
-Q:	How many hardware engineers does it take to change a light bulb?
-A:	None.  We'll fix it in software.
-
-Q:	How many system programmers does it take to change a light bulb?
-A:	None.  The application can work around it.
-
-Q:	How many software engineers does it take to change a light bulb?
-A:	None.  We'll document it in the manual.
-
-Q:	How many tech writers does it take to change a light bulb?
-A:	None.  The user can figure it out.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
+A:	The Royal Canadian Mounted Police.
+Q:	What was the greatest achievement in taxidermy?
