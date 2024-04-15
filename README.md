@@ -1,1 +1,1 @@
-Just to have it is enough.
+You will visit the Dung Pits of Glive soon.
