@@ -1,3 +1,3 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
-A:	The Royal Canadian Mounted Police.
-Q:	What was the greatest achievement in taxidermy?
+Q:	Why is Christmas just like a day at the office?
+A:	You do all of the work and the fat guy in the suit
+	gets all the credit.
