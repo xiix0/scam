@@ -1,1 +1,2 @@
-It was all so different before everything changed.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
