@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+You have a deep appreciation of the arts and music.
