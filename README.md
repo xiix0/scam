@@ -1,2 +1,2 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
