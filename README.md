@@ -1,1 +1,2 @@
-Don't let your mind wander -- it's too little to be let out alone.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
