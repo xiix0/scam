@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Alimony and bribes will engage a large share of your wealth.
