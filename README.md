@@ -1,2 +1,2 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
