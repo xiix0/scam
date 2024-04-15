@@ -1,2 +1,1 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+You will be given a post of trust and responsibility.
