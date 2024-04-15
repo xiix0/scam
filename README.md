@@ -1,2 +1,2 @@
-He is now rising from affluence to poverty.
+Man is the only animal that blushes -- or needs to.
 		-- Mark Twain
