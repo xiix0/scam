@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
