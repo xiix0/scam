@@ -1,1 +1,3 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
