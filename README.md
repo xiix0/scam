@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
