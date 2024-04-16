@@ -1,1 +1,1 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+Don't look now, but there is a multi-legged creature on your shoulder.
