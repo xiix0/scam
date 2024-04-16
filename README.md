@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+You are sick, twisted and perverted.  I like that in a person.
