@@ -1,2 +1,2 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
