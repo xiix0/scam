@@ -1,2 +1,2 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+Q:	What's the difference betweeen USL and the Graf Zeppelin?
+A:	The Graf Zeppelin represented cutting edge technology for its time.
