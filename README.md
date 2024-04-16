@@ -1,2 +1,2 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
