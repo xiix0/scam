@@ -1,3 +1,1 @@
-In the Spring, I have counted 136 different kinds of weather inside of
-24 hours.
-		-- Mark Twain, on New England weather
+If your life was a horse, you'd have to shoot it.
