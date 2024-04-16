@@ -1,1 +1,2 @@
-Don't read everything you believe.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
