@@ -1,3 +1,2 @@
-A banker is a fellow who lends you his umbrella when the sun is shining
-and wants it back the minute it begins to rain.
-		-- Mark Twain
+There is a great discovery still to be made in Literature: that of
+paying literary men by the quantity they do NOT write.
