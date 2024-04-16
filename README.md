@@ -1,1 +1,3 @@
-The time is right to make new friends.
+ROMEO:		Courage, man; the hurt cannot be much.
+MERCUTIO:	No, 'tis not so deep as a well, nor so wide
+			as a church-door; but 'tis enough, 'twill serve.
