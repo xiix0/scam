@@ -1,1 +1,2 @@
-You will remember something that you should not have forgotten.
+He is now rising from affluence to poverty.
+		-- Mark Twain
