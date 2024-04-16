@@ -1,1 +1,2 @@
-You will engage in a profitable business activity.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
