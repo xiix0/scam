@@ -1,3 +1,1 @@
-The human race is a race of cowards; and I am not only marching in that
-procession but carrying a banner.
-		-- Mark Twain
+You prefer the company of the opposite sex, but are well liked by your own.
