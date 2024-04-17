@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
