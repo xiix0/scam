@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
