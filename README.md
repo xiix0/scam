@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Your depth of comprehension may tend to make you lax in worldly ways.
