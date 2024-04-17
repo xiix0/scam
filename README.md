@@ -1,2 +1,3 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
