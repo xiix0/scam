@@ -1,2 +1,2 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
