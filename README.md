@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
