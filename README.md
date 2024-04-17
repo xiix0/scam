@@ -1,2 +1,3 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+I don't know half of you half as well as I should like; and I like less
+than half of you half as well as you deserve.
+		-- J. R. R. Tolkien
