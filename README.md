@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+A visit to a fresh place will bring strange work.
