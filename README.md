@@ -1,2 +1,2 @@
-When you are about to die, a wombat is better than no company at all.
-		-- Roger Zelazny, "Doorways in the Sand"
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
