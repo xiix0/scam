@@ -1,1 +1,1 @@
-You fill a much-needed gap.
+You have had a long-term stimulation relative to business.
