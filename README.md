@@ -1,1 +1,1 @@
-Many pages make a thick book.
+Your business will go through a period of considerable expansion.
