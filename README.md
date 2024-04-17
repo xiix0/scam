@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+You will be honored for contributing your time and skill to a worthy cause.
