@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+You will live a long, healthy, happy life and make bags of money.
