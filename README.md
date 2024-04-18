@@ -1,3 +1,2 @@
-ROMEO:		Courage, man; the hurt cannot be much.
-MERCUTIO:	No, 'tis not so deep as a well, nor so wide
-			as a church-door; but 'tis enough, 'twill serve.
+Few things are harder to put up with than the annoyance of a good example.
+		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
