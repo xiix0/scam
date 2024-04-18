@@ -1,2 +1,2 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
