@@ -1,1 +1,2 @@
-You are a fluke of the universe; you have no right to be here.
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
