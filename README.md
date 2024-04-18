@@ -1,1 +1,1 @@
-Give your very best today.  Heaven knows it's little enough.
+Stay away from flying saucers today.
