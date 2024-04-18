@@ -1,1 +1,2 @@
-Long life is in store for you.
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
