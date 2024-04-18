@@ -1,1 +1,1 @@
-Beware of a tall black man with one blond shoe.
+Generosity and perfection are your everlasting goals.
