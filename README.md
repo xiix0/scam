@@ -1,1 +1,1 @@
-Long life is in store for you.
+Things will be bright in P.M.  A cop will shine a light in your face.
