@@ -1,1 +1,1 @@
-You will be awarded a medal for disregarding safety in saving someone.
+You're almost as happy as you think you are.
