@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Your aims are high, and you are capable of much.
