@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+Fine day to work off excess energy.  Steal something heavy.
