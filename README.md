@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+You have the power to influence all with whom you come in contact.
