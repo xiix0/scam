@@ -1,1 +1,2 @@
-Fine day to work off excess energy.  Steal something heavy.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
