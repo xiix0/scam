@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+Don't go surfing in South Dakota for a while.
