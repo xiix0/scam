@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Give your very best today.  Heaven knows it's little enough.
