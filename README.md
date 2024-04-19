@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+You have an unusual understanding of the problems of human relationships.
