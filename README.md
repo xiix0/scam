@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
