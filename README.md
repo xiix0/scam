@@ -1,1 +1,2 @@
-Make a wish, it might come true.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
