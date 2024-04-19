@@ -1,2 +1,1 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+Never reveal your best argument.
