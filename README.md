@@ -1,2 +1,1 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+Make a wish, it might come true.
