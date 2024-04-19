@@ -1,2 +1,2 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
