@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
