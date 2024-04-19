@@ -1,1 +1,1 @@
-Condense soup, not books!
+A gift of a flower will soon be made to you.
