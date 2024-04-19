@@ -1,1 +1,1 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+You attempt things that you do not even plan because of your extreme stupidity.
