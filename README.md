@@ -1,6 +1,5 @@
-At once it struck me what quality went to form a man of achievement,
-especially in literature, and which Shakespeare possessed so enormously
--- I mean negative capability, that is, when a man is capable of being
-in uncertainties, mysteries, doubts, without any irritable reaching
-after fact and reason.
-		-- John Keats
+	"You have heard me speak of Professor Moriarty?"
+	"The famous scientific criminal, as famous among crooks as --"
+	"My blushes, Watson," Holmes murmured, in a deprecating voice.
+	"I was about to say 'as he is unknown to the public.'"
+		-- A. Conan Doyle, "The Valley of Fear"
