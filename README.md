@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
