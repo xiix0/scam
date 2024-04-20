@@ -1,1 +1,2 @@
-Your heart is pure, and your mind clear, and your soul devout.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
