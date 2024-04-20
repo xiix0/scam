@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
