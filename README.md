@@ -1,2 +1,1 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Think twice before speaking, but don't say "think think click click".
