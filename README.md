@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+You need no longer worry about the future.  This time tomorrow you'll be dead.
