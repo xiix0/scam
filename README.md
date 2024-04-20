@@ -1,2 +1,2 @@
-Q:	What's the difference betweeen USL and the Graf Zeppelin?
-A:	The Graf Zeppelin represented cutting edge technology for its time.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
