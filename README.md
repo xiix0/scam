@@ -1,1 +1,3 @@
-You will be awarded a medal for disregarding safety in saving someone.
+The mind is its own place, and in itself
+Can make a Heav'n of Hell, a Hell of Heav'n.
+		-- John Milton
