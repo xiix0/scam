@@ -1,1 +1,1 @@
-Think twice before speaking, but don't say "think think click click".
+Are you ever going to do the dishes?  Or will you change your major to biology?
