@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Perfect day for scrubbing the floor and other exciting things.
