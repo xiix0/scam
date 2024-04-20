@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+Your heart is pure, and your mind clear, and your soul devout.
