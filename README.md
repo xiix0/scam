@@ -1,1 +1,2 @@
-Accent on helpful side of your nature.  Drain the moat.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
