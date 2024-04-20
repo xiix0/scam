@@ -1,1 +1,3 @@
-You plan things that you do not even attempt because of your extreme caution.
+Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
+that think they are truffles.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
