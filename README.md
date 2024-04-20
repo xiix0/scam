@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+You will be traveling and coming into a fortune.
