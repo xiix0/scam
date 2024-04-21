@@ -1,2 +1,2 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
