@@ -1,1 +1,1 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Your reasoning powers are good, and you are a fairly good planner.
