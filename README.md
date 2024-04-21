@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+You like to form new friendships and make new acquaintances.
