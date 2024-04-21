@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
