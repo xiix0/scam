@@ -1,2 +1,2 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
