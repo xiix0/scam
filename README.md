@@ -1,2 +1,2 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
