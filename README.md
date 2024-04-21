@@ -1,3 +1,1 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+You're not my type.  For that matter, you're not even my species!!!
