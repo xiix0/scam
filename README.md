@@ -1,1 +1,2 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
