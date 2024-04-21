@@ -1,1 +1,2 @@
-Your talents will be recognized and suitably rewarded.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
