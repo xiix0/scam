@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
