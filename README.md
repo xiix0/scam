@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+Your aim is high and to the right.
