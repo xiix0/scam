@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+You will be awarded a medal for disregarding safety in saving someone.
