@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+You will forget that you ever knew me.
