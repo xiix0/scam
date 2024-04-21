@@ -1,3 +1,2 @@
-If you pick up a starving dog and make him prosperous, he will not bite you.
-This is the principal difference between a dog and a man.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	What do little WASPs want to be when they grow up?
+A:	The very best person they can possibly be.
