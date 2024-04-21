@@ -1,1 +1,2 @@
-Don't go surfing in South Dakota for a while.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
