@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+Your fly might be open (but don't check it just now).
