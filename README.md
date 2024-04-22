@@ -1,2 +1,2 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
