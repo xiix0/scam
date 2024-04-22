@@ -1,1 +1,2 @@
-Don't read any sky-writing for the next two weeks.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
