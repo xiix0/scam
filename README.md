@@ -1,1 +1,2 @@
-You will engage in a profitable business activity.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
