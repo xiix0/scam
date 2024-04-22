@@ -1,1 +1,2 @@
-A vivid and creative mind characterizes you.
+He is now rising from affluence to poverty.
+		-- Mark Twain
