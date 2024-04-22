@@ -1,1 +1,2 @@
-Today is the last day of your life so far.
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
