@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+You will be a winner today.  Pick a fight with a four-year-old.
