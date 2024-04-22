@@ -1,3 +1,1 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+You have had a long-term stimulation relative to business.
