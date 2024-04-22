@@ -1,1 +1,1 @@
-You will get what you deserve.
+Your love life will be happy and harmonious.
