@@ -1,2 +1,1 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+You have Egyptian flu: you're going to be a mummy.
