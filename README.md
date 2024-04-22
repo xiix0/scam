@@ -1,1 +1,3 @@
-Your boss is a few sandwiches short of a picnic.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
