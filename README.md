@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+You will give someone a piece of your mind, which you can ill afford.
