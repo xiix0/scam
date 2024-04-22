@@ -1,2 +1,2 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
