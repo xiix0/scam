@@ -1,1 +1,2 @@
-Make a wish, it might come true.
+Q:	Are we not men?
+A:	We are Vaxen.
