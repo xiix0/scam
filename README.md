@@ -1,2 +1,3 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
