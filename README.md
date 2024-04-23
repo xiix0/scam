@@ -1,2 +1,2 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
