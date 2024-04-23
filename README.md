@@ -1,2 +1,1 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+This life is yours.  Some of it was given to you; the rest, you made yourself.
