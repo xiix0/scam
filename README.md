@@ -1,2 +1,4 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
