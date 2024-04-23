@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+Everything that you know is wrong, but you can be straightened out.
