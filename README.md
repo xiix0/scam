@@ -1,3 +1,2 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
