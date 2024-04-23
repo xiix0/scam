@@ -1,2 +1,2 @@
-You will be attacked by a beast who has the body of a wolf, the tail of
-a lion, and the face of Donald Duck.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
