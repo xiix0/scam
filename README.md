@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Your boss climbed the corporate ladder, wrong by wrong.
