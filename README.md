@@ -1,1 +1,2 @@
-You have a deep appreciation of the arts and music.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
