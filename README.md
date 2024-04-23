@@ -1,6 +1,3 @@
-Many enraged psychiatrists are inciting a weary butcher.  The butcher is
-weary and tired because he has cut meat and steak and lamb for hours and
-weeks.  He does not desire to chant about anything with raving psychiatrists,
-but he sings about his gingivectomist, he dreams about a single cosmologist,
-he thinks about his dog.  The dog is named Herbert.
-		-- Racter, "The Policeman's Beard is Half-Constructed"
+Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
+that think they are truffles.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
