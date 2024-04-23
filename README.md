@@ -1,3 +1,2 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+Just because the message may never be received does not mean it is
+not worth sending.
