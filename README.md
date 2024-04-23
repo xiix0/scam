@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Your present plans will be successful.
