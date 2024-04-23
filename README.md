@@ -1,1 +1,2 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
