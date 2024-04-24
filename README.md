@@ -1,1 +1,1 @@
-You will wish you hadn't.
+Write yourself a threatening letter and pen a defiant reply.
