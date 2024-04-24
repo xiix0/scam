@@ -1,2 +1,1 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
