@@ -1,1 +1,1 @@
-Future looks spotty.  You will spill soup in late evening.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
