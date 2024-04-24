@@ -1,2 +1,1 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+Your aims are high, and you are capable of much.
