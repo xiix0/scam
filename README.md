@@ -1,2 +1,2 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+Q:	What is the sound of one cat napping?
+A:	Mu.
