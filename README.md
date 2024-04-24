@@ -1,1 +1,1 @@
-You will contract a rare disease.
+You work very hard.  Don't try to think as well.
