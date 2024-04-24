@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
