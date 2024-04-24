@@ -1,3 +1,2 @@
-Q:	Why is Christmas just like a day at the office?
-A:	You do all of the work and the fat guy in the suit
-	gets all the credit.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
