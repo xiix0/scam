@@ -1,2 +1,2 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
