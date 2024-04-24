@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+Artistic ventures highlighted.  Rob a museum.
