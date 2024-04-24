@@ -1,2 +1,1 @@
-What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, "The League of Frightened Men"
+If you can read this, you're too close.
