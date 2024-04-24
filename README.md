@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You will be married within a year, and divorced within two.
