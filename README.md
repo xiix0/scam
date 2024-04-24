@@ -1,1 +1,2 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
