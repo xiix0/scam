@@ -1,3 +1,2 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
