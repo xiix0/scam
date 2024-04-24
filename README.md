@@ -1,1 +1,1 @@
-You are so boring that when I see you my feet go to sleep.
+Tomorrow will be cancelled due to lack of interest.
