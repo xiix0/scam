@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+You will wish you hadn't.
