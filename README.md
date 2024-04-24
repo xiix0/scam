@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+You are so boring that when I see you my feet go to sleep.
