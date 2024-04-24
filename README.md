@@ -1,3 +1,2 @@
-It is by the fortune of God that, in this country, we have three benefits:
-freedom of speech, freedom of thought, and the wisdom never to use either.
+Civilization is the limitless multiplication of unnecessary necessities.
 		-- Mark Twain
