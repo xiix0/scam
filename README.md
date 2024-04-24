@@ -1,2 +1,2 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
