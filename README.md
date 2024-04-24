@@ -1,1 +1,2 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
