@@ -1,1 +1,2 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+Just because the message may never be received does not mean it is
+not worth sending.
