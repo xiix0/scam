@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+Ships are safe in harbor, but they were never meant to stay there.
