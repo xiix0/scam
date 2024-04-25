@@ -1,2 +1,4 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+In Marseilles they make half the toilet soap we consume in America, but
+the Marseillaise only have a vague theoretical idea of its use, which they
+have obtained from books of travel.
+		-- Mark Twain
