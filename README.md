@@ -1,1 +1,2 @@
-The time is right to make new friends.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
