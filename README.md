@@ -1,2 +1,2 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
