@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+Don't look back, the lemmings are gaining on you.
