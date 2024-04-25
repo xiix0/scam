@@ -1,1 +1,1 @@
-Accent on helpful side of your nature.  Drain the moat.
+A day for firm decisions!!!!!  Or is it?
