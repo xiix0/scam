@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+Accent on helpful side of your nature.  Drain the moat.
