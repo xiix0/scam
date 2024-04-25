@@ -1,2 +1,1 @@
-Big book, big bore.
-		-- Callimachus
+You have a deep appreciation of the arts and music.
