@@ -1,1 +1,1 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Keep it short for pithy sake.
