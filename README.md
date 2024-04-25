@@ -1,2 +1,2 @@
-Be careful of reading health books, you might die of a misprint.
+Water, taken in moderation cannot hurt anybody.
 		-- Mark Twain
