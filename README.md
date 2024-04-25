@@ -1,3 +1,2 @@
-The human race is a race of cowards; and I am not only marching in that
-procession but carrying a banner.
+Be careful of reading health books, you might die of a misprint.
 		-- Mark Twain
