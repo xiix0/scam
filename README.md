@@ -1,1 +1,1 @@
-A day for firm decisions!!!!!  Or is it?
+You are capable of planning your future.
