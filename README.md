@@ -1,1 +1,2 @@
-Ships are safe in harbor, but they were never meant to stay there.
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
