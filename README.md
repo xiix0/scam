@@ -1,1 +1,2 @@
-Don't read any sky-writing for the next two weeks.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
