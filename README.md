@@ -1,1 +1,1 @@
-You feel a whole lot more like you do now than you did when you used to.
+You will become rich and famous unless you don't.
