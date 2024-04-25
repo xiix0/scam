@@ -1,1 +1,1 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+Expect the worst, it's the least you can do.
