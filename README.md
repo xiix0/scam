@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+You feel a whole lot more like you do now than you did when you used to.
