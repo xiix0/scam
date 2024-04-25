@@ -1,2 +1,4 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
