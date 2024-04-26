@@ -1,1 +1,1 @@
-You will be married within a year.
+Your present plans will be successful.
