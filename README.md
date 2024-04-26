@@ -1,2 +1,1 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+You are only young once, but you can stay immature indefinitely.
