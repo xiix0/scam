@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+Best of all is never to have been born.  Second best is to die soon.
