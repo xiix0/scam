@@ -1,3 +1,2 @@
-Q:	How do you play religious roulette?
-A:	You stand around in a circle and blaspheme and see who gets
-	struck by lightning first.
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
