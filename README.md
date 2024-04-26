@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+Go to a movie tonight.  Darkness becomes you.
