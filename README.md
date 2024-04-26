@@ -1,1 +1,1 @@
-Never give an inch!
+Ships are safe in harbor, but they were never meant to stay there.
