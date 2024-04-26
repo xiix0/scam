@@ -1,1 +1,2 @@
-Never be led astray onto the path of virtue.
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
