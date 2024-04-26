@@ -1,2 +1,1 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+Let me put it this way: today is going to be a learning experience.
