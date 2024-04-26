@@ -1,2 +1,2 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
