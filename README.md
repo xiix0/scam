@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+There is a 20% chance of tomorrow.
