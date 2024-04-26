@@ -1,2 +1,3 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Q:	How do you play religious roulette?
+A:	You stand around in a circle and blaspheme and see who gets
+	struck by lightning first.
