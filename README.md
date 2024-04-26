@@ -1,2 +1,4 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
