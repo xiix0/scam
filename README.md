@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+You will inherit some money or a small piece of land.
