@@ -1,2 +1,3 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+Q:	What's the difference between a dead dog in the road and a dead
+	lawyer in the road?
+A:	There are skid marks in front of the dog.
