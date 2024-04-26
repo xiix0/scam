@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+You definitely intend to start living sometime soon.
