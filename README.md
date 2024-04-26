@@ -1,3 +1,2 @@
-Questionable day.
-
-Ask somebody something.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
