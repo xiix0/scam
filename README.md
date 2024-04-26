@@ -1,1 +1,2 @@
-You are only young once, but you can stay immature indefinitely.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
