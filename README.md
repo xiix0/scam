@@ -1,2 +1,1 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+Be security conscious -- National defense is at stake.
