@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+Bridge ahead.  Pay troll.
