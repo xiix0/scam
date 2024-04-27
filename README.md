@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+You will reach the highest possible point in your business or profession.
