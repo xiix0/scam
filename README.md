@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+Among the lucky, you are the chosen one.
