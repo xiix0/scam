@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
