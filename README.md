@@ -1,1 +1,2 @@
-Among the lucky, you are the chosen one.
+Big book, big bore.
+		-- Callimachus
