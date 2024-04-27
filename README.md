@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
