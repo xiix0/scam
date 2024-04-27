@@ -1,1 +1,2 @@
-Bridge ahead.  Pay troll.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
