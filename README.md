@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+Big book, big bore.
+		-- Callimachus
