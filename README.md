@@ -1,1 +1,2 @@
-Stay away from hurricanes for a while.
+All generalizations are false, including this one.
+		-- Mark Twain
