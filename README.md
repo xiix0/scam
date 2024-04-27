@@ -1,2 +1,1 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+A day for firm decisions!!!!!  Or is it?
