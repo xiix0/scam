@@ -1,3 +1,1 @@
-Grief can take care of itself; but to get the full value of a joy you must
-have somebody to divide it with.
-		-- Mark Twain
+Live in a world of your own, but always welcome visitors.
