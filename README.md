@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+Long life is in store for you.
