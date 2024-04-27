@@ -1,1 +1,1 @@
-You will have long and healthy life.
+You never hesitate to tackle the most difficult problems.
