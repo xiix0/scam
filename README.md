@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+Today is National Existential Ennui Awareness Day.
