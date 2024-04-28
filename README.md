@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+Your aims are high, and you are capable of much.
