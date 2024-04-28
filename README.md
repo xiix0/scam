@@ -1,2 +1,1 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+You attempt things that you do not even plan because of your extreme stupidity.
