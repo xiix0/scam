@@ -1,2 +1,2 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
