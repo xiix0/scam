@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+It may or may not be worthwhile, but it still has to be done.
