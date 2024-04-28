@@ -1,2 +1,1 @@
-There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+Lady Luck brings added income today.  Lady friend takes it away tonight.
