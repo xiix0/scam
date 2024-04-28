@@ -1,1 +1,2 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
