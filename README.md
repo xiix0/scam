@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+You have the power to influence all with whom you come in contact.
