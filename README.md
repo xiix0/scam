@@ -1,1 +1,1 @@
-You should go home.
+Your aim is high and to the right.
