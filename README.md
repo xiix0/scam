@@ -1,2 +1,1 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+You get along very well with everyone except animals and people.
