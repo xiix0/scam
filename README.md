@@ -1,1 +1,2 @@
-Never commit yourself!  Let someone else commit you.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
