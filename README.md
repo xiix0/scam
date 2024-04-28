@@ -1,1 +1,2 @@
-You're at the end of the road again.
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
