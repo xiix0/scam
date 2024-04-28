@@ -1,1 +1,2 @@
-It may or may not be worthwhile, but it still has to be done.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
