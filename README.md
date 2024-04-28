@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
