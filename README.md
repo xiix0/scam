@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
