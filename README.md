@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
