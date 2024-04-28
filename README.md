@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+Learn to pause -- or nothing worthwhile can catch up to you.
