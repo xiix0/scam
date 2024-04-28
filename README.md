@@ -1,1 +1,1 @@
-You will remember something that you should not have forgotten.
+Never commit yourself!  Let someone else commit you.
