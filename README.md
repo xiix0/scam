@@ -1,2 +1,2 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
