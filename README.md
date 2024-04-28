@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+Learn to pause -- or nothing worthwhile can catch up to you.
