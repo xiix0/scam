@@ -1,1 +1,1 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+You will attract cultured and artistic people to your home.
