@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You will remember something that you should not have forgotten.
