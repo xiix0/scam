@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+You will be run over by a beer truck.
