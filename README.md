@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+Your life would be very empty if you had nothing to regret.
