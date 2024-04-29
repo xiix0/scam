@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
