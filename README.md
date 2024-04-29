@@ -1,1 +1,1 @@
-Long life is in store for you.
+You will become rich and famous unless you don't.
