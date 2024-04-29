@@ -1,2 +1,2 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
