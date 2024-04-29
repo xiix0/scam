@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Another good night not to sleep in a eucalyptus tree.
