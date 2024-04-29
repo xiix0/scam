@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+Accent on helpful side of your nature.  Drain the moat.
