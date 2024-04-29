@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+Increased knowledge will help you now.  Have mate's phone bugged.
