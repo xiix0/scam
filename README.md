@@ -1,1 +1,1 @@
-Accent on helpful side of your nature.  Drain the moat.
+You're not my type.  For that matter, you're not even my species!!!
