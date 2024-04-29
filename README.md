@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+Don't go surfing in South Dakota for a while.
