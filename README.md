@@ -1,1 +1,1 @@
-Stay the curse.
+Courage is your greatest present need.
