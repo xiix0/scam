@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+Communicate!  It can't make things any worse.
