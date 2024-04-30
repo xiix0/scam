@@ -1,2 +1,3 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+Someone is speaking well of you.
+
+How unusual!
