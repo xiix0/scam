@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+You're almost as happy as you think you are.
