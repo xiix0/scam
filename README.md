@@ -1,1 +1,2 @@
-You're working under a slight handicap.  You happen to be human.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
