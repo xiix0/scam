@@ -1,1 +1,1 @@
-Your object is to save the world, while still leading a pleasant life.
+Your nature demands love and your happiness depends on it.
