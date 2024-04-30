@@ -1,2 +1,1 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
