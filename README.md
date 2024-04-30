@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+Many changes of mind and mood; do not hesitate too long.
