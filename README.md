@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+Tuesday After Lunch is the cosmic time of the week.
