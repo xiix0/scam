@@ -1,1 +1,2 @@
-A day for firm decisions!!!!!  Or is it?
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
