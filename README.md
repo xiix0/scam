@@ -1,2 +1,3 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
