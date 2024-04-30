@@ -1,2 +1,2 @@
-Q:	Why do mountain climbers rope themselves together?
-A:	To prevent the sensible ones from going home.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
