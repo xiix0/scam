@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
