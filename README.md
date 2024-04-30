@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+This will be a memorable month -- no matter how hard you try to forget it.
