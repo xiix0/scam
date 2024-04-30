@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
