@@ -1,1 +1,1 @@
-You have literary talent that you should take pains to develop.
+It was all so different before everything changed.
