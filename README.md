@@ -1,1 +1,2 @@
-You will triumph over your enemy.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
