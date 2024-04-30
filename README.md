@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+A day for firm decisions!!!!!  Or is it?
