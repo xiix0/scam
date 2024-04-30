@@ -1,2 +1,2 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
