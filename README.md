@@ -1,1 +1,2 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
