@@ -1,2 +1,1 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
