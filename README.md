@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+It was all so different before everything changed.
