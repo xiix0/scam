@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+Avoid gunfire in the bathroom tonight.
