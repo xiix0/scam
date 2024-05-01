@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+After your lover has gone you will still have PEANUT BUTTER!
