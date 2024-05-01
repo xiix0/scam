@@ -1,1 +1,1 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+You have an unusual equipment for success.  Be sure to use it properly.
