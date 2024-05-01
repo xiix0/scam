@@ -1,3 +1,1 @@
-The difference between the right word and the almost right word is the
-difference between lightning and the lightning bug.
-		-- Mark Twain
+You have an ambitious nature and may make a name for yourself.
