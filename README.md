@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+You have taken yourself too seriously.
