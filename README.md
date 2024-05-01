@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+You will wish you hadn't.
