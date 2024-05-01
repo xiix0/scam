@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Your fly might be open (but don't check it just now).
