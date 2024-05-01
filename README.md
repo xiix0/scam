@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+Few things are harder to put up with than the annoyance of a good example.
+		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
