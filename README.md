@@ -1,2 +1,1 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+Learn to pause -- or nothing worthwhile can catch up to you.
