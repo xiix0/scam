@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+Accent on helpful side of your nature.  Drain the moat.
