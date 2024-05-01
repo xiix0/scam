@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+Be careful!  UGLY strikes 9 out of 10!
