@@ -1,2 +1,1 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+Beware of low-flying butterflies.
