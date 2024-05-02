@@ -1,3 +1,2 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
