@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Chicken Little was right.
