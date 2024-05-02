@@ -1,1 +1,1 @@
-You will get what you deserve.
+A gift of a flower will soon be made to you.
