@@ -1,3 +1,3 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
 		-- Mark Twain
