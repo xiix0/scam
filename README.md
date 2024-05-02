@@ -1,1 +1,1 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+You will probably marry after a very brief courtship.
