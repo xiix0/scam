@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Caution: breathing may be hazardous to your health.
