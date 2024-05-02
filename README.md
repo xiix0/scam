@@ -1,2 +1,1 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+You're working under a slight handicap.  You happen to be human.
