@@ -1,1 +1,1 @@
-You're at the end of the road again.
+Fine day to work off excess energy.  Steal something heavy.
