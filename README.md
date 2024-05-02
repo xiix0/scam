@@ -1,2 +1,2 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
