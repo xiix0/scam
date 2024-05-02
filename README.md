@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+You will be awarded the Nobel Peace Prize... posthumously.
