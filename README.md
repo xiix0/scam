@@ -1,3 +1,4 @@
-You never have to change anything you got up in the middle of the night
-to write.
-		-- Saul Bellow
+Q:	Why don't Scotsmen ever have coffee the way they like it?
+A:	Well, they like it with two lumps of sugar.  If they drink
+	it at home, they only take one, and if they drink it while
+	visiting, they always take three.
