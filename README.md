@@ -1,3 +1,3 @@
-Perilous to all of us are the devices of an art deeper than we ourselves
-possess.
-		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
+Q:	What do you call the money you pay to the government when
+	you ride into the country on the back of an elephant?
+A:	A howdah duty.
