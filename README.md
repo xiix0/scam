@@ -1,2 +1,2 @@
-A is for Apple.
-		-- Hester Pryne
+All generalizations are false, including this one.
+		-- Mark Twain
