@@ -1,1 +1,3 @@
-Today is National Existential Ennui Awareness Day.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
