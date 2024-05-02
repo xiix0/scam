@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+You're at the end of the road again.
