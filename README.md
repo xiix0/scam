@@ -1,2 +1,2 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
