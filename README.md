@@ -1,1 +1,1 @@
-Advancement in position.
+Domestic happiness and faithful friends.
