@@ -1,1 +1,2 @@
-It was all so different before everything changed.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
