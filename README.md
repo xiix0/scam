@@ -1,1 +1,1 @@
-The time is right to make new friends.
+You possess a mind not merely twisted, but actually sprained.
