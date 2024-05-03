@@ -1,1 +1,2 @@
-You will be called upon to help a friend in trouble.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
