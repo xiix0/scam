@@ -1,1 +1,1 @@
-You will contract a rare disease.
+Truth will out this morning.  (Which may really mess things up.)
