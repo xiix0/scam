@@ -1,1 +1,1 @@
-In the stairway of life, you'd best take the elevator.
+You're currently going through a difficult transition period called "Life."
