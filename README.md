@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
