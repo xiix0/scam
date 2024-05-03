@@ -1,2 +1,2 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
