@@ -1,2 +1,2 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+Q:	How many marketing people does it take to change a light bulb?
+A:	I'll have to get back to you on that.
