@@ -1,5 +1,5 @@
-	"You have heard me speak of Professor Moriarty?"
-	"The famous scientific criminal, as famous among crooks as --"
-	"My blushes, Watson," Holmes murmured, in a deprecating voice.
-	"I was about to say 'as he is unknown to the public.'"
-		-- A. Conan Doyle, "The Valley of Fear"
+October 12, the Discovery.
+
+It was wonderful to find America, but it would have been more wonderful to miss
+it.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
