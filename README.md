@@ -1,2 +1,2 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
