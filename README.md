@@ -1,1 +1,2 @@
-Never be led astray onto the path of virtue.
+Too much is just enough.
+		-- Mark Twain, on whiskey
