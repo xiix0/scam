@@ -1,1 +1,2 @@
-You're currently going through a difficult transition period called "Life."
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
