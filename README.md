@@ -1,3 +1,2 @@
-Someone is speaking well of you.
-
-How unusual!
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
