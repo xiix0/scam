@@ -1,1 +1,2 @@
-You will be called upon to help a friend in trouble.
+What I tell you three times is true.
+		-- Lewis Carroll
