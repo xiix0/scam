@@ -1,1 +1,1 @@
-You possess a mind not merely twisted, but actually sprained.
+You work very hard.  Don't try to think as well.
