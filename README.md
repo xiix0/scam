@@ -1,1 +1,2 @@
-You will be audited by the Internal Revenue Service.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
