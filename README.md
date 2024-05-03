@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+The time is right to make new friends.
