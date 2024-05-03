@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+You never know how many friends you have until you rent a house on the beach.
