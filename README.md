@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+You will wish you hadn't.
