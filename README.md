@@ -1,2 +1,2 @@
-You are wise, witty, and wonderful, but you spend too much time reading
-this sort of trash.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
