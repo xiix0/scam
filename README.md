@@ -1,1 +1,2 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+A is for Apple.
+		-- Hester Pryne
