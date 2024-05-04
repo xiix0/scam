@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+Good news.  Ten weeks from Friday will be a pretty good day.
