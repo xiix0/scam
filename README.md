@@ -1,1 +1,1 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+You will inherit some money or a small piece of land.
