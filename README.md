@@ -1,3 +1,2 @@
-Q:	Why is it that the more accuracy you demand from an interpolation
-	function, the more expensive it becomes to compute?
-A:	That's the Law of Spline Demand.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
