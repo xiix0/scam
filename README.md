@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
