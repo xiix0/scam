@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
