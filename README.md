@@ -1,1 +1,2 @@
-Bank error in your favor.  Collect $200.
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
