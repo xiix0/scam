@@ -1,1 +1,2 @@
-Don't go surfing in South Dakota for a while.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
