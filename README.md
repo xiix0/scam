@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Good day for a change of scene.  Repaper the bedroom wall.
