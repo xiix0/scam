@@ -1,2 +1,1 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+You will be aided greatly by a person whom you thought to be unimportant.
