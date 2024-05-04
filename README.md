@@ -1,1 +1,2 @@
-Give your very best today.  Heaven knows it's little enough.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
