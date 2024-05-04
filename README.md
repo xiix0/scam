@@ -1,1 +1,1 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Truth will out this morning.  (Which may really mess things up.)
