@@ -1,2 +1,2 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
