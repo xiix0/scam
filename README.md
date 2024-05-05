@@ -1,2 +1,1 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+You are confused; but this is your normal state.
