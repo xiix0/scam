@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
