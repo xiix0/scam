@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Best of all is never to have been born.  Second best is to die soon.
