@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
