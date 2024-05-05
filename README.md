@@ -1,1 +1,2 @@
-You will be married within a year, and divorced within two.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
