@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+Things will be bright in P.M.  A cop will shine a light in your face.
