@@ -1,1 +1,2 @@
-Another good night not to sleep in a eucalyptus tree.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
