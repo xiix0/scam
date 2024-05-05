@@ -1,2 +1,2 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
