@@ -1,1 +1,2 @@
-Everything that you know is wrong, but you can be straightened out.
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
