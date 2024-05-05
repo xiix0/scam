@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
