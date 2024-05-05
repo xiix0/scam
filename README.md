@@ -1,1 +1,2 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
