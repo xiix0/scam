@@ -1,2 +1,2 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
