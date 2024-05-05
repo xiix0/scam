@@ -1,1 +1,1 @@
-You would if you could but you can't so you won't.
+Write yourself a threatening letter and pen a defiant reply.
