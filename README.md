@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+Beauty and harmony are as necessary to you as the very breath of life.
