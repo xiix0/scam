@@ -1,3 +1,2 @@
-Q:	What do you call the scratches that you get when a female
-	sheep bites you?
-A:	Ewe nicks.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
