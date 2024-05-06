@@ -1,1 +1,1 @@
-You will never know hunger.
+Look afar and see the end from the beginning.
