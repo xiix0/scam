@@ -1,1 +1,1 @@
-Blow it out your ear.
+You have an unusual understanding of the problems of human relationships.
