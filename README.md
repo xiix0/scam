@@ -1,1 +1,1 @@
-You now have Asian Flu.
+You are a bundle of energy, always on the go.
