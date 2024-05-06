@@ -1,2 +1,1 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+Beware the one behind you.
