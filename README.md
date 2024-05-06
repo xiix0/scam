@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+People are beginning to notice you.  Try dressing before you leave the house.
