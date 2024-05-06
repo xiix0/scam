@@ -1,3 +1,2 @@
-Q:	What does a WASP Mom make for dinner?
-A:	A crisp salad, a hearty soup, a lovely entree, followed by
-	a delicious dessert.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
