@@ -1,1 +1,2 @@
-Your heart is pure, and your mind clear, and your soul devout.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
