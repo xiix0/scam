@@ -1,1 +1,1 @@
-Do not overtax your powers.
+Be careful!  UGLY strikes 9 out of 10!
