@@ -1,3 +1,2 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
