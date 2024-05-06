@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
