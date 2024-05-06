@@ -1,1 +1,2 @@
-You are a bundle of energy, always on the go.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
