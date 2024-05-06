@@ -1,2 +1,2 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
