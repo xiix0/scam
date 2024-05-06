@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+A gift of a flower will soon be made to you.
