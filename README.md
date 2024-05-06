@@ -1,1 +1,2 @@
-Look afar and see the end from the beginning.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
