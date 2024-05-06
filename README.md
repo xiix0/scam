@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
