@@ -1,1 +1,2 @@
-You have an unusual understanding of the problems of human relationships.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
