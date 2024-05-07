@@ -1,2 +1,3 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
