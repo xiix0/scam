@@ -1,2 +1,1 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+This will be a memorable month -- no matter how hard you try to forget it.
