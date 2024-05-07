@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+Good news.  Ten weeks from Friday will be a pretty good day.
