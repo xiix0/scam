@@ -1,1 +1,2 @@
-Don't relax!  It's only your tension that's holding you together.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
