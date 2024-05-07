@@ -1,1 +1,2 @@
-You two ought to be more careful--your love could drag on for years and years.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
