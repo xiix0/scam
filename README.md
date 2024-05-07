@@ -1,2 +1,3 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+Zounds!  I was never so bethumped with words
+since I first called my brother's father dad.
+		-- William Shakespeare, "Kind John"
