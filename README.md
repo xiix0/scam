@@ -1,1 +1,2 @@
-Abandon the search for Truth; settle for a good fantasy.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
