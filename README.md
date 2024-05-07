@@ -1,2 +1,3 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+Its name is Public Opinion.  It is held in reverence.  It settles everything.
+Some think it is the voice of God.
+		-- Mark Twain
