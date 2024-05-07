@@ -1,2 +1,2 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
