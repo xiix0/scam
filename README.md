@@ -1,2 +1,2 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
