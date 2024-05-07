@@ -1,2 +1,1 @@
-When you are about to die, a wombat is better than no company at all.
-		-- Roger Zelazny, "Doorways in the Sand"
+You have a strong desire for a home and your family interests come first.
