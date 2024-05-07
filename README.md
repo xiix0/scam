@@ -1,1 +1,1 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+You plan things that you do not even attempt because of your extreme caution.
