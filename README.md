@@ -1,3 +1,1 @@
-Zounds!  I was never so bethumped with words
-since I first called my brother's father dad.
-		-- William Shakespeare, "Kind John"
+You will live a long, healthy, happy life and make bags of money.
