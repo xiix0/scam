@@ -1,1 +1,1 @@
-You plan things that you do not even attempt because of your extreme caution.
+Are you ever going to do the dishes?  Or will you change your major to biology?
