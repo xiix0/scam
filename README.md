@@ -1,3 +1,2 @@
-Questionable day.
-
-Ask somebody something.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
