@@ -1,1 +1,2 @@
-A visit to a fresh place will bring strange work.
+Big book, big bore.
+		-- Callimachus
