@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
