@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
