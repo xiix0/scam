@@ -1,1 +1,1 @@
-Don't read everything you believe.
+You will experience a strong urge to do good; but it will pass.
