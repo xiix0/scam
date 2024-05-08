@@ -1,1 +1,3 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
