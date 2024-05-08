@@ -1,3 +1,2 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
+If you laid all of our laws end to end, there would be no end.
 		-- Mark Twain
