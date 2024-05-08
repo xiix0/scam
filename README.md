@@ -1,3 +1,1 @@
-My only love sprung from my only hate!
-Too early seen unknown, and known too late!
-		-- William Shakespeare, "Romeo and Juliet"
+You have an unusual equipment for success.  Be sure to use it properly.
