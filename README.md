@@ -1,1 +1,1 @@
-Are you making all this up as you go along?
+The time is right to make new friends.
