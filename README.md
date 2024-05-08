@@ -1,2 +1,2 @@
-When you are about to die, a wombat is better than no company at all.
-		-- Roger Zelazny, "Doorways in the Sand"
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
