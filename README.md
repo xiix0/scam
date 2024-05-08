@@ -1,1 +1,2 @@
-Good news from afar can bring you a welcome visitor.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
