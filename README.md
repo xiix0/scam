@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+All the troubles you have will pass away very quickly.
