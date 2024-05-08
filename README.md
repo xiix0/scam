@@ -1,2 +1,3 @@
-Q:	How many Marxists does it take to screw in a light bulb?
-A:	None:  The light bulb contains the seeds of its own revolution.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
