@@ -1,3 +1,3 @@
-Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
-A:	Easy.  It's because they can't figure out how to get the little
-	bottles into the typewriter.
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
