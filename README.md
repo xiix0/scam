@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
