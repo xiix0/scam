@@ -1,1 +1,3 @@
-Are you sure the back door is locked?
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
