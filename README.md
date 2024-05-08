@@ -1,2 +1,2 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
