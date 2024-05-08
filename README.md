@@ -1,1 +1,2 @@
-You will get what you deserve.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
