@@ -1,8 +1,2 @@
-To be or not to be.
-		-- Shakespeare
-To do is to be.
-		-- Nietzsche
-To be is to do.
-		-- Sartre
-Do be do be do.
-		-- Sinatra
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
