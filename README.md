@@ -1,1 +1,2 @@
-You will be singled out for promotion in your work.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
