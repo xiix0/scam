@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+You're a card which will have to be dealt with.
