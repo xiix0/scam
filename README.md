@@ -1,1 +1,1 @@
-You are capable of planning your future.
+You may get an opportunity for advancement today.  Watch it!
