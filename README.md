@@ -1,2 +1,2 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
