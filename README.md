@@ -1,1 +1,1 @@
-You feel a whole lot more like you do now than you did when you used to.
+You are sick, twisted and perverted.  I like that in a person.
