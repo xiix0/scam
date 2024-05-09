@@ -1,1 +1,2 @@
-Your business will assume vast proportions.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
