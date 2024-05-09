@@ -1,2 +1,2 @@
-The Public is merely a multiplied "me."
+I have never let my schooling interfere with my education.
 		-- Mark Twain
