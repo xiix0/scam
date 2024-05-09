@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+Another good night not to sleep in a eucalyptus tree.
