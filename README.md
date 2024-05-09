@@ -1,2 +1,3 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+So so is good, very good, very excellent good:
+and yet it is not; it is but so so.
+		-- William Shakespeare, "As You Like It"
