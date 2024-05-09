@@ -1,3 +1,2 @@
-Q:	Why do people who live near Niagara Falls have flat foreheads?
-A:	Because every morning they wake up thinking "What *is* that noise?
-	Oh, right, *of course*!
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
