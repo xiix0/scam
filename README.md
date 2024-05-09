@@ -1,2 +1,2 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
