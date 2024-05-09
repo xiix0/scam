@@ -1,1 +1,1 @@
-You possess a mind not merely twisted, but actually sprained.
+You will be aided greatly by a person whom you thought to be unimportant.
