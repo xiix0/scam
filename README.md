@@ -1,1 +1,2 @@
-Don't look now, but the man in the moon is laughing at you.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
