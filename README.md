@@ -1,1 +1,2 @@
-Your lucky number has been disconnected.
+The Public is merely a multiplied "me."
+		-- Mark Twain
