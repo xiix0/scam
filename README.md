@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+You enjoy the company of other people.
