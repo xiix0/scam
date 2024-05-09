@@ -1,1 +1,1 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Don't look now, but there is a multi-legged creature on your shoulder.
