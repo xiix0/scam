@@ -1,2 +1,1 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+Be careful!  UGLY strikes 9 out of 10!
