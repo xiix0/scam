@@ -1,1 +1,2 @@
-You may get an opportunity for advancement today.  Watch it!
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
