@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+You are fighting for survival in your own sweet and gentle way.
