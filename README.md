@@ -1,2 +1,1 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+Your supervisor is thinking about you.
