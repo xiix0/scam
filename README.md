@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
