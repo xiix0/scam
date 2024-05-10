@@ -1,1 +1,1 @@
-You now have Asian Flu.
+Beware of a dark-haired man with a loud tie.
