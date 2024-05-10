@@ -1,3 +1,6 @@
-Q:	What do you call a WASP who doesn't work for his father, isn't a
-	lawyer, and believes in social causes?
-A:	A failure.
+Q:	How do you shoot a blue elephant?
+A:	With a blue-elephant gun.
+
+Q:	How do you shoot a pink elephant?
+A:	Twist its trunk until it turns blue, then shoot it with
+	a blue-elephant gun.
