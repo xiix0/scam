@@ -1,3 +1,2 @@
-I must have a prodigious quantity of mind; it takes me as much as a
-week sometimes to make it up.
-		-- Mark Twain, "The Innocents Abroad"
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
