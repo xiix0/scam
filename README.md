@@ -1,1 +1,3 @@
-Living your life is a task so difficult, it has never been attempted before.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
