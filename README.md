@@ -1,1 +1,2 @@
-You may get an opportunity for advancement today.  Watch it!
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
