@@ -1,2 +1,2 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
-		-- Mark Twain
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
