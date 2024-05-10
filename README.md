@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+You will win success in whatever calling you adopt.
