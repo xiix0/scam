@@ -1,2 +1,1 @@
-This night methinks is but the daylight sick.
-		-- William Shakespeare, "The Merchant of Venice"
+You will be honored for contributing your time and skill to a worthy cause.
