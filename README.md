@@ -1,2 +1,2 @@
-Always the dullness of the fool is the whetstone of the wits.
-		-- William Shakespeare, "As You Like It"
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
