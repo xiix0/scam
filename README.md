@@ -1,2 +1,1 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+Tuesday is the Wednesday of the rest of your life.
