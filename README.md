@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+You now have Asian Flu.
