@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+Future looks spotty.  You will spill soup in late evening.
