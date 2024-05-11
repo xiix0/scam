@@ -1,5 +1,2 @@
-Q:	Where's the Lone Ranger take his garbage?
-A:	To the dump, to the dump, to the dump dump dump!
-
-Q:	What's the Pink Panther say when he steps on an ant hill?
-A:	Dead ant, dead ant, dead ant dead ant dead ant...
+I fell asleep reading a dull book, and I dreamt that I was reading on,
+so I woke up from sheer boredom.
