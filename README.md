@@ -1,2 +1,1 @@
-I fell asleep reading a dull book, and I dreamt that I was reading on,
-so I woke up from sheer boredom.
+You have a strong appeal for members of your own sex.
