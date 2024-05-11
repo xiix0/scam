@@ -1,2 +1,2 @@
-Q:	What is the difference between Texas and yogurt?
-A:	Yogurt has culture.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
