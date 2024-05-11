@@ -1,1 +1,2 @@
-Your business will go through a period of considerable expansion.
+"... all the modern inconveniences ..."
+		-- Mark Twain
