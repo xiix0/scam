@@ -1,1 +1,1 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+You don't become a failure until you're satisfied with being one.
