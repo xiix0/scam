@@ -1,1 +1,2 @@
-Beware of a tall black man with one blond shoe.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
