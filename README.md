@@ -1,2 +1,2 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
