@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+You're being followed.  Cut out the hanky-panky for a few days.
