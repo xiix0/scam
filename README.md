@@ -1,2 +1,2 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
