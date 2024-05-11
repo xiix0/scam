@@ -1,1 +1,2 @@
-Expect the worst, it's the least you can do.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
