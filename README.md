@@ -1,1 +1,3 @@
-Don't relax!  It's only your tension that's holding you together.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
