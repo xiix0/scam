@@ -1,8 +1,17 @@
-Delores breezed along the surface of her life like a flat stone forever
-skipping along smooth water, rippling reality sporadically but oblivious
-to it consistently, until she finally lost momentum, sank, and due to an
-overdose of flouride as a child which caused her to suffer from chronic
-apathy, doomed herself to lie forever on the floor of her life as useless
-as an appendix and as lonely as a five-hundred pound barbell in a
-steroid-free fitness center.
-		-- Winning sentence, 1990 Bulwer-Lytton bad fiction contest.
+A Tale of Two Cities LITE(tm)
+	-- by Charles Dickens
+
+	A man in love with a girl who loves another man who looks just
+	like him has his head chopped off in France because of a mean
+	lady who knits.
+
+Crime and Punishment LITE(tm)
+	-- by Fyodor Dostoevski
+
+	A man sends a nasty letter to a pawnbroker, but later
+	feels guilty and apologizes.
+
+The Odyssey LITE(tm)
+	-- by Homer
+
+	After working late, a valiant warrior gets lost on his way home.
