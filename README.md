@@ -1,3 +1,1 @@
-It is by the fortune of God that, in this country, we have three benefits:
-freedom of speech, freedom of thought, and the wisdom never to use either.
-		-- Mark Twain
+You will give someone a piece of your mind, which you can ill afford.
