@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
