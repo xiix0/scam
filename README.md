@@ -1,1 +1,2 @@
-You will live a long, healthy, happy life and make bags of money.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
