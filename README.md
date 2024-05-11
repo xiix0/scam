@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Expect the worst, it's the least you can do.
