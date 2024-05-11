@@ -1,1 +1,1 @@
-You have a strong appeal for members of your own sex.
+Your business will go through a period of considerable expansion.
