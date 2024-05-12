@@ -1,1 +1,1 @@
-Do not overtax your powers.
+You shall be rewarded for a dastardly deed.
