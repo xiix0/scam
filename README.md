@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+Your object is to save the world, while still leading a pleasant life.
