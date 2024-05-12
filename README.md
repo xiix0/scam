@@ -1,2 +1,8 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+To be or not to be.
+		-- Shakespeare
+To do is to be.
+		-- Nietzsche
+To be is to do.
+		-- Sartre
+Do be do be do.
+		-- Sinatra
