@@ -1,3 +1,2 @@
-Q:	What do you call the scratches that you get when a female
-	sheep bites you?
-A:	Ewe nicks.
+Q:	How many Harvard MBA's does it take to screw in a light bulb?
+A:	Just one.  He grasps it firmly and the universe revolves around him.
