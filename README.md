@@ -1,2 +1,2 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
