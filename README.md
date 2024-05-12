@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
