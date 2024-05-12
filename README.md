@@ -1,3 +1,1 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+Future looks spotty.  You will spill soup in late evening.
