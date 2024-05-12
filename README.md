@@ -1,3 +1,3 @@
-Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
-are not the person involved.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	What's the difference between a dead dog in the road and a dead
+	lawyer in the road?
+A:	There are skid marks in front of the dog.
