@@ -1,1 +1,2 @@
-You will feel hungry again in another hour.
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
