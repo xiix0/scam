@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+You will inherit some money or a small piece of land.
