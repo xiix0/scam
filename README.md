@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
