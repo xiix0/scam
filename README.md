@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Good news.  Ten weeks from Friday will be a pretty good day.
