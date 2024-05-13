@@ -1,2 +1,2 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
