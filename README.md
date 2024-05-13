@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
