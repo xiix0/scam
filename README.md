@@ -1,1 +1,2 @@
-You will get what you deserve.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
