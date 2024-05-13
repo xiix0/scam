@@ -1,1 +1,2 @@
-You never hesitate to tackle the most difficult problems.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
