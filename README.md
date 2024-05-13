@@ -1,1 +1,1 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Learn to pause -- or nothing worthwhile can catch up to you.
