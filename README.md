@@ -1,1 +1,1 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+Don't look back, the lemmings are gaining on you.
