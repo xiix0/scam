@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+You will be advanced socially, without any special effort on your part.
