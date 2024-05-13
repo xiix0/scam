@@ -1,2 +1,3 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Someone is speaking well of you.
+
+How unusual!
