@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+Don't you wish you had more energy... or less ambition?
