@@ -1,2 +1,2 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
