@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+You will live a long, healthy, happy life and make bags of money.
