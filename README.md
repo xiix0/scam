@@ -1,1 +1,2 @@
-You would if you could but you can't so you won't.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
