@@ -1,1 +1,2 @@
-You could live a better life, if you had a better mind and a better body.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
