@@ -1,1 +1,2 @@
-Chicken Little only has to be right once.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
