@@ -1,1 +1,3 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+Noise proves nothing.  Often a hen who has merely laid an egg cackles
+as if she laid an asteroid.
+		-- Mark Twain
