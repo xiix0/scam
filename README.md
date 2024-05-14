@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+Beware of a dark-haired man with a loud tie.
