@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+Conscience doth make cowards of us all.
+		-- Shakespeare
