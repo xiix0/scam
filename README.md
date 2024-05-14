@@ -1,2 +1,2 @@
-What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+Q:	How many IBM CPU's does it take to do a logical right shift?
+A:	33.  1 to hold the bits and 32 to push the register.
