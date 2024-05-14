@@ -1,1 +1,1 @@
-You will get what you deserve.
+You will become rich and famous unless you don't.
