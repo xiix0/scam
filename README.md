@@ -1,2 +1,1 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+You could live a better life, if you had a better mind and a better body.
