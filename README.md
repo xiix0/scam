@@ -1,4 +1,3 @@
-Q:	What's the difference between the 1950's and the 1980's?
-A:	In the 80's, a man walks into a drugstore and states loudly, "I'd
-	like some condoms," and then, leaning over the counter, whispers,
-	"and some cigarettes."
+Don't go around saying the world owes you a living.  The world owes you
+nothing.  It was here first.
+		-- Mark Twain
