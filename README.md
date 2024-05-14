@@ -1,1 +1,1 @@
-You will be reincarnated as a toad; and you will be much happier.
+Good news.  Ten weeks from Friday will be a pretty good day.
