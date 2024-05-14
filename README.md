@@ -1,1 +1,2 @@
-An exotic journey in downtown Newark is in your future.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
