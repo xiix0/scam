@@ -1,1 +1,2 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
