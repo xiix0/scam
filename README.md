@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+You have an unusual understanding of the problems of human relationships.
