@@ -1,1 +1,1 @@
-Stay the curse.
+An exotic journey in downtown Newark is in your future.
