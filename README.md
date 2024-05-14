@@ -1,2 +1,2 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
