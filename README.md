@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+Alimony and bribes will engage a large share of your wealth.
