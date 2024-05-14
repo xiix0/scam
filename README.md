@@ -1,2 +1,1 @@
-Extreme fear can neither fight nor fly.
-		-- William Shakespeare, "The Rape of Lucrece"
+You're almost as happy as you think you are.
