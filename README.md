@@ -1,2 +1,3 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
