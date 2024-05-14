@@ -1,1 +1,3 @@
-You will never know hunger.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
