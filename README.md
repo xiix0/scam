@@ -1,2 +1,2 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
