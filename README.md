@@ -1,1 +1,1 @@
-You're at the end of the road again.
+Good day for overcoming obstacles.  Try a steeplechase.
