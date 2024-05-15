@@ -1,2 +1,2 @@
-The fashion wears out more apparel than the man.
+Patch griefs with proverbs.
 		-- William Shakespeare, "Much Ado About Nothing"
