@@ -1,3 +1,2 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
