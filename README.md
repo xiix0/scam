@@ -1,3 +1,2 @@
-My only love sprung from my only hate!
-Too early seen unknown, and known too late!
-		-- William Shakespeare, "Romeo and Juliet"
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
