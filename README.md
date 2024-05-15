@@ -1,1 +1,2 @@
-Be careful!  UGLY strikes 9 out of 10!
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
