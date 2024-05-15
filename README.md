@@ -1,8 +1,3 @@
-To be or not to be.
-		-- Shakespeare
-To do is to be.
-		-- Nietzsche
-To be is to do.
-		-- Sartre
-Do be do be do.
-		-- Sinatra
+One of the most striking differences between a cat and a lie is that a cat has
+only nine lives.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
