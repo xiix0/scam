@@ -1,2 +1,2 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
