@@ -1,1 +1,2 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
