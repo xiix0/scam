@@ -1,3 +1,2 @@
-Q:	What does a WASP Mom make for dinner?
-A:	A crisp salad, a hearty soup, a lovely entree, followed by
-	a delicious dessert.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
