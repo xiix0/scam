@@ -1,3 +1,2 @@
-The difference between the right word and the almost right word is the
-difference between lightning and the lightning bug.
-		-- Mark Twain
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
