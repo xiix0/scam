@@ -1,2 +1,2 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
