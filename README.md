@@ -1,2 +1,2 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
