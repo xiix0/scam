@@ -1,1 +1,3 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Q:	What does a WASP Mom make for dinner?
+A:	A crisp salad, a hearty soup, a lovely entree, followed by
+	a delicious dessert.
