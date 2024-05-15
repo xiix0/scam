@@ -1,2 +1,3 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+Q:	Why is it that the more accuracy you demand from an interpolation
+	function, the more expensive it becomes to compute?
+A:	That's the Law of Spline Demand.
