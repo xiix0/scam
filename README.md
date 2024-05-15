@@ -1,2 +1,2 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
