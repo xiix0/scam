@@ -1,1 +1,1 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+An exotic journey in downtown Newark is in your future.
