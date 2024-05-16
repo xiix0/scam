@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+You have an unusual equipment for success.  Be sure to use it properly.
