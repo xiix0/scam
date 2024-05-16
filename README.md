@@ -1,1 +1,2 @@
-You are a very redundant person, that's what kind of person you are.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
