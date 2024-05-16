@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+Courage is your greatest present need.
