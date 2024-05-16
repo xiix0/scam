@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
