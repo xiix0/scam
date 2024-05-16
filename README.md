@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+You may get an opportunity for advancement today.  Watch it!
