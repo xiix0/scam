@@ -1,2 +1,2 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
