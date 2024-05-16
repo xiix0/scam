@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+Beware of a dark-haired man with a loud tie.
