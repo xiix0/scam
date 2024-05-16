@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Don't look back, the lemmings are gaining on you.
