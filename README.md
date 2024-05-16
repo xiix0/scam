@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+You will have good luck and overcome many hardships.
