@@ -1,1 +1,1 @@
-An exotic journey in downtown Newark is in your future.
+You're currently going through a difficult transition period called "Life."
