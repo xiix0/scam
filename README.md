@@ -1,2 +1,3 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+I must have a prodigious quantity of mind; it takes me as much as a
+week sometimes to make it up.
+		-- Mark Twain, "The Innocents Abroad"
