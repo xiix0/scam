@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+Few things are harder to put up with than the annoyance of a good example.
+		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
