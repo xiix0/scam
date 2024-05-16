@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+Good day to let down old friends who need help.
