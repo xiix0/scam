@@ -1,3 +1,3 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
