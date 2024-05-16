@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
