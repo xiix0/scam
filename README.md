@@ -1,2 +1,1 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+If you stand on your head, you will get footprints in your hair.
