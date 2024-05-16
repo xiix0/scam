@@ -1,2 +1,3 @@
-The first thing we do, let's kill all the lawyers.
-		-- Wm. Shakespeare, "Henry VI", Part IV
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
