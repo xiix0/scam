@@ -1,1 +1,2 @@
-You are a bundle of energy, always on the go.
+Q:	Are we not men?
+A:	We are Vaxen.
