@@ -1,2 +1,2 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
