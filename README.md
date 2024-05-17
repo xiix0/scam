@@ -1,2 +1,1 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Is that really YOU that is reading this?
