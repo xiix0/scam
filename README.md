@@ -1,1 +1,2 @@
-You single-handedly fought your way into this hopeless mess.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
