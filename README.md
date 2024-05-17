@@ -1,2 +1,1 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+You are deeply attached to your friends and acquaintances.
