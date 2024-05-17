@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+Your aims are high, and you are capable of much.
