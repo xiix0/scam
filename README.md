@@ -1,1 +1,1 @@
-You're at the end of the road again.
+You single-handedly fought your way into this hopeless mess.
