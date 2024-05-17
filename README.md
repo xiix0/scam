@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+You are not dead yet.  But watch for further reports.
