@@ -1,3 +1,5 @@
-Q:	How many mathematicians does it take to screw in a light bulb?
-A:	One.  He gives it to six Californians, thereby reducing the problem
-	to the earlier joke.
+Q:	How many existentialists does it take to screw in a light bulb?
+A:	Two.  One to screw it in and one to observe how the light bulb
+	itself symbolizes a single incandescent beacon of subjective
+	reality in a netherworld of endless absurdity reaching out toward a
+	maudlin cosmos of nothingness.
