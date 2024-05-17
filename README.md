@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+Your talents will be recognized and suitably rewarded.
