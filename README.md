@@ -1,1 +1,1 @@
-Beware of Bigfoot!
+You will be the victim of a bizarre joke.
