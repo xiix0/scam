@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Avert misunderstanding by calm, poise, and balance.
