@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+You will be advanced socially, without any special effort on your part.
