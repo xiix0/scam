@@ -1,3 +1,2 @@
-Someone is speaking well of you.
-
-How unusual!
+I'll burn my books.
+		-- Christopher Marlowe
