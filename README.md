@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
