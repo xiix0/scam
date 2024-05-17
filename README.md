@@ -1,6 +1,5 @@
-The bay-trees in our country are all wither'd
-And meteors fright the fixed stars of heaven;
-The pale-faced moon looks bloody on the earth
-And lean-look'd prophets whisper fearful change.
-These signs forerun the death or fall of kings.
-		-- Wm. Shakespeare, "Richard II"
+I got a hint of things to come when I overheard my boss lamenting, 'The
+books are done and we still don't have an author! I must sign someone
+today!
+		-- Tamim Ansary, "Edutopia Magazine, Issue 2, November 2004"
+		   on the topic of school textbooks
