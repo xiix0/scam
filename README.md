@@ -1,2 +1,1 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+You feel a whole lot more like you do now than you did when you used to.
