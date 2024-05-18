@@ -1,1 +1,2 @@
-An exotic journey in downtown Newark is in your future.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
