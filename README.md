@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+You will become rich and famous unless you don't.
