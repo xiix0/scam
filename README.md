@@ -1,1 +1,2 @@
-Never commit yourself!  Let someone else commit you.
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
