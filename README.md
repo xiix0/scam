@@ -1,2 +1,1 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Tomorrow, you can be anywhere.
