@@ -1,2 +1,2 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
