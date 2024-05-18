@@ -1,2 +1,2 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
