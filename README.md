@@ -1,1 +1,2 @@
-You will be run over by a bus.
+Q:	What do you call a half-dozen Indians with Asian flu?
+A:	Six sick Sikhs (sic).
