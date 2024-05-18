@@ -1,1 +1,1 @@
-Your boyfriend takes chocolate from strangers.
+You will gain money by an illegal action.
