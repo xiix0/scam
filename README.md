@@ -1,2 +1,1 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+You're working under a slight handicap.  You happen to be human.
