@@ -1,2 +1,2 @@
-When angry, count four; when very angry, swear.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
