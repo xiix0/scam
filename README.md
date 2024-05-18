@@ -1,1 +1,2 @@
-Avoid gunfire in the bathroom tonight.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
