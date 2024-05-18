@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+Things will be bright in P.M.  A cop will shine a light in your face.
