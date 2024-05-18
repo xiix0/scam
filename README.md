@@ -1,1 +1,1 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+You may get an opportunity for advancement today.  Watch it!
