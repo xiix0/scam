@@ -1,2 +1,1 @@
-Kiss me, Kate, we will be married o' Sunday.
-		-- William Shakespeare, "The Taming of the Shrew"
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
