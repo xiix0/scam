@@ -1,2 +1,2 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
