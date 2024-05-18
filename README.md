@@ -1,2 +1,1 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+It may or may not be worthwhile, but it still has to be done.
