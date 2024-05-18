@@ -1,1 +1,2 @@
-Today is National Existential Ennui Awareness Day.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
