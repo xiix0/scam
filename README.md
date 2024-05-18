@@ -1,1 +1,2 @@
-Another good night not to sleep in a eucalyptus tree.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
