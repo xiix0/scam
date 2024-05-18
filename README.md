@@ -1,2 +1,2 @@
-Kiss me, Kate, we will be married o' Sunday.
-		-- William Shakespeare, "The Taming of the Shrew"
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
