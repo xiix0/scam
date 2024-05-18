@@ -1,2 +1,1 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+Today is National Existential Ennui Awareness Day.
