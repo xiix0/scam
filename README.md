@@ -1,1 +1,2 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
