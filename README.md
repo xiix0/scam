@@ -1,2 +1,1 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+You have the power to influence all with whom you come in contact.
