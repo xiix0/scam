@@ -1,3 +1,1 @@
-Soap and education are not as sudden as a massacre, but they are more
-deadly in the long run.
-		-- Mark Twain
+A visit to a strange place will bring fresh work.
