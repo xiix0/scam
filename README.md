@@ -1,2 +1,2 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
