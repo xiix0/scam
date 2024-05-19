@@ -1,1 +1,2 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
