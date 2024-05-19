@@ -1,2 +1,1 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+You will be aided greatly by a person whom you thought to be unimportant.
