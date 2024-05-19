@@ -1,1 +1,2 @@
-You will be married within a year, and divorced within two.
+If you tell the truth you don't have to remember anything.
+		-- Mark Twain
