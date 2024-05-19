@@ -1,1 +1,1 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+Beauty and harmony are as necessary to you as the very breath of life.
