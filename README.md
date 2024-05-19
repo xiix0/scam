@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+Bridge ahead.  Pay troll.
