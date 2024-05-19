@@ -1,1 +1,2 @@
-You are always busy.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
