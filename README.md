@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+You will live a long, healthy, happy life and make bags of money.
