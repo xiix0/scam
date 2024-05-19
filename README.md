@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
