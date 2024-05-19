@@ -1,1 +1,2 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
