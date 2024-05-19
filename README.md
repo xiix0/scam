@@ -1,1 +1,2 @@
-You will be awarded a medal for disregarding safety in saving someone.
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
