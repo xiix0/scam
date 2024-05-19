@@ -1,1 +1,2 @@
-A visit to a strange place will bring fresh work.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
