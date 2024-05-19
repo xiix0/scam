@@ -1,2 +1,2 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
