@@ -1,1 +1,2 @@
-You will be honored for contributing your time and skill to a worthy cause.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
