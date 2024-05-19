@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+You will attract cultured and artistic people to your home.
