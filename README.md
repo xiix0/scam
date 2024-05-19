@@ -1,1 +1,1 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+You will be honored for contributing your time and skill to a worthy cause.
