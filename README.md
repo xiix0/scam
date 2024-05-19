@@ -1,2 +1,1 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+You are a very redundant person, that's what kind of person you are.
