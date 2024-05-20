@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+You like to form new friendships and make new acquaintances.
