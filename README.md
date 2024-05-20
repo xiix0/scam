@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+You will always have good luck in your personal affairs.
