@@ -1,5 +1,6 @@
-I will honour Christmas in my heart, and try to keep it all the year.  I
-will live in the Past, the Present, and the Future.  The Spirits of all
-Three shall strive within me.  I will not shut out the lessons that they
-teach.  Oh, tell me that I may sponge away the writing on this stone!
-		-- Charles Dickens
+The countdown had stalled at 'T' minus 69 seconds when Desiree, the first
+female ape to go up in space, winked at me slyly and pouted her thick,
+rubbery lips unmistakably -- the first of many such advances during what
+would prove to be the longest, and most memorable, space voyage of my
+career.
+		-- Winning sentence, 1985 Bulwer-Lytton bad fiction contest.
