@@ -1,1 +1,2 @@
-You are magnetic in your bearing.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
