@@ -1,2 +1,2 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
