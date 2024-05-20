@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+Change your thoughts and you change your world.
