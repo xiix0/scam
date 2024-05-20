@@ -1,5 +1,3 @@
-Q:	How does the Polish Constitution differ from the American?
-A:	Under the Polish Constitution citizens are guaranteed freedom of
-	speech, but under the United States constitution they are
-	guaranteed freedom after speech.
-		-- being told in Poland, 1987
+Q:	Why do people who live near Niagara Falls have flat foreheads?
+A:	Because every morning they wake up thinking "What *is* that noise?
+	Oh, right, *of course*!
