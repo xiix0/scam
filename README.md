@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
