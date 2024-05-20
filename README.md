@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+Beware of a tall blond man with one black shoe.
