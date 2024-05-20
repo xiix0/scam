@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Don't let your mind wander -- it's too little to be let out alone.
