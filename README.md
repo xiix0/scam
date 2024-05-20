@@ -1,2 +1,2 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
