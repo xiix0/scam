@@ -1,1 +1,2 @@
-Beware of a tall blond man with one black shoe.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
