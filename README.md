@@ -1,1 +1,1 @@
-Tuesday is the Wednesday of the rest of your life.
+Your boyfriend takes chocolate from strangers.
