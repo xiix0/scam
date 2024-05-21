@@ -1,2 +1,2 @@
-You have a reputation for being thoroughly reliable and trustworthy.
-A pity that it's totally undeserved.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
