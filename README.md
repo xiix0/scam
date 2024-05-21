@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+You will be run over by a beer truck.
