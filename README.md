@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+Stay away from flying saucers today.
