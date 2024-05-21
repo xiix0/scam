@@ -1,1 +1,1 @@
-You are as I am with You.
+Your ignorance cramps my conversation.
