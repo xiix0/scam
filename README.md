@@ -1,2 +1,2 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
