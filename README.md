@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+You will reach the highest possible point in your business or profession.
