@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Conscience doth make cowards of us all.
+		-- Shakespeare
