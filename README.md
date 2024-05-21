@@ -1,1 +1,1 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+This will be a memorable month -- no matter how hard you try to forget it.
