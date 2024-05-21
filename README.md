@@ -1,2 +1,1 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+You're being followed.  Cut out the hanky-panky for a few days.
