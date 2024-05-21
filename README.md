@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+After your lover has gone you will still have PEANUT BUTTER!
