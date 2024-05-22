@@ -1,1 +1,3 @@
-It may or may not be worthwhile, but it still has to be done.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
