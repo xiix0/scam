@@ -1,1 +1,2 @@
-Bank error in your favor.  Collect $200.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
