@@ -1,1 +1,1 @@
-You are as I am with You.
+There is a fly on your nose.
