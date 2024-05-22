@@ -1,2 +1,2 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
