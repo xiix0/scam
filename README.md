@@ -1,1 +1,2 @@
-It may or may not be worthwhile, but it still has to be done.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
