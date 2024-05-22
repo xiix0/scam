@@ -1,1 +1,1 @@
-You will get what you deserve.
+Abandon the search for Truth; settle for a good fantasy.
