@@ -1,2 +1,2 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
