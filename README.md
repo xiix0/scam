@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+Bridge ahead.  Pay troll.
