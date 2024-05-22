@@ -1,2 +1,2 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
