@@ -1,1 +1,2 @@
-Is that really YOU that is reading this?
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
