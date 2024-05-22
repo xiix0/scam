@@ -1,2 +1,1 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+Generosity and perfection are your everlasting goals.
