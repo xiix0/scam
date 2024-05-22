@@ -1,2 +1,2 @@
-Q:	What's the difference between Bell Labs and the Boy Scouts of America?
-A:	The Boy Scouts have adult supervision.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
