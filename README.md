@@ -1,2 +1,2 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
