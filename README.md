@@ -1,2 +1,2 @@
-Q:	Why do firemen wear red suspenders?
-A:	To conform with departmental regulations concerning uniform dress.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
