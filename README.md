@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
