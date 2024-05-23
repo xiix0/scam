@@ -1,2 +1,2 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
