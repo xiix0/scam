@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
