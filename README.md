@@ -1,2 +1,2 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
