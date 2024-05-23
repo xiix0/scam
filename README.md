@@ -1,1 +1,2 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
