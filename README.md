@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
