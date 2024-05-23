@@ -1,2 +1,3 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+There is an old time toast which is golden for its beauty.
+"When you ascend the hill of prosperity may you not meet a friend."
+		-- Mark Twain
