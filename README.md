@@ -1,2 +1,1 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+You will reach the highest possible point in your business or profession.
