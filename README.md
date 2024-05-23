@@ -1,2 +1,1 @@
-question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+Avoid gunfire in the bathroom tonight.
