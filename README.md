@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+You will be singled out for promotion in your work.
