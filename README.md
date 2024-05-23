@@ -1,1 +1,1 @@
-You have many friends and very few living enemies.
+Let me put it this way: today is going to be a learning experience.
