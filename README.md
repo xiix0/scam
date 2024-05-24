@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+Alimony and bribes will engage a large share of your wealth.
