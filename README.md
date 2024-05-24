@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+Wagner's music is better than it sounds.
+		-- Mark Twain
