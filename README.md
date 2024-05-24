@@ -1,1 +1,3 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+Someone is speaking well of you.
+
+How unusual!
