@@ -1,1 +1,2 @@
-The time is right to make new friends.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
