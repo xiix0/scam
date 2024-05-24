@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+The time is right to make new friends.
