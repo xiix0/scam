@@ -1,1 +1,2 @@
-You will have long and healthy life.
+Conscience doth make cowards of us all.
+		-- Shakespeare
