@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+Good day for a change of scene.  Repaper the bedroom wall.
