@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+You will not be elected to public office this year.
