@@ -1,2 +1,3 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
