@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+Tuesday After Lunch is the cosmic time of the week.
