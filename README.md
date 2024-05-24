@@ -1,1 +1,1 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+Don't tell any big lies today.  Small ones can be just as effective.
