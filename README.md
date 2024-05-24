@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+You will meet an important person who will help you advance professionally.
