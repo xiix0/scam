@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+Don't get stuck in a closet -- wear yourself out.
