@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+If you sow your wild oats, hope for a crop failure.
