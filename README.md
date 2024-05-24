@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+Future looks spotty.  You will spill soup in late evening.
