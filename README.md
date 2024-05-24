@@ -1,2 +1,1 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Everything will be just tickety-boo today.
