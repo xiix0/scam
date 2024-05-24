@@ -1,2 +1,2 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
