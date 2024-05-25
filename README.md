@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Just to have it is enough.
