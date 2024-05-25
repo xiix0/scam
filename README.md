@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+A gift of a flower will soon be made to you.
