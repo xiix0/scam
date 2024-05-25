@@ -1,3 +1,2 @@
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
-		-- Mark Twain
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
