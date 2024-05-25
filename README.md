@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
