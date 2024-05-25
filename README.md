@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
