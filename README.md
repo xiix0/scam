@@ -1,2 +1,2 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
