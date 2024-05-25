@@ -1,2 +1,1 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+You are the only person to ever get this message.
