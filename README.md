@@ -1,2 +1,2 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
