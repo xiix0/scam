@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+Tonight's the night: Sleep in a eucalyptus tree.
