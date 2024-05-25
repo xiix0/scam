@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+Communicate!  It can't make things any worse.
