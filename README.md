@@ -1,2 +1,2 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
