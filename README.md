@@ -1,1 +1,2 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
