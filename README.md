@@ -1,1 +1,2 @@
-You're working under a slight handicap.  You happen to be human.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
