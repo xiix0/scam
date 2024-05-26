@@ -1,5 +1,3 @@
-We know all about the habits of the ant, we know all about the habits of the
-bee, but we know nothing at all about the habits of the oyster.  It seems
-almost certain that we have been choosing the wrong time for studying the
-oyster.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Grief can take care of itself; but to get the full value of a joy you must
+have somebody to divide it with.
+		-- Mark Twain
