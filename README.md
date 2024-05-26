@@ -1,2 +1,1 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+You seek to shield those you love and you like the role of the provider.
