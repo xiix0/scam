@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+Cheer Up!  Things are getting worse at a slower rate.
