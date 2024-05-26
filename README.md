@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+You will be aided greatly by a person whom you thought to be unimportant.
