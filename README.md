@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
