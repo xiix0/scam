@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
