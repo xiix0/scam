@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
