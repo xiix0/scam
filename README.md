@@ -1,1 +1,2 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
