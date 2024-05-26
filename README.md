@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+Life is to you a dashing and bold adventure.
