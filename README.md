@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+Communicate!  It can't make things any worse.
