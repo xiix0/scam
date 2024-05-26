@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+Domestic happiness and faithful friends.
