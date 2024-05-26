@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
