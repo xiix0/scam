@@ -1,1 +1,3 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+There is no hunting like the hunting of man, and those who have hunted
+armed men long enough and liked it, never care for anything else thereafter.
+		-- Ernest Hemingway
