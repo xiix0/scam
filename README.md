@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
