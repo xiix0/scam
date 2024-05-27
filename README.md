@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+You are the only person to ever get this message.
