@@ -1,2 +1,2 @@
-Kindness is a language which the deaf can hear and the blind can read.
+The Public is merely a multiplied "me."
 		-- Mark Twain
