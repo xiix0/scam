@@ -1,5 +1,1 @@
-Q:	Why did the chicken cross the road?
-A:	To see his friend Gregory peck.
-
-Q:	Why did the chicken cross the playground?
-A:	To get to the other slide.
+You don't become a failure until you're satisfied with being one.
