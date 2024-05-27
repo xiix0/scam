@@ -1,1 +1,2 @@
-You will experience a strong urge to do good; but it will pass.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
