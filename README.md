@@ -1,1 +1,2 @@
-Your lover will never wish to leave you.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
