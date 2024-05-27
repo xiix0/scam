@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+Conscience doth make cowards of us all.
+		-- Shakespeare
