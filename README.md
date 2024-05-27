@@ -1,1 +1,5 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+Knucklehead:	"Knock, knock"
+Pee Wee:	"Who's there?"
+Knucklehead:	"Little ol' lady."
+Pee Wee:	"Liddle ol' lady who?"
+Knucklehead:	"I didn't know you could yodel"
