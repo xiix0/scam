@@ -1,3 +1,2 @@
-The man who sets out to carry a cat by its tail learns something that
-will always be useful and which never will grow dim or doubtful.
+Kindness is a language which the deaf can hear and the blind can read.
 		-- Mark Twain
