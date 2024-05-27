@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
