@@ -1,2 +1,1 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+Your lucky color has faded.
