@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+Tomorrow will be cancelled due to lack of interest.
