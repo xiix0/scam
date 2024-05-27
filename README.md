@@ -1,1 +1,2 @@
-Your lucky color has faded.
+A is for Apple.
+		-- Hester Pryne
