@@ -1,3 +1,1 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+You get along very well with everyone except animals and people.
