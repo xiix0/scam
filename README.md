@@ -1,3 +1,2 @@
-My only love sprung from my only hate!
-Too early seen unknown, and known too late!
-		-- William Shakespeare, "Romeo and Juliet"
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
