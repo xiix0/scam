@@ -1,1 +1,1 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+Expect the worst, it's the least you can do.
