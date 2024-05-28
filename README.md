@@ -1,3 +1,3 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+Perilous to all of us are the devices of an art deeper than we ourselves
+possess.
+		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
