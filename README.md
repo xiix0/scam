@@ -1,1 +1,2 @@
-Are you ever going to do the dishes?  Or will you change your major to biology?
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
