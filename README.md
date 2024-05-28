@@ -1,1 +1,1 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
