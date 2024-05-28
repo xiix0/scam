@@ -1,2 +1,6 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+I've touch'd the highest point of all my greatness;
+And from that full meridian of my glory
+I haste now to my setting.  I shall fall,
+Like a bright exhalation in the evening
+And no man see me more.
+		-- Shakespeare
