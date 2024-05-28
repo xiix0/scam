@@ -1,1 +1,2 @@
-There is a fly on your nose.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
