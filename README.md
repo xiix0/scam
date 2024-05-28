@@ -1,2 +1,1 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Today is the tomorrow you worried about yesterday.
