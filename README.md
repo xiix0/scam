@@ -1,2 +1,3 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
