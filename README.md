@@ -1,1 +1,4 @@
-You will be awarded some great honor.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
