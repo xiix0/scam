@@ -1,2 +1,2 @@
-Q:	How many supply-siders does it take to change a light bulb?
-A:	None.  The darkness will cause the light bulb to change by itself.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
