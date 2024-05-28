@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Good day for a change of scene.  Repaper the bedroom wall.
