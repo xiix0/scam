@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+Think twice before speaking, but don't say "think think click click".
