@@ -1,1 +1,1 @@
-You will be awarded a medal for disregarding safety in saving someone.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
