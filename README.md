@@ -1,2 +1,1 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+Don't feed the bats tonight.
