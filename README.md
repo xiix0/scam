@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+Change your thoughts and you change your world.
