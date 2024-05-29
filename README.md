@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+Don't go surfing in South Dakota for a while.
