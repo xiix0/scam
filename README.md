@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Good day for overcoming obstacles.  Try a steeplechase.
