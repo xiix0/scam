@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+Your supervisor is thinking about you.
