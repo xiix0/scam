@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
