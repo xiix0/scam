@@ -1,1 +1,1 @@
-Love is in the offing.  Be affectionate to one who adores you.
+Living your life is a task so difficult, it has never been attempted before.
