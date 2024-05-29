@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+A visit to a fresh place will bring strange work.
