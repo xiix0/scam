@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+You will have good luck and overcome many hardships.
