@@ -1,1 +1,1 @@
-Chicken Little was right.
+Among the lucky, you are the chosen one.
