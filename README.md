@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+Tomorrow will be cancelled due to lack of interest.
