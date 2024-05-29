@@ -1,1 +1,3 @@
-You will attract cultured and artistic people to your home.
+Grief can take care of itself; but to get the full value of a joy you must
+have somebody to divide it with.
+		-- Mark Twain
