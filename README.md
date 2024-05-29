@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
