@@ -1,2 +1,1 @@
-If you learn one useless thing every day, in a single year you'll learn
-365 useless things.
+You never hesitate to tackle the most difficult problems.
