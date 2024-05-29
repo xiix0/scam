@@ -1,1 +1,2 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
