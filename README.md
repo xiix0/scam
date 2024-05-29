@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+You'd like to do it instantaneously, but that's too slow.
