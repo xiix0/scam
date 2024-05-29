@@ -1,1 +1,2 @@
-You will have a long and boring life.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
