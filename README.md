@@ -1,2 +1,1 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+It's lucky you're going so slowly, because you're going in the wrong direction.
