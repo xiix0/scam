@@ -1,1 +1,1 @@
-You will be reincarnated as a toad; and you will be much happier.
+You will be honored for contributing your time and skill to a worthy cause.
