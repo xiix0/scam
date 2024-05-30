@@ -1,1 +1,5 @@
-Don't relax!  It's only your tension that's holding you together.
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
+
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
