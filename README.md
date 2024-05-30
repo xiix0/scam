@@ -1,1 +1,2 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
