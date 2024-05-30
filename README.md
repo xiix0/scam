@@ -1,1 +1,2 @@
-You have a strong appeal for members of your own sex.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
