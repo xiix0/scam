@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+You definitely intend to start living sometime soon.
