@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Your object is to save the world, while still leading a pleasant life.
