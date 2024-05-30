@@ -1,1 +1,2 @@
-You're almost as happy as you think you are.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
