@@ -1,1 +1,1 @@
-You will be honored for contributing your time and skill to a worthy cause.
+Don't relax!  It's only your tension that's holding you together.
