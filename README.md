@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+Do not overtax your powers.
