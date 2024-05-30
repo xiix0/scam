@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+You have a strong appeal for members of the opposite sex.
