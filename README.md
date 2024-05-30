@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+A visit to a strange place will bring fresh work.
