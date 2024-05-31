@@ -1,2 +1,2 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+You are destined to become the commandant of the fighting men of the
+department of transportation.
