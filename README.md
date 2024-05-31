@@ -1,1 +1,3 @@
-You will be singled out for promotion in your work.
+Someone is speaking well of you.
+
+How unusual!
