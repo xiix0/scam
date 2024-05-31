@@ -1,1 +1,2 @@
-You will always get the greatest recognition for the job you least like.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
