@@ -1,2 +1,2 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
