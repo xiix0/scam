@@ -1,2 +1,2 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
