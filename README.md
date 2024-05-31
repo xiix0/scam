@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+You would if you could but you can't so you won't.
