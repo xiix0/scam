@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+You will obey or molten silver will be poured into your ears.
