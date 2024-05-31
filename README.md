@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Too much is just enough.
+		-- Mark Twain, on whiskey
