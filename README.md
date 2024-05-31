@@ -1,1 +1,2 @@
-Save energy: be apathetic.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
