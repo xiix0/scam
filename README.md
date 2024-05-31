@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+Save energy: be apathetic.
