@@ -1,2 +1,1 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Don't get stuck in a closet -- wear yourself out.
