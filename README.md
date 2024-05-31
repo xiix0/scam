@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+Avoid reality at all costs.
