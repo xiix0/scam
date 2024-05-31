@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+Try to get all of your posthumous medals in advance.
