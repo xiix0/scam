@@ -1,3 +1,1 @@
-My only love sprung from my only hate!
-Too early seen unknown, and known too late!
-		-- William Shakespeare, "Romeo and Juliet"
+You will obey or molten silver will be poured into your ears.
