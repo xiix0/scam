@@ -1,2 +1,5 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
+
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
