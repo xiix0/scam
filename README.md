@@ -1,2 +1,4 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
