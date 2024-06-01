@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+You don't become a failure until you're satisfied with being one.
