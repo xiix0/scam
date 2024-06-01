@@ -1,2 +1,1 @@
-Big book, big bore.
-		-- Callimachus
+Your domestic life may be harmonious.
