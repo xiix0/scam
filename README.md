@@ -1,3 +1,2 @@
-Q:	What's the difference between a dead dog in the road and a dead
-	lawyer in the road?
-A:	There are skid marks in front of the dog.
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
