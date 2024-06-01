@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
