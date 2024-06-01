@@ -1,1 +1,3 @@
-You don't become a failure until you're satisfied with being one.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #19
+A:	To be or not to be.
+Q:	What is the square root of 4b^2?
