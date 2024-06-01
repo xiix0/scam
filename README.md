@@ -1,2 +1,1 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+You are number 6!  Who is number one?
