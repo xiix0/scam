@@ -1,1 +1,2 @@
-You're almost as happy as you think you are.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
