@@ -1,2 +1,1 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
