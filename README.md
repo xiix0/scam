@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+Today is the first day of the rest of the mess.
