@@ -1,1 +1,3 @@
-You will hear good news from one you thought unfriendly to you.
+Questionable day.
+
+Ask somebody something.
