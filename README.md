@@ -1,2 +1,2 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
