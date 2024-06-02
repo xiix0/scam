@@ -1,1 +1,3 @@
-You are magnetic in your bearing.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
