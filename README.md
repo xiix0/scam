@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+You're not my type.  For that matter, you're not even my species!!!
