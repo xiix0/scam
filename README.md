@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
