@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+Don't Worry, Be Happy.
+		-- Meher Baba
