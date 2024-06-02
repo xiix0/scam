@@ -1,1 +1,2 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
