@@ -1,1 +1,2 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
