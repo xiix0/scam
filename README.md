@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
