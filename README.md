@@ -1,1 +1,1 @@
-Don't feed the bats tonight.
+Your life would be very empty if you had nothing to regret.
