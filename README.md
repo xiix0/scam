@@ -1,1 +1,3 @@
-Abandon the search for Truth; settle for a good fantasy.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
