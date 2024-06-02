@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
