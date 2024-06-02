@@ -1,3 +1,5 @@
-When I reflect upon the number of disagreeable people who I know who have gone
-to a better world, I am moved to lead a different life.
+April 1
+
+This is the day upon which we are reminded of what we are on the other three
+hundred and sixty-four.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
