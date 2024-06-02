@@ -1,1 +1,3 @@
-You're not my type.  For that matter, you're not even my species!!!
+Q:	What's the difference between a dead dog in the road and a dead
+	lawyer in the road?
+A:	There are skid marks in front of the dog.
