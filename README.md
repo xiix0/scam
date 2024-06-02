@@ -1,2 +1,2 @@
-The fashion wears out more apparel than the man.
-		-- William Shakespeare, "Much Ado About Nothing"
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
