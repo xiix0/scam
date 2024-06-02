@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+You display the wonderful traits of charm and courtesy.
