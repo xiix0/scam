@@ -1,1 +1,2 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
