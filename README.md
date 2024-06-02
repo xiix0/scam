@@ -1,3 +1,3 @@
-Habit is habit, and not to be flung out of the window by any man, but coaxed
-down-stairs a step at a time.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar
+My only love sprung from my only hate!
+Too early seen unknown, and known too late!
+		-- William Shakespeare, "Romeo and Juliet"
