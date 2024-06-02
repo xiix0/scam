@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+You have a strong appeal for members of the opposite sex.
