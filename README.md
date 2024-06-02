@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+You seek to shield those you love and you like the role of the provider.
