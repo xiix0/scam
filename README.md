@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+You will not be elected to public office this year.
