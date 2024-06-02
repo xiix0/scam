@@ -1,3 +1,1 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+Many changes of mind and mood; do not hesitate too long.
