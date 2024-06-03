@@ -1,2 +1,2 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
