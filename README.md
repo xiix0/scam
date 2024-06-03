@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+Go to a movie tonight.  Darkness becomes you.
