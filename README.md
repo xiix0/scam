@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+There is a 20% chance of tomorrow.
