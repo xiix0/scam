@@ -1,1 +1,2 @@
-Think twice before speaking, but don't say "think think click click".
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
