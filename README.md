@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+A gift of a flower will soon be made to you.
