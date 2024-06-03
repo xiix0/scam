@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+Good news from afar can bring you a welcome visitor.
