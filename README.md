@@ -1,1 +1,2 @@
-Today is National Existential Ennui Awareness Day.
+Conscience doth make cowards of us all.
+		-- Shakespeare
