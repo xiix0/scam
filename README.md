@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
