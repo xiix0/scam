@@ -1,2 +1,2 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
