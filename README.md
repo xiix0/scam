@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
