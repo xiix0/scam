@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Try to have as good a life as you can under the circumstances.
