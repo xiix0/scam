@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+Think twice before speaking, but don't say "think think click click".
