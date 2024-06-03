@@ -1,3 +1,1 @@
-The difference between the right word and the almost right word is the
-difference between lightning and the lightning bug.
-		-- Mark Twain
+Tuesday After Lunch is the cosmic time of the week.
