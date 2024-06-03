@@ -1,1 +1,2 @@
-Abandon the search for Truth; settle for a good fantasy.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
