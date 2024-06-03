@@ -1,5 +1,4 @@
-"I wonder", he said to himself, "what's in a book while it's closed.  Oh, I
-know it's full of letters printed on paper, but all the same, something must
-be happening, because as soon as I open it, there's a whole story with people
-I don't know yet and all kinds of adventures and battles."
-		-- Bastian B. Bux
+Behold, the fool saith, "Put not all thine eggs in the one basket"--which is
+but a manner of saying, "Scatter your money and your attention;" but the wise
+man saith, "Put all your eggs in the one basket and--WATCH THAT BASKET."
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
