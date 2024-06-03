@@ -1,2 +1,3 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+All say, "How hard it is that we have to die"--a strange complaint to come from
+the mouths of people who have had to live.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
