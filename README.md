@@ -1,1 +1,1 @@
-Never give an inch!
+Never look up when dragons fly overhead.
