@@ -1,2 +1,1 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+Your true value depends entirely on what you are compared with.
