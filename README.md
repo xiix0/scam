@@ -1,2 +1,2 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+Big book, big bore.
+		-- Callimachus
