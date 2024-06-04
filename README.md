@@ -1,2 +1,2 @@
-He that is giddy thinks the world turns round.
-		-- William Shakespeare, "The Taming of the Shrew"
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
