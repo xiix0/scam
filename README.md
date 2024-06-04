@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+Don't read any sky-writing for the next two weeks.
