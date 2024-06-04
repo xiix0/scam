@@ -1,1 +1,1 @@
-You are standing on my toes.
+Q:	How do you keep a moron in suspense?
