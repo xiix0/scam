@@ -1,1 +1,1 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Today is the first day of the rest of your life.
