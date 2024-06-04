@@ -1,2 +1,3 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
