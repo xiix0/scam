@@ -1,1 +1,2 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
