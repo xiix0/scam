@@ -1,2 +1,1 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+You have a strong appeal for members of the opposite sex.
