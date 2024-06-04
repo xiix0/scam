@@ -1,1 +1,2 @@
-Fine day to work off excess energy.  Steal something heavy.
+"... all the modern inconveniences ..."
+		-- Mark Twain
