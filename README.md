@@ -1,1 +1,2 @@
-You shall be rewarded for a dastardly deed.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
