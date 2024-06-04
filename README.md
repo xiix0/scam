@@ -1,1 +1,2 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
