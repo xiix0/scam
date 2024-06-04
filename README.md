@@ -1,1 +1,1 @@
-You work very hard.  Don't try to think as well.
+Fine day to work off excess energy.  Steal something heavy.
