@@ -1,1 +1,3 @@
-Q:	How do you keep a moron in suspense?
+Someone is speaking well of you.
+
+How unusual!
