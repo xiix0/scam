@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+You have a deep interest in all that is artistic.
