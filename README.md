@@ -1,2 +1,2 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
