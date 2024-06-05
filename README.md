@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+A tall, dark stranger will have more fun than you.
