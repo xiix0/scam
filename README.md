@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
