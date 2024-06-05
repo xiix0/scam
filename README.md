@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+A gift of a flower will soon be made to you.
