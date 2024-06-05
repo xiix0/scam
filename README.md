@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+Just to have it is enough.
