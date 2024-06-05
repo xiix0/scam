@@ -1,5 +1,2 @@
-Knock, knock!
-	Who's there?
-Sam and Janet.
-	Sam and Janet who?
-Sam and Janet Evening...
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
