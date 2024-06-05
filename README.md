@@ -1,1 +1,2 @@
-You have taken yourself too seriously.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
