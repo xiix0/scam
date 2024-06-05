@@ -1,2 +1,2 @@
-Alas, how love can trifle with itself!
-		-- William Shakespeare, "The Two Gentlemen of Verona"
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
