@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+Among the lucky, you are the chosen one.
