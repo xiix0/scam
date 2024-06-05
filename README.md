@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
