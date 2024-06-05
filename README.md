@@ -1,2 +1,3 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
