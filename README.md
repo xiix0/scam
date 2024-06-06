@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
-A:	Dr. Livingston I. Presume.
-Q:	What's Dr. Presume's full name?
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
