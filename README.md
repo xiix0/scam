@@ -1,1 +1,1 @@
-Chess tonight.
+Tonight's the night: Sleep in a eucalyptus tree.
