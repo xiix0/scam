@@ -1,2 +1,2 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
