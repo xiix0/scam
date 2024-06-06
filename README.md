@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+You are going to have a new love affair.
