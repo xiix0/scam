@@ -1,2 +1,1 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+Cheer Up!  Things are getting worse at a slower rate.
