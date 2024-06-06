@@ -1,1 +1,2 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
