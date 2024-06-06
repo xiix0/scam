@@ -1,2 +1,1 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+A visit to a strange place will bring fresh work.
