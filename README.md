@@ -1,1 +1,2 @@
-You will have good luck and overcome many hardships.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
