@@ -1,2 +1,2 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
