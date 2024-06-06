@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+You're being followed.  Cut out the hanky-panky for a few days.
