@@ -1,1 +1,2 @@
-It's all in the mind, ya know.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
