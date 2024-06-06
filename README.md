@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+Try to value useful qualities in one who loves you.
