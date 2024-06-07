@@ -1,2 +1,1 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+Your business will go through a period of considerable expansion.
