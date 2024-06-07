@@ -1,2 +1,3 @@
-Q:	What's the difference between a Mac and an Etch-a-Sketch?
-A:	You don't have to shake the Mac to clear the screen.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #4
+A:	Go west, young man, go west!
+Q:	What do wabbits do when they get tiwed of wunning awound?
