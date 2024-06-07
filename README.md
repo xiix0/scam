@@ -1,2 +1,1 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+Is that really YOU that is reading this?
