@@ -1,3 +1,3 @@
-Q:	Why do people who live near Niagara Falls have flat foreheads?
-A:	Because every morning they wake up thinking "What *is* that noise?
-	Oh, right, *of course*!
+Q:	How many psychiatrists does it take to change a light bulb?
+A:	Only one, but it takes a long time, and the light bulb has
+	to really want to change.
