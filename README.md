@@ -1,3 +1,2 @@
-You may my glories and my state dispose,
-But not my griefs; still am I king of those.
-		-- William Shakespeare, "Richard II"
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
