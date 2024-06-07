@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
+Be careful of reading health books, you might die of a misprint.
 		-- Mark Twain
