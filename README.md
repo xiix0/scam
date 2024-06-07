@@ -1,2 +1,2 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
