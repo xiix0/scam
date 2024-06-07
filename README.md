@@ -1,2 +1,2 @@
-	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
+Q:	What's the difference between a Mac and an Etch-a-Sketch?
+A:	You don't have to shake the Mac to clear the screen.
