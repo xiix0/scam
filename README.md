@@ -1,1 +1,2 @@
-You're definitely on their list.  The question to ask next is what list it is.
+The Public is merely a multiplied "me."
+		-- Mark Twain
