@@ -1,1 +1,1 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+Your true value depends entirely on what you are compared with.
