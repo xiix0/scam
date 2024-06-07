@@ -1,1 +1,1 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
