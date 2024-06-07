@@ -1,1 +1,2 @@
-An avocado-tone refrigerator would look good on your resume.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
