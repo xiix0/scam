@@ -1,1 +1,3 @@
-Is that really YOU that is reading this?
+You may my glories and my state dispose,
+But not my griefs; still am I king of those.
+		-- William Shakespeare, "Richard II"
