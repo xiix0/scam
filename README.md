@@ -1,5 +1,2 @@
-October 12, the Discovery.
-
-It was wonderful to find America, but it would have been more wonderful to miss
-it.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
