@@ -1,1 +1,5 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+October 12, the Discovery.
+
+It was wonderful to find America, but it would have been more wonderful to miss
+it.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
