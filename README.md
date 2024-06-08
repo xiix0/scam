@@ -1,2 +1,1 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
