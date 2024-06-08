@@ -1,2 +1,2 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
