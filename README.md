@@ -1,1 +1,2 @@
-You will win success in whatever calling you adopt.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
