@@ -1,5 +1,6 @@
-Q:	How many existentialists does it take to screw in a light bulb?
-A:	Two.  One to screw it in and one to observe how the light bulb
-	itself symbolizes a single incandescent beacon of subjective
-	reality in a netherworld of endless absurdity reaching out toward a
-	maudlin cosmos of nothingness.
+	The Priest's grey nimbus in a niche where he dressed discreetly.
+I will not sleep here tonight. Home also I cannot go.
+	A voice, sweetened and sustained, called to him from the sea.
+Turning the curve he waved his hand.  A sleek brown head, a seal's, far
+out on the water, round.  Usurper.
+		-- James Joyce, "Ulysses"
