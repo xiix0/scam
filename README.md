@@ -1,2 +1,2 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
