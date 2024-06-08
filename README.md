@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+You will live a long, healthy, happy life and make bags of money.
