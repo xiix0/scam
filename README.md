@@ -1,5 +1,1 @@
-Q:	What do monsters eat?
-A:	Things.
-
-Q:	What do monsters drink?
-A:	Coke.  (Because Things go better with Coke.)
+You will be a winner today.  Pick a fight with a four-year-old.
