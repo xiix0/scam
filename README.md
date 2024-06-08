@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Your own qualities will help prevent your advancement in the world.
