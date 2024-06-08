@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+You never hesitate to tackle the most difficult problems.
