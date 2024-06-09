@@ -1,1 +1,2 @@
-You will experience a strong urge to do good; but it will pass.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
