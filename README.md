@@ -1,2 +1,2 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
