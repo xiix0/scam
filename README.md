@@ -1,1 +1,1 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+You will experience a strong urge to do good; but it will pass.
