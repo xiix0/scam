@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+Don't relax!  It's only your tension that's holding you together.
