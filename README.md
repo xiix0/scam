@@ -1,1 +1,2 @@
-Don't worry so loud, your roommate can't think.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
