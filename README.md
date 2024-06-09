@@ -1,2 +1,3 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
+for you and me."
+		-- J. R. R. Tolkien
