@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+Your own qualities will help prevent your advancement in the world.
