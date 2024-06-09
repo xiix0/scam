@@ -1,1 +1,2 @@
-Is that really YOU that is reading this?
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
