@@ -1,1 +1,1 @@
-Bank error in your favor.  Collect $200.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
