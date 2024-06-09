@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+Don't kiss an elephant on the lips today.
