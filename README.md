@@ -1,1 +1,2 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
