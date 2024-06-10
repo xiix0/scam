@@ -1,2 +1,2 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
