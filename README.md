@@ -1,1 +1,2 @@
-Executive ability is prominent in your make-up.
+All generalizations are false, including this one.
+		-- Mark Twain
