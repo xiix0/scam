@@ -1,1 +1,2 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
