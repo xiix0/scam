@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+Try to get all of your posthumous medals in advance.
