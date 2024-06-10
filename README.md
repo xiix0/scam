@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
