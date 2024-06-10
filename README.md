@@ -1,2 +1,2 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
