@@ -1,1 +1,1 @@
-Do not overtax your powers.
+Good day to let down old friends who need help.
