@@ -1,2 +1,2 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
