@@ -1,1 +1,1 @@
-You now have Asian Flu.
+Your reasoning powers are good, and you are a fairly good planner.
