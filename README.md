@@ -1,2 +1,2 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
