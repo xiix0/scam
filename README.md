@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Your present plans will be successful.
