@@ -1,1 +1,2 @@
-Your reasoning powers are good, and you are a fairly good planner.
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
