@@ -1,2 +1,3 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
