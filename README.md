@@ -1,3 +1,4 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+Gratitude and treachery are merely the two extremities of the same procession.
+You have seen all of it that is worth staying for when the band and the gaudy
+officials have gone by.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
