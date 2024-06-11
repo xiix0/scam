@@ -1,1 +1,1 @@
-You should go home.
+Beware of low-flying butterflies.
