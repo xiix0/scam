@@ -1,3 +1,2 @@
-Q:	Why should you always serve a Southern Carolina football man
-	soup in a plate?
-A:	'Cause if you give him a bowl, he'll throw it away.
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
