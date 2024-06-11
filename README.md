@@ -1,1 +1,1 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Your heart is pure, and your mind clear, and your soul devout.
