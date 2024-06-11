@@ -1,2 +1,2 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
