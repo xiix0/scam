@@ -1,1 +1,1 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+You will be awarded a medal for disregarding safety in saving someone.
