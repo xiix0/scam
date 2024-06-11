@@ -1,1 +1,1 @@
-You will be divorced within a year.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
