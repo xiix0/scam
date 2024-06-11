@@ -1,4 +1,3 @@
-All I know is what the words know, and dead things, and that
-makes a handsome little sum, with a beginning and a middle and
-an end, as in the well-built phrase and the long sonata of the dead.
-		-- Samuel Beckett
+Q:	Why should you always serve a Southern Carolina football man
+	soup in a plate?
+A:	'Cause if you give him a bowl, he'll throw it away.
