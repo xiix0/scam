@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+Are you making all this up as you go along?
