@@ -1,1 +1,1 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+You will probably marry after a very brief courtship.
