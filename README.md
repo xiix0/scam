@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+You have an unusual understanding of the problems of human relationships.
