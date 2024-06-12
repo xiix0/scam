@@ -1,2 +1,2 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
