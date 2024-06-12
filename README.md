@@ -1,2 +1,2 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
