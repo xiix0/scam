@@ -1,1 +1,2 @@
-You will probably marry after a very brief courtship.
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
