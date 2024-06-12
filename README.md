@@ -1,1 +1,2 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
