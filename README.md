@@ -1,2 +1,3 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
+A:	Easy.  It's because they can't figure out how to get the little
+	bottles into the typewriter.
