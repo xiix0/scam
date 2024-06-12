@@ -1,2 +1,2 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
