@@ -1,1 +1,2 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+Too much is just enough.
+		-- Mark Twain, on whiskey
