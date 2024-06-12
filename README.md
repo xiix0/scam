@@ -1,2 +1,2 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
