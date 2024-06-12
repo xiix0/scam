@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You are as I am with You.
