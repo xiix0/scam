@@ -1,2 +1,1 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+People are beginning to notice you.  Try dressing before you leave the house.
