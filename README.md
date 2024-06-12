@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Avoid reality at all costs.
