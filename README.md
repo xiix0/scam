@@ -1,2 +1,1 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Good news from afar can bring you a welcome visitor.
