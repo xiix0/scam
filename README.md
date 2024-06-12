@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+Today is the tomorrow you worried about yesterday.
