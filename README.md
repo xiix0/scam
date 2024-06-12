@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+Try to value useful qualities in one who loves you.
