@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+So this is it.  We're going to die.
