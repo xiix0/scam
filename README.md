@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+The time is right to make new friends.
