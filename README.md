@@ -1,2 +1,1 @@
-Q:	What's tiny and yellow and very, very, dangerous?
-A:	A canary with the super-user password.
+Write yourself a threatening letter and pen a defiant reply.
