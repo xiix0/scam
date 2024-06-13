@@ -1,3 +1,1 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+In the stairway of life, you'd best take the elevator.
