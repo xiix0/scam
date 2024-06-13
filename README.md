@@ -1,3 +1,1 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+Accent on helpful side of your nature.  Drain the moat.
