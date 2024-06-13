@@ -1,2 +1,1 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+Perfect day for scrubbing the floor and other exciting things.
