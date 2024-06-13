@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Truth will out this morning.  (Which may really mess things up.)
