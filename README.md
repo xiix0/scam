@@ -1,1 +1,2 @@
-Don't you wish you had more energy... or less ambition?
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
