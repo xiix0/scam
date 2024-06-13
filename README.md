@@ -1,1 +1,2 @@
-You have a strong desire for a home and your family interests come first.
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
