@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
