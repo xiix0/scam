@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+Chicken Little only has to be right once.
