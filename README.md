@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+You like to form new friendships and make new acquaintances.
