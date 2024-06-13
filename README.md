@@ -1,1 +1,2 @@
-Are you ever going to do the dishes?  Or will you change your major to biology?
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
