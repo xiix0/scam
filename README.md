@@ -1,1 +1,2 @@
-The time is right to make new friends.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
