@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+Just to have it is enough.
