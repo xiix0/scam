@@ -1,3 +1,2 @@
-Q:	How does a hacker fix a function which
-	doesn't work for all of the elements in its domain?
-A:	He changes the domain.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
