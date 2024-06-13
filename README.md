@@ -1,2 +1,2 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
