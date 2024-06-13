@@ -1,1 +1,3 @@
-You plan things that you do not even attempt because of your extreme caution.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
