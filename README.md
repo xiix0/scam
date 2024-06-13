@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+You plan things that you do not even attempt because of your extreme caution.
