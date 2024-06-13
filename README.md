@@ -1,2 +1,2 @@
-Always the dullness of the fool is the whetstone of the wits.
-		-- William Shakespeare, "As You Like It"
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
