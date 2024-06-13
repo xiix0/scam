@@ -1,1 +1,2 @@
-Go to a movie tonight.  Darkness becomes you.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
