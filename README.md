@@ -1,1 +1,2 @@
-Best of all is never to have been born.  Second best is to die soon.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
