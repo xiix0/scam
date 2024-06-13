@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+Excellent day for putting Slinkies on an escalator.
