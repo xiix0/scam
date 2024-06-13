@@ -1,2 +1,3 @@
-Q:	What's the difference between a Mac and an Etch-a-Sketch?
-A:	You don't have to shake the Mac to clear the screen.
+One of the most striking differences between a cat and a lie is that a cat has
+only nine lives.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
