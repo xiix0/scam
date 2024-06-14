@@ -1,1 +1,2 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+Conscience doth make cowards of us all.
+		-- Shakespeare
