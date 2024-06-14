@@ -1,1 +1,2 @@
-A gift of a flower will soon be made to you.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
