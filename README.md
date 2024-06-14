@@ -1,1 +1,5 @@
-Today is the first day of the rest of the mess.
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
+
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
