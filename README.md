@@ -1,1 +1,1 @@
-You work very hard.  Don't try to think as well.
+Your supervisor is thinking about you.
