@@ -1,2 +1,1 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
