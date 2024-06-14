@@ -1,1 +1,1 @@
-You have a strong appeal for members of your own sex.
+So this is it.  We're going to die.
