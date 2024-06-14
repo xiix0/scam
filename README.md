@@ -1,2 +1,2 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
