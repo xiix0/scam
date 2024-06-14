@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+There is a 20% chance of tomorrow.
