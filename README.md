@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
