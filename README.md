@@ -1,2 +1,2 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
