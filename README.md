@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+Just because the message may never be received does not mean it is
+not worth sending.
