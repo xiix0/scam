@@ -1,3 +1,1 @@
-The difference between a Miracle and a Fact is exactly the difference
-between a mermaid and a seal.
-		-- Mark Twain
+You have the capacity to learn from mistakes.  You'll learn a lot today.
