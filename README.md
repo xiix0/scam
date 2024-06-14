@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+You are so boring that when I see you my feet go to sleep.
