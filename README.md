@@ -1,2 +1,1 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+Your life would be very empty if you had nothing to regret.
