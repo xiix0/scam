@@ -1,1 +1,1 @@
-You will never know hunger.
+You will have long and healthy life.
