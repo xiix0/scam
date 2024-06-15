@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+Never be led astray onto the path of virtue.
