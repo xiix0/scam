@@ -1,2 +1,6 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+Q:	How do you shoot a blue elephant?
+A:	With a blue-elephant gun.
+
+Q:	How do you shoot a pink elephant?
+A:	Twist its trunk until it turns blue, then shoot it with
+	a blue-elephant gun.
