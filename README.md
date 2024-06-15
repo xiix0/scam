@@ -1,1 +1,2 @@
-You are capable of planning your future.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
