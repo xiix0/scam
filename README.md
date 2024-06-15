@@ -1,1 +1,2 @@
-Don't look back, the lemmings are gaining on you.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
