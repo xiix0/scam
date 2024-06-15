@@ -1,2 +1,1 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+You will engage in a profitable business activity.
