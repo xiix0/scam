@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+Future looks spotty.  You will spill soup in late evening.
