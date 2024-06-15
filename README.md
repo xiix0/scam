@@ -1,2 +1,2 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
