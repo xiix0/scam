@@ -1,1 +1,2 @@
-You will always get the greatest recognition for the job you least like.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
