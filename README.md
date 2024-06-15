@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
