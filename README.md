@@ -1,1 +1,2 @@
-It was all so different before everything changed.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
