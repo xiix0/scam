@@ -1,2 +1,2 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
