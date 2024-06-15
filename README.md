@@ -1,1 +1,2 @@
-You will engage in a profitable business activity.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
