@@ -1,1 +1,3 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+Reader, suppose you were an idiot.  And suppose you were a member of
+Congress.  But I repeat myself.
+		-- Mark Twain
