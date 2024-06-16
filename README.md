@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Something's rotten in the state of Denmark.
+		-- Shakespeare
