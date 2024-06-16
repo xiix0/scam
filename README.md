@@ -1,1 +1,2 @@
-You will have long and healthy life.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
