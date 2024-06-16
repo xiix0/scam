@@ -1,1 +1,1 @@
-You plan things that you do not even attempt because of your extreme caution.
+You will inherit some money or a small piece of land.
