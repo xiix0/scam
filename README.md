@@ -1,2 +1,2 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
