@@ -1,2 +1,1 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+You are a fluke of the universe; you have no right to be here.
