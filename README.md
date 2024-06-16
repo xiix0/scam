@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You will be given a post of trust and responsibility.
