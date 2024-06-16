@@ -1,2 +1,1 @@
-Patch griefs with proverbs.
-		-- William Shakespeare, "Much Ado About Nothing"
+Your own qualities will help prevent your advancement in the world.
