@@ -1,2 +1,1 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+You plan things that you do not even attempt because of your extreme caution.
