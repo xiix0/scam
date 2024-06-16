@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
