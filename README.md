@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+Keep it short for pithy sake.
