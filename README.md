@@ -1,3 +1,2 @@
-If you pick up a starving dog and make him prosperous, he will not bite you.
-This is the principal difference between a dog and a man.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Few things are harder to put up with than the annoyance of a good example.
+		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
