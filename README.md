@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+You will forget that you ever knew me.
