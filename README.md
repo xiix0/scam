@@ -1,1 +1,2 @@
-You have a strong appeal for members of the opposite sex.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
