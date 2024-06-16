@@ -1,2 +1,2 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
