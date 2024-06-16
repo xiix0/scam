@@ -1,1 +1,1 @@
-You will always get the greatest recognition for the job you least like.
+You would if you could but you can't so you won't.
