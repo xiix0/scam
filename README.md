@@ -1,2 +1,3 @@
-There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
