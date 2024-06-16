@@ -1,2 +1,2 @@
-Q:	Why do mountain climbers rope themselves together?
-A:	To prevent the sensible ones from going home.
+Your goose is cooked.
+(Your current chick is burned up too!)
