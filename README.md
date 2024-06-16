@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You will engage in a profitable business activity.
