@@ -1,1 +1,2 @@
-You would if you could but you can't so you won't.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
