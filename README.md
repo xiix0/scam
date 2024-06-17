@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+A is for Apple.
+		-- Hester Pryne
