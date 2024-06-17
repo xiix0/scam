@@ -1,2 +1,1 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+You need more time; and you probably always will.
