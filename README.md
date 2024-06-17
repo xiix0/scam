@@ -1,1 +1,2 @@
-You need more time; and you probably always will.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
