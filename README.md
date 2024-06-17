@@ -1,1 +1,1 @@
-You will contract a rare disease.
+You have taken yourself too seriously.
