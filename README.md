@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+You would if you could but you can't so you won't.
