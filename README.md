@@ -1,1 +1,1 @@
-Perfect day for scrubbing the floor and other exciting things.
+Afternoon very favorable for romance.  Try a single person for a change.
