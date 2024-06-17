@@ -1,2 +1,2 @@
-A is for Apple.
-		-- Hester Pryne
+Big book, big bore.
+		-- Callimachus
