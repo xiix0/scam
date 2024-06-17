@@ -1,1 +1,1 @@
-You are as I am with You.
+You will be married within a year, and divorced within two.
