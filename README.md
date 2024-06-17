@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
