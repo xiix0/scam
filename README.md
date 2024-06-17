@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Perfect day for scrubbing the floor and other exciting things.
