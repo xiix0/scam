@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+Your supervisor is thinking about you.
