@@ -1,2 +1,1 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
