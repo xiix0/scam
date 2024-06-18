@@ -1,2 +1,1 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+Live in a world of your own, but always welcome visitors.
