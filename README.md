@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+You will experience a strong urge to do good; but it will pass.
