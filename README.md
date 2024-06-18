@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+Today is the tomorrow you worried about yesterday.
