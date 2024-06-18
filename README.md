@@ -1,2 +1,1 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
