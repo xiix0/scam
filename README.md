@@ -1,1 +1,2 @@
-You may be recognized soon.  Hide.
+Q:	What is the sound of one cat napping?
+A:	Mu.
