@@ -1,2 +1,1 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+You attempt things that you do not even plan because of your extreme stupidity.
