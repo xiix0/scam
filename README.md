@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
