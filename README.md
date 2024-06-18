@@ -1,1 +1,2 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
