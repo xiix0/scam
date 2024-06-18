@@ -1,2 +1,3 @@
-When in doubt, tell the truth.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
 		-- Mark Twain
