@@ -1,2 +1,2 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
