@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You are a bundle of energy, always on the go.
