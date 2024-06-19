@@ -1,2 +1,2 @@
-A is for Apple.
-		-- Hester Pryne
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
