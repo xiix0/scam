@@ -1,2 +1,1 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
