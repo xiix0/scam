@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Accent on helpful side of your nature.  Drain the moat.
