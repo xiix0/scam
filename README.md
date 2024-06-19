@@ -1,1 +1,1 @@
-Accent on helpful side of your nature.  Drain the moat.
+Tomorrow, you can be anywhere.
