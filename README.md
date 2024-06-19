@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
