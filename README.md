@@ -1,3 +1,2 @@
-The difference between the right word and the almost right word is the
-difference between lightning and the lightning bug.
-		-- Mark Twain
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
