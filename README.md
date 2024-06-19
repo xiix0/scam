@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+You will be advanced socially, without any special effort on your part.
