@@ -1,1 +1,1 @@
-You will have a long and boring life.
+Expect a letter from a friend who will ask a favor of you.
