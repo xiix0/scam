@@ -1,2 +1,1 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+You are sick, twisted and perverted.  I like that in a person.
