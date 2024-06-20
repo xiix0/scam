@@ -1,2 +1,2 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+Q:	What do you have when you have a lawyer buried up to his neck in sand?
+A:	Not enough sand.
