@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+Time to be aggressive.  Go after a tattooed Virgo.
