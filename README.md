@@ -1,2 +1,2 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
