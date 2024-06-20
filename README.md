@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+Increased knowledge will help you now.  Have mate's phone bugged.
