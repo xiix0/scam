@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
