@@ -1,2 +1,2 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
