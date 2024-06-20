@@ -1,1 +1,1 @@
-You will have long and healthy life.
+You have taken yourself too seriously.
