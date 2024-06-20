@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+Avert misunderstanding by calm, poise, and balance.
