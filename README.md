@@ -1,1 +1,1 @@
-You never know how many friends you have until you rent a house on the beach.
+Think twice before speaking, but don't say "think think click click".
