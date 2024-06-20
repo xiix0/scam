@@ -1,2 +1,2 @@
-question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
