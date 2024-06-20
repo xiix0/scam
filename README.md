@@ -1,1 +1,1 @@
-Give him an evasive answer.
+You will have a long and boring life.
