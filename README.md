@@ -1,1 +1,2 @@
-If you sow your wild oats, hope for a crop failure.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
