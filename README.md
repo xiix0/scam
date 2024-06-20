@@ -1,1 +1,2 @@
-Think twice before speaking, but don't say "think think click click".
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
