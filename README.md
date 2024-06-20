@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
