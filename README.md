@@ -1,3 +1,3 @@
-Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
-A:	That's proprietary information.  Answer available from AT&T on payment
-	of license fee (binary only).
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
