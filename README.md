@@ -1,1 +1,2 @@
-A day for firm decisions!!!!!  Or is it?
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
