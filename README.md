@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+Your own qualities will help prevent your advancement in the world.
