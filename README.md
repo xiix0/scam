@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+Be security conscious -- National defense is at stake.
