@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+Go to a movie tonight.  Darkness becomes you.
