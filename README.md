@@ -1,1 +1,1 @@
-Condense soup, not books!
+Cold hands, no gloves.
