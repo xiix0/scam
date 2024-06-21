@@ -1,3 +1,2 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
