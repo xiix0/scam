@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Your aim is high and to the right.
