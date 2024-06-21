@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+Avert misunderstanding by calm, poise, and balance.
