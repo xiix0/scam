@@ -1,2 +1,2 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+You will pay for your sins.  If you have already paid, please disregard
+this message.
