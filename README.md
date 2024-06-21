@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
