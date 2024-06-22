@@ -1,2 +1,1 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+This will be a memorable month -- no matter how hard you try to forget it.
