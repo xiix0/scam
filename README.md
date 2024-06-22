@@ -1,3 +1,2 @@
-Don't go around saying the world owes you a living.  The world owes you
-nothing.  It was here first.
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
 		-- Mark Twain
