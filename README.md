@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Wagner's music is better than it sounds.
+		-- Mark Twain
