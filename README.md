@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+You will be advanced socially, without any special effort on your part.
