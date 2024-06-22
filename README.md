@@ -1,1 +1,1 @@
-Are you a turtle?
+Good day for a change of scene.  Repaper the bedroom wall.
