@@ -1,2 +1,1 @@
-You are wise, witty, and wonderful, but you spend too much time reading
-this sort of trash.
+Do nothing unless you must, and when you must act -- hesitate.
