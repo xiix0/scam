@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+You're a card which will have to be dealt with.
