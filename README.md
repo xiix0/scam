@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Your boss is a few sandwiches short of a picnic.
