@@ -1,2 +1,3 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+So so is good, very good, very excellent good:
+and yet it is not; it is but so so.
+		-- William Shakespeare, "As You Like It"
