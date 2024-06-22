@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+What happened last night can happen again.
