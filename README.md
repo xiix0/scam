@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+You will be a winner today.  Pick a fight with a four-year-old.
