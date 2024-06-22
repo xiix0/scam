@@ -1,1 +1,1 @@
-Condense soup, not books!
+Beware of a tall black man with one blond shoe.
