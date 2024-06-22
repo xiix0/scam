@@ -1,5 +1,4 @@
-Q:	How many existentialists does it take to screw in a light bulb?
-A:	Two.  One to screw it in and one to observe how the light bulb
-	itself symbolizes a single incandescent beacon of subjective
-	reality in a netherworld of endless absurdity reaching out toward a
-	maudlin cosmos of nothingness.
+Swerve me?  The path to my fixed purpose is laid with iron rails,
+whereon my soul is grooved to run.  Over unsounded gorges, through
+the rifled hearts of mountains, under torrents' beds, unerringly I rush!
+		-- Captain Ahab, "Moby Dick"
