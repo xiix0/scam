@@ -1,3 +1,2 @@
-Q:	Why do the police always travel in threes?
-A:	One to do the reading, one to do the writing, and the other keeps
-	an eye on the two intellectuals.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
