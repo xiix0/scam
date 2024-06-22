@@ -1,2 +1,2 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
