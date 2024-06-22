@@ -1,1 +1,2 @@
-Alimony and bribes will engage a large share of your wealth.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
