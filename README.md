@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+A is for Apple.
+		-- Hester Pryne
