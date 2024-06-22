@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
