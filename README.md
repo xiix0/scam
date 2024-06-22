@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+Everything will be just tickety-boo today.
