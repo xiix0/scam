@@ -1,1 +1,1 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+Alimony and bribes will engage a large share of your wealth.
