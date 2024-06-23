@@ -1,1 +1,2 @@
-A tall, dark stranger will have more fun than you.
+Big book, big bore.
+		-- Callimachus
