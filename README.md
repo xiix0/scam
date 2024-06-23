@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
