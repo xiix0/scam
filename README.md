@@ -1,1 +1,1 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+You work very hard.  Don't try to think as well.
