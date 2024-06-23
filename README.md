@@ -1,1 +1,2 @@
-A tall, dark stranger will have more fun than you.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
