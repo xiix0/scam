@@ -1,2 +1,3 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
