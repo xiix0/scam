@@ -1,1 +1,2 @@
-Your step will soil many countries.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
