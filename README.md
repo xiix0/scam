@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+A tall, dark stranger will have more fun than you.
