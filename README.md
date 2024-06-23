@@ -1,1 +1,1 @@
-You'll be called to a post requiring ability in handling groups of people.
+You've been leading a dog's life.  Stay off the furniture.
