@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+Reply hazy, ask again later.
