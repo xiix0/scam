@@ -1,1 +1,1 @@
-You'll never be the man your mother was!
+Exercise caution in your daily affairs.
