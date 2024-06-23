@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+You will remember something that you should not have forgotten.
