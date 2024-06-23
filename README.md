@@ -1,1 +1,1 @@
-Accent on helpful side of your nature.  Drain the moat.
+Your business will go through a period of considerable expansion.
