@@ -1,2 +1,2 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
