@@ -1,2 +1,2 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
