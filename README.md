@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+You are sick, twisted and perverted.  I like that in a person.
