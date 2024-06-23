@@ -1,1 +1,2 @@
-You work very hard.  Don't try to think as well.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
