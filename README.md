@@ -1,3 +1,1 @@
-Reader, suppose you were an idiot.  And suppose you were a member of
-Congress.  But I repeat myself.
-		-- Mark Twain
+Your boss climbed the corporate ladder, wrong by wrong.
