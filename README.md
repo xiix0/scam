@@ -1,1 +1,3 @@
-If your life was a horse, you'd have to shoot it.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
+A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
+Q:	Who were the Democratic presidential candidates?
