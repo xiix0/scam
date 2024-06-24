@@ -1,1 +1,3 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
