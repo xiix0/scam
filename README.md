@@ -1,1 +1,2 @@
-You will gain money by an illegal action.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
