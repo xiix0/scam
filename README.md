@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+You'll never be the man your mother was!
