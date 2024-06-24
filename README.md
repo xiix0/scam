@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+Good day to let down old friends who need help.
