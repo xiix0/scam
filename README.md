@@ -1,1 +1,1 @@
-You'll never be the man your mother was!
+You will be called upon to help a friend in trouble.
