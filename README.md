@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Your boss is a few sandwiches short of a picnic.
