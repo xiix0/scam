@@ -1,5 +1,2 @@
-Q:	What do you call a blind pre-historic animal?
-A:	Diyathinkhesaurus.
-
-Q:	What do you call a blind pre-historic animal with a dog?
-A:	Diyathinkhesaurus Rex.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
