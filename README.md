@@ -1,3 +1,8 @@
-This is the first age that's paid much attention to the future, which is a
-little ironic since we may not have one.
-		-- Arthur Clarke
+To be or not to be.
+		-- Shakespeare
+To do is to be.
+		-- Nietzsche
+To be is to do.
+		-- Sartre
+Do be do be do.
+		-- Sinatra
