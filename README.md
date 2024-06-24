@@ -1,1 +1,1 @@
-Long life is in store for you.
+You definitely intend to start living sometime soon.
