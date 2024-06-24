@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+You tread upon my patience.
+		-- William Shakespeare, "Henry IV"
