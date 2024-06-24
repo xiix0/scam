@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+Q:	What is the sound of one cat napping?
+A:	Mu.
