@@ -1,2 +1,1 @@
-If you learn one useless thing every day, in a single year you'll learn
-365 useless things.
+You will be reincarnated as a toad; and you will be much happier.
