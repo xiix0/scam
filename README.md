@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+You are fighting for survival in your own sweet and gentle way.
