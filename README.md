@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
