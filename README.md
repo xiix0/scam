@@ -1,6 +1,6 @@
-In the plot, people came to the land; the land loved them; they worked and
-struggled and had lots of children.  There was a Frenchman who talked funny
-and a greenhorn from England who was a fancy-pants but when it came to the
-crunch he was all courage.  Those novels would make you retch.
-		-- Canadian novelist Robertson Davies, on the generic Canadian
-		   novel.
+Many enraged psychiatrists are inciting a weary butcher.  The butcher is
+weary and tired because he has cut meat and steak and lamb for hours and
+weeks.  He does not desire to chant about anything with raving psychiatrists,
+but he sings about his gingivectomist, he dreams about a single cosmologist,
+he thinks about his dog.  The dog is named Herbert.
+		-- Racter, "The Policeman's Beard is Half-Constructed"
