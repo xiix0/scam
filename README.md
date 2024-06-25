@@ -1,3 +1,1 @@
-Q:	Why does Washington have the most lawyers per capita and
-	New Jersey the most toxic waste dumps?
-A:	God gave New Jersey first choice.
+Living your life is a task so difficult, it has never been attempted before.
