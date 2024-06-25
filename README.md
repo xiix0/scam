@@ -1,2 +1,1 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+There is a fly on your nose.
