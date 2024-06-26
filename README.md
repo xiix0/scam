@@ -1,2 +1,1 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+It may or may not be worthwhile, but it still has to be done.
