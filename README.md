@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+Your domestic life may be harmonious.
