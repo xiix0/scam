@@ -1,1 +1,1 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
