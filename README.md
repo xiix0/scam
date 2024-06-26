@@ -1,2 +1,2 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
