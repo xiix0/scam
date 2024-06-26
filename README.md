@@ -1,1 +1,2 @@
-Your domestic life may be harmonious.
+Q:	Are we not men?
+A:	We are Vaxen.
