@@ -1,2 +1,1 @@
-Q:	What do you have when you have a lawyer buried up to his neck in sand?
-A:	Not enough sand.
+You've been leading a dog's life.  Stay off the furniture.
