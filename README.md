@@ -1,8 +1,5 @@
-For the fashion of Minas Tirith was such that it was built on seven levels,
-each delved into a hill, and about each was set a wall, and in each wall
-was a gate.
-		-- J.R.R. Tolkien, "The Return of the King"
-
-	[Quoted in "VMS Internals and Data Structures", V4.4, when
-	 referring to system overview.]
-
+The only people for me are the mad ones -- the ones who are mad to live,
+mad to talk, mad to be saved, desirous of everything at the same time,
+the ones who never yawn or say a commonplace thing, but burn, burn, burn
+like fabulous yellow Roman candles.
+		-- Jack Kerouac, "On the Road"
