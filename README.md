@@ -1,2 +1,2 @@
-You learn to write as if to someone else because NEXT YEAR YOU WILL BE
-"SOMEONE ELSE."
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
