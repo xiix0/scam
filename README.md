@@ -1,2 +1,1 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+You are so boring that when I see you my feet go to sleep.
