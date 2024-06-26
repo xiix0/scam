@@ -1,1 +1,2 @@
-Your own qualities will help prevent your advancement in the world.
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
