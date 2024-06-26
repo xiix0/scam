@@ -1,2 +1,1 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+Beware of a tall blond man with one black shoe.
