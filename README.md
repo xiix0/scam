@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
