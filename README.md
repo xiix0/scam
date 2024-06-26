@@ -1,1 +1,1 @@
-You dialed 5483.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
