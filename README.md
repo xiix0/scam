@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+You will step on the night soil of many countries.
