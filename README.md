@@ -1,2 +1,2 @@
-When angry, count four; when very angry, swear.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
