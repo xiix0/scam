@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+Life is to you a dashing and bold adventure.
