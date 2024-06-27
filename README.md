@@ -1,1 +1,2 @@
-You are not dead yet.  But watch for further reports.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
