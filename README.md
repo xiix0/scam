@@ -1,1 +1,1 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+Are you ever going to do the dishes?  Or will you change your major to biology?
