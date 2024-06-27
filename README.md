@@ -1,2 +1,1 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+You're definitely on their list.  The question to ask next is what list it is.
