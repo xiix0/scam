@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Your present plans will be successful.
