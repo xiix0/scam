@@ -1,1 +1,1 @@
-Don't let your mind wander -- it's too little to be let out alone.
+You get along very well with everyone except animals and people.
