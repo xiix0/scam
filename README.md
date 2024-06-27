@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+You will be reincarnated as a toad; and you will be much happier.
