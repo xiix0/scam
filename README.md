@@ -1,3 +1,3 @@
-All say, "How hard it is that we have to die"--a strange complaint to come from
-the mouths of people who have had to live.
+It were not best that we should all think alike; it is difference of opinion
+that makes horse-races.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
