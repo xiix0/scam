@@ -1,2 +1,2 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
