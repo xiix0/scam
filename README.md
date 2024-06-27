@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+Your boss climbed the corporate ladder, wrong by wrong.
