@@ -1,3 +1,2 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+Q:	How many supply-siders does it take to change a light bulb?
+A:	None.  The darkness will cause the light bulb to change by itself.
