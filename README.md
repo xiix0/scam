@@ -1,2 +1,1 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
