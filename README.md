@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+You will engage in a profitable business activity.
