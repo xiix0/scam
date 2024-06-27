@@ -1,3 +1,2 @@
-Have a place for everything and keep the thing somewhere else; this is not
-advice, it is merely custom.
-		-- Mark Twain
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
