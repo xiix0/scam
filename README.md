@@ -1,1 +1,2 @@
-You get along very well with everyone except animals and people.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
