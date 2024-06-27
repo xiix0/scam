@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Truth will out this morning.  (Which may really mess things up.)
