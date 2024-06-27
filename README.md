@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+Beware of a tall blond man with one black shoe.
