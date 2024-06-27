@@ -1,2 +1,3 @@
-This night methinks is but the daylight sick.
-		-- William Shakespeare, "The Merchant of Venice"
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
+A:	The Royal Canadian Mounted Police.
+Q:	What was the greatest achievement in taxidermy?
