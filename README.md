@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
