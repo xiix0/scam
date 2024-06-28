@@ -1,3 +1,2 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+Q:	What do you call a half-dozen Indians with Asian flu?
+A:	Six sick Sikhs (sic).
