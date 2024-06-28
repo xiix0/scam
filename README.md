@@ -1,2 +1,3 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
+Its name is Public Opinion.  It is held in reverence.  It settles everything.
+Some think it is the voice of God.
 		-- Mark Twain
