@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+You will have domestic happiness and faithful friends.
