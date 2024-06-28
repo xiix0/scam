@@ -1,1 +1,1 @@
-You enjoy the company of other people.
+Your boss is a few sandwiches short of a picnic.
