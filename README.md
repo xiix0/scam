@@ -1,1 +1,1 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+You need no longer worry about the future.  This time tomorrow you'll be dead.
