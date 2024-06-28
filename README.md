@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+You will receive a legacy which will place you above want.
