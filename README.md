@@ -1,1 +1,1 @@
-Of course you have a purpose -- to find a purpose.
+Your mode of life will be changed for the better because of new developments.
