@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+Day of inquiry.  You will be subpoenaed.
