@@ -1,3 +1,2 @@
-Don't go around saying the world owes you a living.  The world owes you
-nothing.  It was here first.
-		-- Mark Twain
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
