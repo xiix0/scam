@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+Reply hazy, ask again later.
