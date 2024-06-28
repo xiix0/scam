@@ -1,3 +1,5 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+April 1
+
+This is the day upon which we are reminded of what we are on the other three
+hundred and sixty-four.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
