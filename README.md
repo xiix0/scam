@@ -1,3 +1,2 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
