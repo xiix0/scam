@@ -1,1 +1,3 @@
-You need more time; and you probably always will.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
