@@ -1,2 +1,1 @@
-As to the Adjective: when in doubt, strike it out.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You will hear good news from one you thought unfriendly to you.
