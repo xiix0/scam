@@ -1,1 +1,2 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+After all, all he did was string together a lot of old, well-known quotations.
+		-- H. L. Mencken, on Shakespeare
