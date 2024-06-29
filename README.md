@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
