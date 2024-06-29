@@ -1,1 +1,2 @@
-The time is right to make new friends.
+Your goose is cooked.
+(Your current chick is burned up too!)
