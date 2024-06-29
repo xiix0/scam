@@ -1,2 +1,1 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+If you sow your wild oats, hope for a crop failure.
