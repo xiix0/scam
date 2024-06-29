@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
