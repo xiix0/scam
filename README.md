@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+Beware of a tall black man with one blond shoe.
