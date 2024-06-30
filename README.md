@@ -1,3 +1,2 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
