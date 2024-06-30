@@ -1,2 +1,1 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+You will be awarded the Nobel Peace Prize... posthumously.
