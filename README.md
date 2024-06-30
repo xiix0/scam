@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Best of all is never to have been born.  Second best is to die soon.
