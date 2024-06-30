@@ -1,1 +1,2 @@
-Don't read any sky-writing for the next two weeks.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
