@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+You will attract cultured and artistic people to your home.
