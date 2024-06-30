@@ -1,1 +1,2 @@
-Don't read any sky-writing for the next two weeks.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
