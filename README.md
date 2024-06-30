@@ -1,2 +1,1 @@
-There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+Abandon the search for Truth; settle for a good fantasy.
