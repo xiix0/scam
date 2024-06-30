@@ -1,2 +1,1 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+It's lucky you're going so slowly, because you're going in the wrong direction.
