@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+You need no longer worry about the future.  This time tomorrow you'll be dead.
