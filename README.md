@@ -1,1 +1,2 @@
-All the troubles you have will pass away very quickly.
+Q:	What do you call a half-dozen Indians with Asian flu?
+A:	Six sick Sikhs (sic).
