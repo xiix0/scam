@@ -1,2 +1,2 @@
-Q:	What do you have when you have a lawyer buried up to his neck in sand?
-A:	Not enough sand.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
