@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+Let me put it this way: today is going to be a learning experience.
