@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+You will be advanced socially, without any special effort on your part.
