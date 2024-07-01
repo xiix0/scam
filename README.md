@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+Try to value useful qualities in one who loves you.
