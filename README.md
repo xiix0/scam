@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+Learn to pause -- or nothing worthwhile can catch up to you.
