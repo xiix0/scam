@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+Excellent day for putting Slinkies on an escalator.
