@@ -1,2 +1,1 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+You need no longer worry about the future.  This time tomorrow you'll be dead.
