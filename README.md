@@ -1,1 +1,2 @@
-Never give an inch!
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
