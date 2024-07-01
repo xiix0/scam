@@ -1,1 +1,2 @@
-Beware of Bigfoot!
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
