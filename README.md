@@ -1,1 +1,2 @@
-You are capable of planning your future.
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
