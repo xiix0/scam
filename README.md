@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+Long life is in store for you.
