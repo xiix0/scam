@@ -1,2 +1,3 @@
-Q:	How many IBM CPU's does it take to do a logical right shift?
-A:	33.  1 to hold the bits and 32 to push the register.
+I don't know half of you half as well as I should like; and I like less
+than half of you half as well as you deserve.
+		-- J. R. R. Tolkien
