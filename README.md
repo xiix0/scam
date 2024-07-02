@@ -1,1 +1,2 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
