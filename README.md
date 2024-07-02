@@ -1,2 +1,1 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+You have an ambitious nature and may make a name for yourself.
