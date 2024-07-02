@@ -1,1 +1,2 @@
-You like to form new friendships and make new acquaintances.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
