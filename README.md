@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+You have an ability to sense and know higher truth.
