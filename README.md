@@ -1,1 +1,1 @@
-Don't feed the bats tonight.
+Write yourself a threatening letter and pen a defiant reply.
