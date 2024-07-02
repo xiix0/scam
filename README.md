@@ -1,1 +1,2 @@
-Long life is in store for you.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
