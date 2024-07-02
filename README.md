@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
