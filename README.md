@@ -1,1 +1,2 @@
-You are fairminded, just and loving.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
