@@ -1,2 +1,2 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
