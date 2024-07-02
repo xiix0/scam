@@ -1,5 +1,2 @@
-Q:	How does the Polish Constitution differ from the American?
-A:	Under the Polish Constitution citizens are guaranteed freedom of
-	speech, but under the United States constitution they are
-	guaranteed freedom after speech.
-		-- being told in Poland, 1987
+Q:	How many IBM CPU's does it take to do a logical right shift?
+A:	33.  1 to hold the bits and 32 to push the register.
