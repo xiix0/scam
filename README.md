@@ -1,2 +1,2 @@
-You are wise, witty, and wonderful, but you spend too much time reading
-this sort of trash.
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
