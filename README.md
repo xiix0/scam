@@ -1,1 +1,1 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+You are capable of planning your future.
