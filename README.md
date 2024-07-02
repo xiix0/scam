@@ -1,1 +1,2 @@
-You will always have good luck in your personal affairs.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
