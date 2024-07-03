@@ -1,1 +1,2 @@
-Don't kiss an elephant on the lips today.
+If you tell the truth you don't have to remember anything.
+		-- Mark Twain
