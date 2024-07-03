@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+You will obey or molten silver will be poured into your ears.
