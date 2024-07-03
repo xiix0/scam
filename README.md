@@ -1,3 +1,3 @@
-Q:	Why does Washington have the most lawyers per capita and
-	New Jersey the most toxic waste dumps?
-A:	God gave New Jersey first choice.
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
