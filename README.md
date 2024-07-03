@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+You're definitely on their list.  The question to ask next is what list it is.
