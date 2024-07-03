@@ -1,1 +1,2 @@
-You like to form new friendships and make new acquaintances.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
