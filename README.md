@@ -1,1 +1,2 @@
-You will inherit millions of dollars.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
