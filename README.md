@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+You prefer the company of the opposite sex, but are well liked by your own.
