@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+Don't kiss an elephant on the lips today.
