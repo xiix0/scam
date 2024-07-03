@@ -1,2 +1,2 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
