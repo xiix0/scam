@@ -1,14 +1,5 @@
-Q:	How many elephants can you fit in a VW Bug?
-A:	Four.  Two in the front, two in the back.
-
-Q:	How can you tell if an elephant is in your refrigerator?
-A:	There's a footprint in the mayo.
-
-Q:	How can you tell if two elephants are in your refrigerator?
-A:	There's two footprints in the mayo.
-
-Q:	How can you tell if three elephants are in your refrigerator?
-A:	The door won't shut.
-
-Q:	How can you tell if four elephants are in your refrigerator?
-A:	There's a VW Bug in your driveway.
+We should be careful to get out of an experience only the wisdom that is
+in it - and stay there, lest we be like the cat that sits down on a hot
+stove-lid.  She will never sit down on a hot stove-lid again - and that
+is well; but also she will never sit down on a cold one any more.
+		-- Mark Twain
