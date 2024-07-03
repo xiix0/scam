@@ -1,22 +1,12 @@
-The Least Perceptive Literary Critic
-	The most important critic in our field of study is Lord Halifax.  A
-most individual judge of poetry, he once invited Alexander Pope round to
-give a public reading of his latest poem.
-	Pope, the leading poet of his day, was greatly surprised when Lord
-Halifax stopped him four or five times and said, "I beg your pardon, Mr.
-Pope, but there is something in that passage that does not quite please me."
-	Pope was rendered speechless, as this fine critic suggested sizeable
-and unwise emendations to his latest masterpiece.  "Be so good as to mark
-the place and consider at your leisure.  I'm sure you can give it a better
-turn."
-	After the reading, a good friend of Lord Halifax, a certain Dr.
-Garth, took the stunned Pope to one side.  "There is no need to touch the
-lines," he said.  "All you need do is leave them just as they are, call on
-Lord Halifax two or three months hence, thank him for his kind observation
-on those passages, and then read them to him as altered.  I have known him
-much longer than you have, and will be answerable for the event."
-	Pope took his advice, called on Lord Halifax and read the poem
-exactly as it was before.  His unique critical faculties had lost none of
-their edge.  "Ay", he commented, "now they are perfectly right.  Nothing can
-be better."
+The Least Successful Collector
+	Betsy Baker played a central role in the history of collecting.  She
+was employed as a servant in the house of John Warburton (1682-1759) who had
+amassed a fine collection of 58 first edition plays, including most of the
+works of Shakespeare.
+	One day Warburton returned home to find 55 of them charred beyond
+legibility.  Betsy had either burned them or used them as pie bottoms.  The
+remaining three folios are now in the British Museum.
+	The only comparable literary figure was the maid who in 1835 burned
+the manuscript of the first volume of Thomas Carlyle's "The Hisory of the
+French Revolution", thinking it was wastepaper.
 		-- Stephen Pile, "The Book of Heroic Failures"
