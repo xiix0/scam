@@ -1,2 +1,2 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+When in doubt, tell the truth.
+		-- Mark Twain
