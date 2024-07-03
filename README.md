@@ -1,1 +1,2 @@
-You possess a mind not merely twisted, but actually sprained.
+The Public is merely a multiplied "me."
+		-- Mark Twain
