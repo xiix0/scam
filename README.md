@@ -1,2 +1,1 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+Learn to pause -- or nothing worthwhile can catch up to you.
