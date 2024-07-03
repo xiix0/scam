@@ -1,1 +1,2 @@
-There will be big changes for you but you will be happy.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
