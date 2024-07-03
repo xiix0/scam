@@ -1,5 +1,4 @@
-We should be careful to get out of an experience only the wisdom that is
-in it - and stay there, lest we be like the cat that sits down on a hot
-stove-lid.  She will never sit down on a hot stove-lid again - and that
-is well; but also she will never sit down on a cold one any more.
-		-- Mark Twain
+It is easy to find fault, if one has that disposition.  There was once a man
+who, not being able to find any other fault with his coal, complained that
+there were too many prehistoric toads in it.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
