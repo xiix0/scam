@@ -1,2 +1,1 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+Communicate!  It can't make things any worse.
