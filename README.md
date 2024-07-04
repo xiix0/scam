@@ -1,2 +1,2 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
