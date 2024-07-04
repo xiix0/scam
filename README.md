@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+This will be a memorable month -- no matter how hard you try to forget it.
