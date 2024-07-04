@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
