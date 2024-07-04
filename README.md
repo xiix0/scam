@@ -1,2 +1,1 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+You're working under a slight handicap.  You happen to be human.
