@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+Your life would be very empty if you had nothing to regret.
