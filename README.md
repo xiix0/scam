@@ -1,5 +1,3 @@
-Q:	What do you call a blind pre-historic animal?
-A:	Diyathinkhesaurus.
-
-Q:	What do you call a blind pre-historic animal with a dog?
-A:	Diyathinkhesaurus Rex.
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
