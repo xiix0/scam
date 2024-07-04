@@ -1,2 +1,2 @@
-Q:	What is the difference between Texas and yogurt?
-A:	Yogurt has culture.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
