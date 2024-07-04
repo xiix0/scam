@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+Love is in the offing.  Be affectionate to one who adores you.
