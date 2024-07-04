@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+You have a strong desire for a home and your family interests come first.
