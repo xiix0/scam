@@ -1,1 +1,2 @@
-You possess a mind not merely twisted, but actually sprained.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
