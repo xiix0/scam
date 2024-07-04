@@ -1,1 +1,5 @@
-You're definitely on their list.  The question to ask next is what list it is.
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
+
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
