@@ -1,3 +1,2 @@
-Questionable day.
-
-Ask somebody something.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
