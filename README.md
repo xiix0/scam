@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Your supervisor is thinking about you.
