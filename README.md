@@ -1,2 +1,2 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+Q:	What do little WASPs want to be when they grow up?
+A:	The very best person they can possibly be.
