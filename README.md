@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+You will live a long, healthy, happy life and make bags of money.
