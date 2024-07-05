@@ -1,1 +1,2 @@
-You are only young once, but you can stay immature indefinitely.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
