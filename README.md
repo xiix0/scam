@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+You are only young once, but you can stay immature indefinitely.
