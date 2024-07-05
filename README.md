@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+You are capable of planning your future.
