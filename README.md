@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+If you sow your wild oats, hope for a crop failure.
