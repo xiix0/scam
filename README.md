@@ -1,1 +1,2 @@
-You can rent this space for only $5 a week.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
