@@ -1,2 +1,2 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
