@@ -1,1 +1,2 @@
-You work very hard.  Don't try to think as well.
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
