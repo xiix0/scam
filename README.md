@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+Your present plans will be successful.
