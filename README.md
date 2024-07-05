@@ -1,3 +1,2 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
