@@ -1,1 +1,2 @@
-If you sow your wild oats, hope for a crop failure.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
