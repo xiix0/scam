@@ -1,5 +1,3 @@
-We know all about the habits of the ant, we know all about the habits of the
-bee, but we know nothing at all about the habits of the oyster.  It seems
-almost certain that we have been choosing the wrong time for studying the
-oyster.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
+A:	That's proprietary information.  Answer available from AT&T on payment
+	of license fee (binary only).
