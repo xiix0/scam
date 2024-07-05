@@ -1,3 +1,3 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #19
-A:	To be or not to be.
-Q:	What is the square root of 4b^2?
+Q:	What do you call a WASP who doesn't work for his father, isn't a
+	lawyer, and believes in social causes?
+A:	A failure.
