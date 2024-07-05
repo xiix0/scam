@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+Perfect day for scrubbing the floor and other exciting things.
