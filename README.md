@@ -1,2 +1,1 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+You plan things that you do not even attempt because of your extreme caution.
