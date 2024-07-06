@@ -1,1 +1,2 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
