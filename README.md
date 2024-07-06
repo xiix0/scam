@@ -1,2 +1,1 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+You're a card which will have to be dealt with.
