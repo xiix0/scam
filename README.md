@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Beware the one behind you.
