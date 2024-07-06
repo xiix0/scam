@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
