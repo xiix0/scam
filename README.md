@@ -1,4 +1,5 @@
-Behold, the fool saith, "Put not all thine eggs in the one basket"--which is
-but a manner of saying, "Scatter your money and your attention;" but the wise
-man saith, "Put all your eggs in the one basket and--WATCH THAT BASKET."
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+The notes blatted skyward as they rose over the Canada geese, feathered
+rumps mooning the day, webbed appendages frantically pedaling unseen
+bicycles in their search for sustenance, driven by cruel Nature's maxim,
+'Ya wanna eat, ya gotta work,' and at last I knew Pittsburgh.
+		-- Winning sentence, 1987 Bulwer-Lytton bad fiction contest.
