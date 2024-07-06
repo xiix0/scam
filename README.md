@@ -1,1 +1,1 @@
-You definitely intend to start living sometime soon.
+You are going to have a new love affair.
