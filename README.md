@@ -1,2 +1,1 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+Don't let your mind wander -- it's too little to be let out alone.
