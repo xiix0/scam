@@ -1,2 +1,2 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
