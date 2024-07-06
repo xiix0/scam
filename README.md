@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+Change your thoughts and you change your world.
