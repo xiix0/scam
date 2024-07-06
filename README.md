@@ -1,1 +1,1 @@
-Beware the one behind you.
+Change your thoughts and you change your world.
