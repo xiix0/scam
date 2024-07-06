@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+Beware the one behind you.
