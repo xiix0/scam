@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
