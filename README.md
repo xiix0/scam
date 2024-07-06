@@ -1,2 +1,2 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
