@@ -1,2 +1,2 @@
-Small things make base men proud.
+Having nothing, nothing can he lose.
 		-- William Shakespeare, "Henry VI"
