@@ -1,2 +1,1 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+Don't tell any big lies today.  Small ones can be just as effective.
