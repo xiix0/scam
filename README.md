@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+Good day to let down old friends who need help.
