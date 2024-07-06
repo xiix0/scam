@@ -1,1 +1,2 @@
-Change your thoughts and you change your world.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
