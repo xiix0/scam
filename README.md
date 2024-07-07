@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Are you sure the back door is locked?
