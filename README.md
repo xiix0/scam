@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+The time is right to make new friends.
