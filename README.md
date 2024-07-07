@@ -1,1 +1,2 @@
-You have been selected for a secret mission.
+The Public is merely a multiplied "me."
+		-- Mark Twain
