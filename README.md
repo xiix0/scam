@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+Your present plans will be successful.
