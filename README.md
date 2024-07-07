@@ -1,2 +1,2 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
