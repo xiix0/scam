@@ -1,2 +1,2 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
