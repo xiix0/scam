@@ -1,1 +1,3 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
