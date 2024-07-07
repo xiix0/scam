@@ -1,2 +1,1 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+It's lucky you're going so slowly, because you're going in the wrong direction.
