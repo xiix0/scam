@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
