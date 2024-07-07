@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Good news from afar can bring you a welcome visitor.
