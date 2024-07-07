@@ -1,2 +1,2 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
