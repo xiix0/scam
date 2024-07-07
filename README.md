@@ -1,1 +1,2 @@
-You will attract cultured and artistic people to your home.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
