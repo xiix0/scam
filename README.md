@@ -1,1 +1,2 @@
-Of course you have a purpose -- to find a purpose.
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
