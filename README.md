@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+You will overcome the attacks of jealous associates.
