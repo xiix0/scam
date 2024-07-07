@@ -1,1 +1,2 @@
-Just to have it is enough.
+Conscience doth make cowards of us all.
+		-- Shakespeare
