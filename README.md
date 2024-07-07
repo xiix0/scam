@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+You will attract cultured and artistic people to your home.
