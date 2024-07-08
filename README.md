@@ -1,2 +1,1 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+Your object is to save the world, while still leading a pleasant life.
