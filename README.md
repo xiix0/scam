@@ -1,1 +1,2 @@
-You will remember something that you should not have forgotten.
+Your goose is cooked.
+(Your current chick is burned up too!)
