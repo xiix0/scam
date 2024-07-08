@@ -1,3 +1,2 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+Q:	What's the difference betweeen USL and the Graf Zeppelin?
+A:	The Graf Zeppelin represented cutting edge technology for its time.
