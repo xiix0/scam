@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
