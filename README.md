@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Change your thoughts and you change your world.
