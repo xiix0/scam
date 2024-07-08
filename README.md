@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+Go to a movie tonight.  Darkness becomes you.
