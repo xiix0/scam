@@ -1,1 +1,2 @@
-Many pages make a thick book.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
