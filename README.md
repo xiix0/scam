@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+You will wish you hadn't.
