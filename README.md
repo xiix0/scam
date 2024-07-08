@@ -1,1 +1,2 @@
-You will always have good luck in your personal affairs.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
