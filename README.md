@@ -1,3 +1,3 @@
-Grief can take care of itself; but to get the full value of a joy you must
-have somebody to divide it with.
-		-- Mark Twain
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
