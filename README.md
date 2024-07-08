@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Be security conscious -- National defense is at stake.
