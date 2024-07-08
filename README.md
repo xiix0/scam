@@ -1,2 +1,6 @@
-Q:	What do you get when you cross a mobster with an international standard?
-A:	You get someone who makes you an offer that you can't understand!
+Q:	How do you shoot a blue elephant?
+A:	With a blue-elephant gun.
+
+Q:	How do you shoot a pink elephant?
+A:	Twist its trunk until it turns blue, then shoot it with
+	a blue-elephant gun.
