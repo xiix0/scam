@@ -1,1 +1,1 @@
-You feel a whole lot more like you do now than you did when you used to.
+You will always have good luck in your personal affairs.
