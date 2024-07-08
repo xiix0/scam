@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
