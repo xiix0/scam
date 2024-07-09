@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
