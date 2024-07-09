@@ -1,1 +1,2 @@
-Your object is to save the world, while still leading a pleasant life.
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
