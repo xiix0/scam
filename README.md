@@ -1,2 +1,2 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
