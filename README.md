@@ -1,6 +1,5 @@
-Many enraged psychiatrists are inciting a weary butcher.  The butcher is
-weary and tired because he has cut meat and steak and lamb for hours and
-weeks.  He does not desire to chant about anything with raving psychiatrists,
-but he sings about his gingivectomist, he dreams about a single cosmologist,
-he thinks about his dog.  The dog is named Herbert.
-		-- Racter, "The Policeman's Beard is Half-Constructed"
+Q:	Why is Poland just like the United States?
+A:	In the United States you can't buy anything for zlotys and in
+	Poland you can't either, while in the U.S. you can get whatever
+	you want for dollars, just as you can in Poland.
+		-- being told in Poland, 1987
