@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+Avoid gunfire in the bathroom tonight.
