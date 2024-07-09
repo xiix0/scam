@@ -1,1 +1,2 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
