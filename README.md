@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+You will have good luck and overcome many hardships.
