@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
