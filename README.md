@@ -1,2 +1,1 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
