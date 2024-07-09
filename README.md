@@ -1,1 +1,2 @@
-You may get an opportunity for advancement today.  Watch it!
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
