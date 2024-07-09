@@ -1,1 +1,2 @@
-You have a strong desire for a home and your family interests come first.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
