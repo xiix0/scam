@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Communicate!  It can't make things any worse.
