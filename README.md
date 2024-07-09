@@ -1,2 +1,2 @@
-What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
