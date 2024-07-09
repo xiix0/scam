@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+You're working under a slight handicap.  You happen to be human.
