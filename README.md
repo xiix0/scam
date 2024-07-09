@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Executive ability is prominent in your make-up.
