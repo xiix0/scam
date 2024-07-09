@@ -1,1 +1,1 @@
-Love is in the offing.  Be affectionate to one who adores you.
+You may get an opportunity for advancement today.  Watch it!
