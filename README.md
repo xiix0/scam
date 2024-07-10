@@ -1,2 +1,2 @@
-No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
-		-- Sherlock Holmes
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
