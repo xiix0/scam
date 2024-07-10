@@ -1,1 +1,2 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
