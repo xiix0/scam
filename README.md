@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You plan things that you do not even attempt because of your extreme caution.
