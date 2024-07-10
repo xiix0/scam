@@ -1,2 +1,2 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
