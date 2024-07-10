@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
