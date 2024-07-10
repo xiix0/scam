@@ -1,2 +1,1 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+You have a strong appeal for members of your own sex.
