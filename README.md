@@ -1,6 +1,3 @@
-Q:	How do you shoot a blue elephant?
-A:	With a blue-elephant gun.
-
-Q:	How do you shoot a pink elephant?
-A:	Twist its trunk until it turns blue, then shoot it with
-	a blue-elephant gun.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
