@@ -1,2 +1,2 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
