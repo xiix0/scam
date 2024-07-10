@@ -1,1 +1,2 @@
-You will be audited by the Internal Revenue Service.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
