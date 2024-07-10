@@ -1,1 +1,2 @@
-You will be recognized and honored as a community leader.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
