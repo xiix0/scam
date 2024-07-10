@@ -1,1 +1,1 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+You plan things that you do not even attempt because of your extreme caution.
