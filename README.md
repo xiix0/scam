@@ -1,1 +1,2 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
