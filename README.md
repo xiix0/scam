@@ -1,2 +1,2 @@
-Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
-		-- Shakespeare
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
