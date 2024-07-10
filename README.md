@@ -1,2 +1,1 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+Your depth of comprehension may tend to make you lax in worldly ways.
