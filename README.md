@@ -1,2 +1,3 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+It has long been an axiom of mine that the little things are infinitely
+the most important.
+		-- Sir Arthur Conan Doyle, "A Case of Identity"
