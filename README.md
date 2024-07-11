@@ -1,1 +1,2 @@
-Beware of Bigfoot!
+Q:	Are we not men?
+A:	We are Vaxen.
