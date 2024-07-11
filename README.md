@@ -1,5 +1,6 @@
-I will honour Christmas in my heart, and try to keep it all the year.  I
-will live in the Past, the Present, and the Future.  The Spirits of all
-Three shall strive within me.  I will not shut out the lessons that they
-teach.  Oh, tell me that I may sponge away the writing on this stone!
-		-- Charles Dickens
+There are three infallible ways of pleasing an author, and the three form a
+rising scale of compliment: 1, to tell him you have read one of his books; 2,
+to tell him you have read all of his books; 3, to ask him to let you read the
+manuscript of his forthcoming book.  No. 1 admits you to his respect; No. 2
+admits you to his admiration; No. 3 carries you clear into his heart.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
