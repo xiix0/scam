@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+You have a strong appeal for members of the opposite sex.
