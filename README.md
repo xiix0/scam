@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+You too can wear a nose mitten.
