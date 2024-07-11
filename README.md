@@ -1,1 +1,2 @@
-You two ought to be more careful--your love could drag on for years and years.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
