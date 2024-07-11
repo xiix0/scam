@@ -1,5 +1,8 @@
-Q:	How do you catch a unique rabbit?
-A:	Unique up on it!
+For the fashion of Minas Tirith was such that it was built on seven levels,
+each delved into a hill, and about each was set a wall, and in each wall
+was a gate.
+		-- J.R.R. Tolkien, "The Return of the King"
 
-Q:	How do you catch a tame rabbit?
-A:	The tame way!
+	[Quoted in "VMS Internals and Data Structures", V4.4, when
+	 referring to system overview.]
+
