@@ -1,2 +1,2 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
