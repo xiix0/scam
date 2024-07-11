@@ -1,4 +1,1 @@
-AWAKE! FEAR! FIRE! FOES! AWAKE!
-	FEAR! FIRE! FOES!
-		AWAKE! AWAKE!
-		-- J. R. R. Tolkien
+Excellent time to become a missing person.
