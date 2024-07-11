@@ -1,2 +1,2 @@
-Q:	What do agnostic, insomniac dyslexics do at night?
-A:	Stay awake and wonder if there's a dog.
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
