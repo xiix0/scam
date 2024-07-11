@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+You never hesitate to tackle the most difficult problems.
