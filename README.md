@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
