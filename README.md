@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
