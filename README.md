@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
