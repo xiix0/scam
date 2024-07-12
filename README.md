@@ -1,3 +1,2 @@
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
+Repartee is something we think of twenty-four hours too late.
 		-- Mark Twain
