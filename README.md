@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
