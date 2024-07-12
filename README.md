@@ -1,1 +1,2 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
