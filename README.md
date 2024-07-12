@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+It's lucky you're going so slowly, because you're going in the wrong direction.
