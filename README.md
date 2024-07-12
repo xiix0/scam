@@ -1,1 +1,2 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
