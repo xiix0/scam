@@ -1,2 +1,1 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+You prefer the company of the opposite sex, but are well liked by your own.
