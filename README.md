@@ -1,1 +1,3 @@
-You will be audited by the Internal Revenue Service.
+I must have a prodigious quantity of mind; it takes me as much as a
+week sometimes to make it up.
+		-- Mark Twain, "The Innocents Abroad"
