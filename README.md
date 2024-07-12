@@ -1,2 +1,2 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
