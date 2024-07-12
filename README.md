@@ -1,1 +1,1 @@
-Never give an inch!
+Do not sleep in a eucalyptus tree tonight.
