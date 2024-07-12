@@ -1,7 +1,5 @@
-Awash with unfocused desire, Everett twisted the lobe of his one remaining
-ear and felt the presence of somebody else behind him, which caused terror
-to push through his nervous system like a flash flood roaring down the
-mid-fork of the Feather River before the completion of the Oroville Dam
-in 1959.
-		-- Grand Panjandrum's Special Award, 1984 Bulwer-Lytton
-		   bad fiction contest.
+Q:	How many existentialists does it take to screw in a light bulb?
+A:	Two.  One to screw it in and one to observe how the light bulb
+	itself symbolizes a single incandescent beacon of subjective
+	reality in a netherworld of endless absurdity reaching out toward a
+	maudlin cosmos of nothingness.
