@@ -1,1 +1,1 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+You two ought to be more careful--your love could drag on for years and years.
