@@ -1,1 +1,1 @@
-You two ought to be more careful--your love could drag on for years and years.
+You feel a whole lot more like you do now than you did when you used to.
