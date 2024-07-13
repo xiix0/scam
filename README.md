@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+You will have good luck and overcome many hardships.
