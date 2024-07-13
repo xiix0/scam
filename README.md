@@ -1,1 +1,2 @@
-Your aims are high, and you are capable of much.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
