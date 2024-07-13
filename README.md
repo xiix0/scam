@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
