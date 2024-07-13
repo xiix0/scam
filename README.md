@@ -1,1 +1,2 @@
-You will pass away very quickly.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
