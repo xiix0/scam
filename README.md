@@ -1,2 +1,1 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Your mode of life will be changed for the better because of good news soon.
