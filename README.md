@@ -1,1 +1,2 @@
-You don't become a failure until you're satisfied with being one.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
