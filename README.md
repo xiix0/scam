@@ -1,2 +1,2 @@
-Troubled day for virgins over 16 who are beautiful and wealthy and live
-in eucalyptus trees.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
