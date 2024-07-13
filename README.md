@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
