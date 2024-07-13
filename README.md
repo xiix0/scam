@@ -1,2 +1,2 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
