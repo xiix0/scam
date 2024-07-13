@@ -1,2 +1,1 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+Your nature demands love and your happiness depends on it.
