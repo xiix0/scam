@@ -1,1 +1,2 @@
-In the stairway of life, you'd best take the elevator.
+Wagner's music is better than it sounds.
+		-- Mark Twain
