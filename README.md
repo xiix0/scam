@@ -1,2 +1,1 @@
-He that is giddy thinks the world turns round.
-		-- William Shakespeare, "The Taming of the Shrew"
+You'll be called to a post requiring ability in handling groups of people.
