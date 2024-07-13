@@ -1,1 +1,1 @@
-You will be married within a year.
+Your aims are high, and you are capable of much.
