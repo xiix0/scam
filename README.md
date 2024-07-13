@@ -1,1 +1,1 @@
-Is this really happening?
+You will pass away very quickly.
