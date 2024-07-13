@@ -1,1 +1,1 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+That secret you've been guarding, isn't.
