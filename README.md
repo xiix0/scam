@@ -1,17 +1,5 @@
-A Tale of Two Cities LITE(tm)
-	-- by Charles Dickens
+Q:	Where's the Lone Ranger take his garbage?
+A:	To the dump, to the dump, to the dump dump dump!
 
-	A man in love with a girl who loves another man who looks just
-	like him has his head chopped off in France because of a mean
-	lady who knits.
-
-Crime and Punishment LITE(tm)
-	-- by Fyodor Dostoevski
-
-	A man sends a nasty letter to a pawnbroker, but later
-	feels guilty and apologizes.
-
-The Odyssey LITE(tm)
-	-- by Homer
-
-	After working late, a valiant warrior gets lost on his way home.
+Q:	What's the Pink Panther say when he steps on an ant hill?
+A:	Dead ant, dead ant, dead ant dead ant dead ant...
