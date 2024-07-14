@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+You need no longer worry about the future.  This time tomorrow you'll be dead.
