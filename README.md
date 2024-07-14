@@ -1,1 +1,2 @@
-You will always have good luck in your personal affairs.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
