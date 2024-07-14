@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+You are magnetic in your bearing.
