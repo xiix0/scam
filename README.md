@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+Today is the first day of the rest of the mess.
