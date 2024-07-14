@@ -1,1 +1,2 @@
-You're a card which will have to be dealt with.
+Q:	What is the sound of one cat napping?
+A:	Mu.
