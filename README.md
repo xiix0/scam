@@ -1,2 +1,3 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+Q:	How many Zen masters does it take to screw in a light bulb?
+A:	None.  The Universe spins the bulb, and the Zen master stays out
+	of the way.
