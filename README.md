@@ -1,1 +1,1 @@
-You'd like to do it instantaneously, but that's too slow.
+You will probably marry after a very brief courtship.
