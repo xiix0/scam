@@ -1,3 +1,3 @@
-Let us endeavor so to live that when we come to die even the undertaker will be
-sorry.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
