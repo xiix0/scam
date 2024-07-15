@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
