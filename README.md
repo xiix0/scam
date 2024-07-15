@@ -1,1 +1,1 @@
-You possess a mind not merely twisted, but actually sprained.
+Afternoon very favorable for romance.  Try a single person for a change.
