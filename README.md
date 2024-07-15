@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Be careful!  UGLY strikes 9 out of 10!
