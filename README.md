@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+Q:	What's the difference between a Mac and an Etch-a-Sketch?
+A:	You don't have to shake the Mac to clear the screen.
