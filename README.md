@@ -1,3 +1,2 @@
-All say, "How hard it is that we have to die"--a strange complaint to come from
-the mouths of people who have had to live.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
