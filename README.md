@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+You are going to have a new love affair.
