@@ -1,2 +1,2 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
