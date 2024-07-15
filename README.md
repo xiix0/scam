@@ -1,1 +1,2 @@
-You will be the last person to buy a Chrysler.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
