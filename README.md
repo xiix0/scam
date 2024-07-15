@@ -1,1 +1,1 @@
-You are so boring that when I see you my feet go to sleep.
+You have literary talent that you should take pains to develop.
