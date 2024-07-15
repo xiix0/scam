@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+You will meet an important person who will help you advance professionally.
