@@ -1,1 +1,3 @@
-Expect a letter from a friend who will ask a favor of you.
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
