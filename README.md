@@ -1,1 +1,2 @@
-Don't look back, the lemmings are gaining on you.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
