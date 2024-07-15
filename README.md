@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
