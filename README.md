@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+You are so boring that when I see you my feet go to sleep.
