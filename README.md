@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+You will become rich and famous unless you don't.
