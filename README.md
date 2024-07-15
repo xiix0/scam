@@ -1,1 +1,1 @@
-You will get what you deserve.
+Chicken Little was right.
