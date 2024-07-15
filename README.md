@@ -1,1 +1,1 @@
-You may be recognized soon.  Hide.
+You possess a mind not merely twisted, but actually sprained.
