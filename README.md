@@ -1,2 +1,2 @@
-You have a reputation for being thoroughly reliable and trustworthy.
-A pity that it's totally undeserved.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
