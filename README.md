@@ -1,3 +1,3 @@
-The only way to keep your health is to eat what you don't want, drink what
-you don't like, and do what you'd rather not.
-		-- Mark Twain
+All say, "How hard it is that we have to die"--a strange complaint to come from
+the mouths of people who have had to live.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
