@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+You have a strong appeal for members of your own sex.
