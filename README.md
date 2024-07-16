@@ -1,1 +1,1 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+You have an ambitious nature and may make a name for yourself.
