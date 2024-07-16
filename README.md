@@ -1,1 +1,2 @@
-You will gain money by a speculation or lottery.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
