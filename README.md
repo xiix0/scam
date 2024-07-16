@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
