@@ -1,2 +1,3 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+Q:	Why is it that the more accuracy you demand from an interpolation
+	function, the more expensive it becomes to compute?
+A:	That's the Law of Spline Demand.
