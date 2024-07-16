@@ -1,1 +1,2 @@
-It's all in the mind, ya know.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
