@@ -1,2 +1,2 @@
-You're growing out of some of your problems, but there are others that
-you're growing into.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
