@@ -1,2 +1,2 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
