@@ -1,1 +1,2 @@
-Don't kiss an elephant on the lips today.
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
