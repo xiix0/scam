@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+You will give someone a piece of your mind, which you can ill afford.
