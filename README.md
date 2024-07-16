@@ -1,2 +1,1 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Change your thoughts and you change your world.
