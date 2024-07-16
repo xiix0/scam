@@ -1,3 +1,2 @@
-Perilous to all of us are the devices of an art deeper than we ourselves
-possess.
-		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
+You're growing out of some of your problems, but there are others that
+you're growing into.
