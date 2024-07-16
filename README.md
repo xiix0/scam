@@ -1,1 +1,2 @@
-You could live a better life, if you had a better mind and a better body.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
