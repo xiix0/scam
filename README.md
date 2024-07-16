@@ -1,1 +1,2 @@
-You will be surprised by a loud noise.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
