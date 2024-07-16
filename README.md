@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
-A:	Chicken Teriyaki.
-Q:	What is the name of the world's oldest kamikaze pilot?
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
