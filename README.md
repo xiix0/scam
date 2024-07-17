@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+If you can read this, you're too close.
