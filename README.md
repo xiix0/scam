@@ -1,2 +1,2 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
