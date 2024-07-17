@@ -1,1 +1,1 @@
-Don't relax!  It's only your tension that's holding you together.
+An avocado-tone refrigerator would look good on your resume.
