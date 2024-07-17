@@ -1,1 +1,1 @@
-You will be run over by a bus.
+Your aims are high, and you are capable of much.
