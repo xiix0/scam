@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
