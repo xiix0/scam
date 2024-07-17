@@ -1,2 +1,1 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+You will obey or molten silver will be poured into your ears.
