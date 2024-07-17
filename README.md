@@ -1,2 +1,1 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+Q:	How do you keep a moron in suspense?
