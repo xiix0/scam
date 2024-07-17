@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+You teach best what you most need to learn.
