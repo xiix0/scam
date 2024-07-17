@@ -1,2 +1,2 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
