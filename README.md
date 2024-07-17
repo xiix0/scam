@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
