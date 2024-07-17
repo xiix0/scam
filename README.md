@@ -1,2 +1,2 @@
-He was part of my dream, of course -- but then I was part of his dream too.
+What I tell you three times is true.
 		-- Lewis Carroll
