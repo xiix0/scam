@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
+Civilization is the limitless multiplication of unnecessary necessities.
 		-- Mark Twain
