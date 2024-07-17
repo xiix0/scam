@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+You have an ability to sense and know higher truth.
