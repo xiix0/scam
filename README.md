@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Be cautious in your daily affairs.
