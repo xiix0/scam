@@ -1,1 +1,1 @@
-You're at the end of the road again.
+It's all in the mind, ya know.
