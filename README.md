@@ -1,2 +1,1 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+Expect a letter from a friend who will ask a favor of you.
