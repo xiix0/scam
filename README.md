@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+All the troubles you have will pass away very quickly.
