@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
