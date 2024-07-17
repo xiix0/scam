@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+Never commit yourself!  Let someone else commit you.
