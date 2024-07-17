@@ -1,1 +1,1 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+You will be run over by a bus.
