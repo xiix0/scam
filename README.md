@@ -1,1 +1,2 @@
-You will overcome the attacks of jealous associates.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
