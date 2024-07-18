@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+Increased knowledge will help you now.  Have mate's phone bugged.
