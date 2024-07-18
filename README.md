@@ -1,1 +1,2 @@
-You will have good luck and overcome many hardships.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
