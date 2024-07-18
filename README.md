@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
