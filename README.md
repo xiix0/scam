@@ -1,1 +1,1 @@
-You seek to shield those you love and you like the role of the provider.
+You recoil from the crude; you tend naturally toward the exquisite.
