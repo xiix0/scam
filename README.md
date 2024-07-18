@@ -1,2 +1,2 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
