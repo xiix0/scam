@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+You will have good luck and overcome many hardships.
