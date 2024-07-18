@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+You'll feel much better once you've given up hope.
