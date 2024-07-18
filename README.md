@@ -1,4 +1,3 @@
-In Marseilles they make half the toilet soap we consume in America, but
-the Marseillaise only have a vague theoretical idea of its use, which they
-have obtained from books of travel.
-		-- Mark Twain
+Q:	Why is Christmas just like a day at the office?
+A:	You do all of the work and the fat guy in the suit
+	gets all the credit.
