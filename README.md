@@ -1,1 +1,2 @@
-You will be awarded a medal for disregarding safety in saving someone.
+"Life, loathe it or ignore it, you can't like it."
+		-- Marvin, "Hitchhiker's Guide to the Galaxy"
