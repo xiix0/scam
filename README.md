@@ -1,2 +1,1 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+You seek to shield those you love and you like the role of the provider.
