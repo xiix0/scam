@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+Don't get stuck in a closet -- wear yourself out.
