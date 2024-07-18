@@ -1,3 +1,2 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
