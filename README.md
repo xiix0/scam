@@ -1,2 +1,2 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
