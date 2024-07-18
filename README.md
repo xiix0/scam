@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+You will have good luck and overcome many hardships.
