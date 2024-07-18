@@ -1,2 +1,2 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
