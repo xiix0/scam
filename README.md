@@ -1,1 +1,2 @@
-Love is in the offing.  Be affectionate to one who adores you.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
