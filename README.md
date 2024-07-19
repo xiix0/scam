@@ -1,1 +1,1 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+It's lucky you're going so slowly, because you're going in the wrong direction.
