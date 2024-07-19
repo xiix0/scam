@@ -1,2 +1,1 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+You prefer the company of the opposite sex, but are well liked by your own.
