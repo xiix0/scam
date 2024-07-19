@@ -1,1 +1,2 @@
-Make a wish, it might come true.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
