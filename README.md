@@ -1,2 +1,1 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+You are fighting for survival in your own sweet and gentle way.
