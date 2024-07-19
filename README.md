@@ -1,2 +1,2 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
