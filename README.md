@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+You're working under a slight handicap.  You happen to be human.
