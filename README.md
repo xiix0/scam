@@ -1,1 +1,1 @@
-There is a fly on your nose.
+Bank error in your favor.  Collect $200.
