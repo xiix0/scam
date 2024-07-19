@@ -1,1 +1,2 @@
-Your business will go through a period of considerable expansion.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
