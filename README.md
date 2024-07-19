@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+Be careful!  UGLY strikes 9 out of 10!
