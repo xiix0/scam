@@ -1,1 +1,3 @@
-You are a fluke of the universe; you have no right to be here.
+There is an old time toast which is golden for its beauty.
+"When you ascend the hill of prosperity may you not meet a friend."
+		-- Mark Twain
