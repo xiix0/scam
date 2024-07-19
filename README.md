@@ -1,2 +1,2 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
