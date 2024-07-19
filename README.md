@@ -1,1 +1,2 @@
-Chicken Little only has to be right once.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
