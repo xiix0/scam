@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
