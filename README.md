@@ -1,1 +1,2 @@
-You are standing on my toes.
+A is for Apple.
+		-- Hester Pryne
