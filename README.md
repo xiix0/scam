@@ -1,1 +1,2 @@
-A vivid and creative mind characterizes you.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
