@@ -1,2 +1,3 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
