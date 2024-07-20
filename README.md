@@ -1,1 +1,2 @@
-You are a fluke of the universe; you have no right to be here.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
