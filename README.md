@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
