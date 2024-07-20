@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+Be different: conform.
