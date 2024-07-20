@@ -1,2 +1,2 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
