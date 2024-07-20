@@ -1,1 +1,3 @@
-Good day to let down old friends who need help.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
