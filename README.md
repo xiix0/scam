@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+Everything will be just tickety-boo today.
