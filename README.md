@@ -1,2 +1,1 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+You are a fluke of the universe; you have no right to be here.
