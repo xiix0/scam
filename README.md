@@ -1,2 +1,3 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+I don't know half of you half as well as I should like; and I like less
+than half of you half as well as you deserve.
+		-- J. R. R. Tolkien
