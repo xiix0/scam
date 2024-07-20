@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+It may or may not be worthwhile, but it still has to be done.
