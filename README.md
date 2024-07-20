@@ -1,1 +1,1 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+You will win success in whatever calling you adopt.
