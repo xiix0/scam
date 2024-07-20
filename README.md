@@ -1,1 +1,2 @@
-Do not overtax your powers.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
