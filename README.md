@@ -1,1 +1,2 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
