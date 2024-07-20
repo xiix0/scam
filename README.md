@@ -1,2 +1,2 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+Too much is just enough.
+		-- Mark Twain, on whiskey
