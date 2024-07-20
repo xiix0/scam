@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
