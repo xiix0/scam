@@ -1,2 +1,5 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
+
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
