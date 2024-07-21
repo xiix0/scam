@@ -1,1 +1,2 @@
-Accent on helpful side of your nature.  Drain the moat.
+He is now rising from affluence to poverty.
+		-- Mark Twain
