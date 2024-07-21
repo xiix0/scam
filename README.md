@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+"Life, loathe it or ignore it, you can't like it."
+		-- Marvin, "Hitchhiker's Guide to the Galaxy"
