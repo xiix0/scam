@@ -1,1 +1,2 @@
-Caution: Keep out of reach of children.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
