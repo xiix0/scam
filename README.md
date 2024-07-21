@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+You will be held hostage by a radical group.
