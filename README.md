@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+Accent on helpful side of your nature.  Drain the moat.
