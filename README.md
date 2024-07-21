@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+You definitely intend to start living sometime soon.
