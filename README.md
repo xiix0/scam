@@ -1,1 +1,1 @@
-Think twice before speaking, but don't say "think think click click".
+You're at the end of the road again.
