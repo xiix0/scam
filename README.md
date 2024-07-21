@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Expect the worst, it's the least you can do.
