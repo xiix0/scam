@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+Don't read any sky-writing for the next two weeks.
