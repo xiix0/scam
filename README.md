@@ -1,2 +1,1 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+Don't plan any hasty moves.  You'll be evicted soon anyway.
