@@ -1,2 +1,2 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
