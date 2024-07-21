@@ -1,1 +1,1 @@
-Long life is in store for you.
+You too can wear a nose mitten.
