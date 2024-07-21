@@ -1,3 +1,3 @@
-Have a place for everything and keep the thing somewhere else; this is not
-advice, it is merely custom.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
 		-- Mark Twain
