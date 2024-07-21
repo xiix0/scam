@@ -1,3 +1,2 @@
-I don't know half of you half as well as I should like; and I like less
-than half of you half as well as you deserve.
-		-- J. R. R. Tolkien
+You will pay for your sins.  If you have already paid, please disregard
+this message.
