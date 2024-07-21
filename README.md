@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Don't look back, the lemmings are gaining on you.
