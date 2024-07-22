@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
