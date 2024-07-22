@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
