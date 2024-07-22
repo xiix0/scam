@@ -1,1 +1,1 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+You will feel hungry again in another hour.
