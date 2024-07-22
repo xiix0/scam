@@ -1,1 +1,1 @@
-Stay the curse.
+Snow Day -- stay home.
