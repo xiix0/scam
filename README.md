@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+Never commit yourself!  Let someone else commit you.
