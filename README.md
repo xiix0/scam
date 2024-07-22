@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+You are sick, twisted and perverted.  I like that in a person.
