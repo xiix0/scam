@@ -1,2 +1,3 @@
-Q:	How many IBM 370's does it take to execute a job?
-A:	Four, three to hold it down, and one to rip its head off.
+Its name is Public Opinion.  It is held in reverence.  It settles everything.
+Some think it is the voice of God.
+		-- Mark Twain
