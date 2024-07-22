@@ -1,2 +1,2 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
