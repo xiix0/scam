@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+Your heart is pure, and your mind clear, and your soul devout.
