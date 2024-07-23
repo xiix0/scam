@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+Do not sleep in a eucalyptus tree tonight.
