@@ -1,1 +1,2 @@
-You are dishonest, but never to the point of hurting a friend.
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
