@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+Wagner's music is better than it sounds.
+		-- Mark Twain
