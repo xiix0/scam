@@ -1,5 +1,11 @@
-October 12, the Discovery.
+Q:	How many hardware engineers does it take to change a light bulb?
+A:	None.  We'll fix it in software.
 
-It was wonderful to find America, but it would have been more wonderful to miss
-it.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many system programmers does it take to change a light bulb?
+A:	None.  The application can work around it.
+
+Q:	How many software engineers does it take to change a light bulb?
+A:	None.  We'll document it in the manual.
+
+Q:	How many tech writers does it take to change a light bulb?
+A:	None.  The user can figure it out.
