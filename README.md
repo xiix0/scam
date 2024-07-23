@@ -1,1 +1,2 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
