@@ -1,2 +1,2 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
