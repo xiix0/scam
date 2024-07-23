@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+You are dishonest, but never to the point of hurting a friend.
