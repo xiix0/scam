@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
