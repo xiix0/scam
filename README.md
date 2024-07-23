@@ -1,2 +1,1 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+Are you ever going to do the dishes?  Or will you change your major to biology?
