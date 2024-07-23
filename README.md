@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+You will be called upon to help a friend in trouble.
