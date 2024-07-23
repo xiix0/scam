@@ -1,1 +1,1 @@
-Day of inquiry.  You will be subpoenaed.
+Increased knowledge will help you now.  Have mate's phone bugged.
