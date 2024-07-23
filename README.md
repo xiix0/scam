@@ -1,2 +1,1 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+You will receive a legacy which will place you above want.
