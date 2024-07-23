@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+You're not my type.  For that matter, you're not even my species!!!
