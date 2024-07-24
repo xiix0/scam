@@ -1,4 +1,5 @@
-Swerve me?  The path to my fixed purpose is laid with iron rails,
-whereon my soul is grooved to run.  Over unsounded gorges, through
-the rifled hearts of mountains, under torrents' beds, unerringly I rush!
-		-- Captain Ahab, "Moby Dick"
+Q:	What do you call 15 blondes in a circle?
+A:	A dope ring.
+
+Q:	Why do blondes put their hair in ponytails?
+A:	To cover up the valve stem.
