@@ -1,1 +1,3 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+My only love sprung from my only hate!
+Too early seen unknown, and known too late!
+		-- William Shakespeare, "Romeo and Juliet"
