@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Living your life is a task so difficult, it has never been attempted before.
