@@ -1,2 +1,2 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
