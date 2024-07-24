@@ -1,3 +1,2 @@
-Zounds!  I was never so bethumped with words
-since I first called my brother's father dad.
-		-- William Shakespeare, "Kind John"
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
