@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+He is now rising from affluence to poverty.
+		-- Mark Twain
