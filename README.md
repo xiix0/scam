@@ -1,1 +1,2 @@
-You have a deep interest in all that is artistic.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
