@@ -1,2 +1,2 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
