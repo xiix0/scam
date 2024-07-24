@@ -1,1 +1,1 @@
-You are so boring that when I see you my feet go to sleep.
+If you sow your wild oats, hope for a crop failure.
