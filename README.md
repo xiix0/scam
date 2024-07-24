@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
