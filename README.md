@@ -1,1 +1,1 @@
-There is a fly on your nose.
+Keep emotionally active.  Cater to your favorite neurosis.
