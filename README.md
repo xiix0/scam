@@ -1,3 +1,2 @@
-The difference between a Miracle and a Fact is exactly the difference
-between a mermaid and a seal.
-		-- Mark Twain
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
