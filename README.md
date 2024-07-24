@@ -1,1 +1,2 @@
-You are so boring that when I see you my feet go to sleep.
+Q:	How many IBM CPU's does it take to do a logical right shift?
+A:	33.  1 to hold the bits and 32 to push the register.
