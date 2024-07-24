@@ -1,2 +1,2 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
