@@ -1,2 +1,1 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+You're currently going through a difficult transition period called "Life."
