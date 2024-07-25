@@ -1,1 +1,2 @@
-You are dishonest, but never to the point of hurting a friend.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
