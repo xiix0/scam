@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+Live in a world of your own, but always welcome visitors.
