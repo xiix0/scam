@@ -1,2 +1,1 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+An exotic journey in downtown Newark is in your future.
