@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+You teach best what you most need to learn.
