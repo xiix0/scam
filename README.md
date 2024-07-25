@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
