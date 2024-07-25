@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+You will overcome the attacks of jealous associates.
