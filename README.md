@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+Your boss is a few sandwiches short of a picnic.
