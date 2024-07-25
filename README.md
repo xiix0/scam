@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Look afar and see the end from the beginning.
