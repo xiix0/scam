@@ -1,4 +1,2 @@
-The holy passion of Friendship is of so sweet and steady and loyal and
-enduring a nature that it will last through a whole lifetime, if not asked to
-lend money.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
