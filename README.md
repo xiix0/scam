@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+Love is in the offing.  Be affectionate to one who adores you.
