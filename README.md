@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+Condense soup, not books!
