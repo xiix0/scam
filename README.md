@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+A vivid and creative mind characterizes you.
