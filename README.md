@@ -1,1 +1,1 @@
-Love is in the offing.  Be affectionate to one who adores you.
+You are the only person to ever get this message.
