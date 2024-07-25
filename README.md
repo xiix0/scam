@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
