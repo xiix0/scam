@@ -1,1 +1,2 @@
-You will overcome the attacks of jealous associates.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
