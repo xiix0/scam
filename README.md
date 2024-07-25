@@ -1,2 +1,2 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+Q:	What do little WASPs want to be when they grow up?
+A:	The very best person they can possibly be.
