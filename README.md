@@ -1,1 +1,2 @@
-Your lover will never wish to leave you.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
