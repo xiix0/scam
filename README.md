@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+Long life is in store for you.
