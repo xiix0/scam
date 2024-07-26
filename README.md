@@ -1,2 +1,1 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+You don't become a failure until you're satisfied with being one.
