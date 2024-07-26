@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Try to value useful qualities in one who loves you.
