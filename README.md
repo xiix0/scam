@@ -1,3 +1,5 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+Q:	How do you catch a unique rabbit?
+A:	Unique up on it!
+
+Q:	How do you catch a tame rabbit?
+A:	The tame way!
