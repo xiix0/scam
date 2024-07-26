@@ -1,2 +1,4 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+Swerve me?  The path to my fixed purpose is laid with iron rails,
+whereon my soul is grooved to run.  Over unsounded gorges, through
+the rifled hearts of mountains, under torrents' beds, unerringly I rush!
+		-- Captain Ahab, "Moby Dick"
