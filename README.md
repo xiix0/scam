@@ -1,1 +1,5 @@
-You will not be elected to public office this year.
+Q:	What do monsters eat?
+A:	Things.
+
+Q:	What do monsters drink?
+A:	Coke.  (Because Things go better with Coke.)
