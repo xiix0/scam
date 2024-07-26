@@ -1,2 +1,2 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
