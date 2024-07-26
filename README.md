@@ -1,1 +1,1 @@
-Be different: conform.
+Never commit yourself!  Let someone else commit you.
