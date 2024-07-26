@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+You now have Asian Flu.
