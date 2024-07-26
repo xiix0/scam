@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+You will not be elected to public office this year.
