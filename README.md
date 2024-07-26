@@ -1,3 +1,6 @@
-Q:	How many mathematicians does it take to screw in a light bulb?
-A:	One.  He gives it to six Californians, thereby reducing the problem
-	to the earlier joke.
+Even the clearest and most perfect circumstantial evidence is likely to be at
+fault, after all, and therefore ought to be received with great caution.  Take
+the case of any pencil, sharpened by any woman; if you have witnesses, you will
+find she did it with a knife; but if you take simply the aspect of the pencil,
+you will say that she did it with her teeth.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
