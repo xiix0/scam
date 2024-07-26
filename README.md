@@ -1,1 +1,3 @@
-You have a strong desire for a home and your family interests come first.
+Writing is easy; all you do is sit staring at the blank sheet of paper until
+drops of blood form on your forehead.
+		-- Gene Fowler
