@@ -1,1 +1,2 @@
-Long life is in store for you.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
