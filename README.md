@@ -1,3 +1,1 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+Don't look now, but the man in the moon is laughing at you.
