@@ -1,1 +1,1 @@
-Don't let your mind wander -- it's too little to be let out alone.
+Don't look back, the lemmings are gaining on you.
