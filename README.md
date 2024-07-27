@@ -1,1 +1,3 @@
-Q:	How do you keep a moron in suspense?
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
