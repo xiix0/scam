@@ -1,3 +1,2 @@
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
-		-- Mark Twain
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
