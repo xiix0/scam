@@ -1,1 +1,2 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+What I tell you three times is true.
+		-- Lewis Carroll
