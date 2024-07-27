@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+You have an unusual equipment for success.  Be sure to use it properly.
