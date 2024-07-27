@@ -1,3 +1,3 @@
-All say, "How hard it is that we have to die"--a strange complaint to come from
-the mouths of people who have had to live.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+A banker is a fellow who lends you his umbrella when the sun is shining
+and wants it back the minute it begins to rain.
+		-- Mark Twain
