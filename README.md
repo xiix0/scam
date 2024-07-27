@@ -1,2 +1,1 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+Ships are safe in harbor, but they were never meant to stay there.
