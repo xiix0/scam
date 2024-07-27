@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+Write yourself a threatening letter and pen a defiant reply.
