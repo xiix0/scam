@@ -1,3 +1,2 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
