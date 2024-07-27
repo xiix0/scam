@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+You have a deep appreciation of the arts and music.
