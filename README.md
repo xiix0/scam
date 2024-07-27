@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+People are beginning to notice you.  Try dressing before you leave the house.
