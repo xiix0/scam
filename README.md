@@ -1,3 +1,3 @@
-A banker is a fellow who lends you his umbrella when the sun is shining
-and wants it back the minute it begins to rain.
-		-- Mark Twain
+It has long been an axiom of mine that the little things are infinitely
+the most important.
+		-- Sir Arthur Conan Doyle, "A Case of Identity"
