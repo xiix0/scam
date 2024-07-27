@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+Q:	What do little WASPs want to be when they grow up?
+A:	The very best person they can possibly be.
