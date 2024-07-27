@@ -1,2 +1,2 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
