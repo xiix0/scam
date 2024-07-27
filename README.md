@@ -1,1 +1,2 @@
-You will gain money by an immoral action.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
