@@ -1,1 +1,1 @@
-You will have a long and boring life.
+Your aims are high, and you are capable of much.
