@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+You are not dead yet.  But watch for further reports.
