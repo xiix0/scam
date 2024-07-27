@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+You will experience a strong urge to do good; but it will pass.
