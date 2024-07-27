@@ -1,3 +1,1 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+Afternoon very favorable for romance.  Try a single person for a change.
