@@ -1,1 +1,2 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+I fell asleep reading a dull book, and I dreamt that I was reading on,
+so I woke up from sheer boredom.
