@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
