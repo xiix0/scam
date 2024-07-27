@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+You look like a million dollars.  All green and wrinkled.
