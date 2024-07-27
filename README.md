@@ -1,2 +1,1 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+You're ugly and your mother dresses you funny.
