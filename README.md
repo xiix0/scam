@@ -1,1 +1,2 @@
-Don't look now, but the man in the moon is laughing at you.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
