@@ -1,2 +1,2 @@
-Q:	How many college football players does it take to screw in a light bulb?
-A:	Only one, but he gets three credits for it.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
