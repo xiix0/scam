@@ -1,1 +1,2 @@
-Best of all is never to have been born.  Second best is to die soon.
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
