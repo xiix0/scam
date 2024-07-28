@@ -1,1 +1,2 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
