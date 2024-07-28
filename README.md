@@ -1,2 +1,1 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+Best of all is never to have been born.  Second best is to die soon.
