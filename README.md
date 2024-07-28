@@ -1,2 +1,1 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
