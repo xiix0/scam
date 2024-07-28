@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+You are capable of planning your future.
