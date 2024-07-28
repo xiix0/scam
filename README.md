@@ -1,2 +1,2 @@
-You're growing out of some of your problems, but there are others that
-you're growing into.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
