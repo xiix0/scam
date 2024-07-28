@@ -1,1 +1,2 @@
-You're working under a slight handicap.  You happen to be human.
+Conscience doth make cowards of us all.
+		-- Shakespeare
