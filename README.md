@@ -1,1 +1,2 @@
-Today is the first day of the rest of your life.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
