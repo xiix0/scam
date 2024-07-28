@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+Your business will go through a period of considerable expansion.
