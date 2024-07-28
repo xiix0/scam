@@ -1,1 +1,2 @@
-You will be honored for contributing your time and skill to a worthy cause.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
