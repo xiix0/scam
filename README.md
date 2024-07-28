@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+There was a phone call for you.
