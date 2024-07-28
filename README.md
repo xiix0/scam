@@ -1,2 +1,2 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
