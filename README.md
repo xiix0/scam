@@ -1,2 +1,2 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
