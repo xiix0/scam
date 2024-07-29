@@ -1,1 +1,3 @@
-An exotic journey in downtown Newark is in your future.
+Q:	Why do people who live near Niagara Falls have flat foreheads?
+A:	Because every morning they wake up thinking "What *is* that noise?
+	Oh, right, *of course*!
