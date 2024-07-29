@@ -1,1 +1,3 @@
-Your mode of life will be changed for the better because of new developments.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
