@@ -1,2 +1,2 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
