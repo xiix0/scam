@@ -1,1 +1,2 @@
-Your present plans will be successful.
+Your goose is cooked.
+(Your current chick is burned up too!)
