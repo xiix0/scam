@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+You will hear good news from one you thought unfriendly to you.
