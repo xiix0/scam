@@ -1,2 +1,2 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
