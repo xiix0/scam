@@ -1,1 +1,1 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+There is a fly on your nose.
