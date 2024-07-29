@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
