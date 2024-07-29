@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
