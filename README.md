@@ -1,3 +1,2 @@
-Reader, suppose you were an idiot.  And suppose you were a member of
-Congress.  But I repeat myself.
-		-- Mark Twain
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
