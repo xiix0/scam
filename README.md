@@ -1,3 +1,2 @@
-All say, "How hard it is that we have to die"--a strange complaint to come from
-the mouths of people who have had to live.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many IBM CPU's does it take to do a logical right shift?
+A:	33.  1 to hold the bits and 32 to push the register.
