@@ -1,1 +1,2 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
