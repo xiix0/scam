@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+An exotic journey in downtown Newark is in your future.
