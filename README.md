@@ -1,1 +1,1 @@
-There is a fly on your nose.
+A visit to a fresh place will bring strange work.
