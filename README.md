@@ -1,1 +1,2 @@
-Your aims are high, and you are capable of much.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
