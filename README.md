@@ -1,2 +1,2 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
