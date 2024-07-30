@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+Your domestic life may be harmonious.
