@@ -1,1 +1,2 @@
-You will always get the greatest recognition for the job you least like.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
