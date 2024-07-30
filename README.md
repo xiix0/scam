@@ -1,1 +1,1 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Abandon the search for Truth; settle for a good fantasy.
