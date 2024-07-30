@@ -1,2 +1,1 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+Afternoon very favorable for romance.  Try a single person for a change.
