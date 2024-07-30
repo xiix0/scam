@@ -1,1 +1,1 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
