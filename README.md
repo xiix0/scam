@@ -1,1 +1,2 @@
-Avert misunderstanding by calm, poise, and balance.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
