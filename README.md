@@ -1,2 +1,2 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
