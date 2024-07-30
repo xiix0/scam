@@ -1,4 +1,3 @@
-Swerve me?  The path to my fixed purpose is laid with iron rails,
-whereon my soul is grooved to run.  Over unsounded gorges, through
-the rifled hearts of mountains, under torrents' beds, unerringly I rush!
-		-- Captain Ahab, "Moby Dick"
+A classic is something that everyone wants to have read
+and nobody wants to read.
+		-- Mark Twain, "The Disappearance of Literature"
