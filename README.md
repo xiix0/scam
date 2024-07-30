@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+A tall, dark stranger will have more fun than you.
