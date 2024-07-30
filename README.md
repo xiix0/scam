@@ -1,2 +1,2 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
