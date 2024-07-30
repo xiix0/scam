@@ -1,2 +1,2 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
