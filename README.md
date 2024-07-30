@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+Don't read any sky-writing for the next two weeks.
