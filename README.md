@@ -1,2 +1,3 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
