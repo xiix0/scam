@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+You're being followed.  Cut out the hanky-panky for a few days.
