@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+Tonight's the night: Sleep in a eucalyptus tree.
