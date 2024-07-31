@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
