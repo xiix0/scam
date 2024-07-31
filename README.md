@@ -1,1 +1,1 @@
-Don't read everything you believe.
+A few hours grace before the madness begins again.
