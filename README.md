@@ -1,1 +1,2 @@
-A few hours grace before the madness begins again.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
