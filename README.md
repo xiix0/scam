@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+You will experience a strong urge to do good; but it will pass.
