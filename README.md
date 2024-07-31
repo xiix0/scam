@@ -1,2 +1,1 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+You can create your own opportunities this week.  Blackmail a senior executive.
