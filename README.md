@@ -1,1 +1,2 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Q:	Are we not men?
+A:	We are Vaxen.
