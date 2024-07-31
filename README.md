@@ -1,4 +1,2 @@
-In Marseilles they make half the toilet soap we consume in America, but
-the Marseillaise only have a vague theoretical idea of its use, which they
-have obtained from books of travel.
-		-- Mark Twain
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
