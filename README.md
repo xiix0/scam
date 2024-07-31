@@ -1,1 +1,2 @@
-Be careful!  Is it classified?
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
