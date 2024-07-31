@@ -1,2 +1,2 @@
-You will be attacked by a beast who has the body of a wolf, the tail of
-a lion, and the face of Donald Duck.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
