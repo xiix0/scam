@@ -1,2 +1,2 @@
-question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
