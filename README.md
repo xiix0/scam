@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Tuesday is the Wednesday of the rest of your life.
