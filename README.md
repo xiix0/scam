@@ -1,1 +1,3 @@
-You will give someone a piece of your mind, which you can ill afford.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
+A:	Chicken Teriyaki.
+Q:	What is the name of the world's oldest kamikaze pilot?
