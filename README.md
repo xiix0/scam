@@ -1,2 +1,2 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+You're growing out of some of your problems, but there are others that
+you're growing into.
