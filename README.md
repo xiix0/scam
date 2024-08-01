@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+Artistic ventures highlighted.  Rob a museum.
