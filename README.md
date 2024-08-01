@@ -1,2 +1,2 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
