@@ -1,2 +1,2 @@
-Alas, how love can trifle with itself!
-		-- William Shakespeare, "The Two Gentlemen of Verona"
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
