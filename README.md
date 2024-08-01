@@ -1,2 +1,1 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+You definitely intend to start living sometime soon.
