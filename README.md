@@ -1,1 +1,2 @@
-Future looks spotty.  You will spill soup in late evening.
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
