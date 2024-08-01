@@ -1,1 +1,2 @@
-Your nature demands love and your happiness depends on it.
+Don't Worry, Be Happy.
+		-- Meher Baba
