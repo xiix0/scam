@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+Look afar and see the end from the beginning.
