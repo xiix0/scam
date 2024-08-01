@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
