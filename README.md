@@ -1,3 +1,2 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+Q:	What's the difference between Bell Labs and the Boy Scouts of America?
+A:	The Boy Scouts have adult supervision.
