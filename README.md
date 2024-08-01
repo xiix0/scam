@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+Don't get stuck in a closet -- wear yourself out.
