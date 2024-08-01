@@ -1,2 +1,2 @@
-Never laugh at live dragons.
-		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
