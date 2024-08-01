@@ -1,3 +1,2 @@
-It were not best that we should all think alike; it is difference of opinion
-that makes horse-races.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
