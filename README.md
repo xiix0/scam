@@ -1,4 +1,3 @@
-Gratitude and treachery are merely the two extremities of the same procession.
-You have seen all of it that is worth staying for when the band and the gaudy
-officials have gone by.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	Why is it that the more accuracy you demand from an interpolation
+	function, the more expensive it becomes to compute?
+A:	That's the Law of Spline Demand.
