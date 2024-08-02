@@ -1,3 +1,3 @@
-Q:	How many Oregonians does it take to screw in a light bulb?
-A:	Three.  One to screw in the light bulb and two to fend off all those
-	Californians trying to share the experience.
+I must have a prodigious quantity of mind; it takes me as much as a
+week sometimes to make it up.
+		-- Mark Twain, "The Innocents Abroad"
