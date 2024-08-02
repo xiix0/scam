@@ -1,1 +1,1 @@
-You will soon meet a person who will play an important role in your life.
+Don't read any sky-writing for the next two weeks.
