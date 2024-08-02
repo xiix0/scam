@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
