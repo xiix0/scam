@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+Your lover will never wish to leave you.
