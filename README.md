@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+It's lucky you're going so slowly, because you're going in the wrong direction.
