@@ -1,2 +1,2 @@
-Q:	What do agnostic, insomniac dyslexics do at night?
-A:	Stay awake and wonder if there's a dog.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
