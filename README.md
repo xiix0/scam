@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+Among the lucky, you are the chosen one.
