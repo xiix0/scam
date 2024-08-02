@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+Your talents will be recognized and suitably rewarded.
