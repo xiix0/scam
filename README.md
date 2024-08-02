@@ -1,1 +1,1 @@
-Your present plans will be successful.
+Your nature demands love and your happiness depends on it.
