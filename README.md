@@ -1,1 +1,1 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+Don't hate yourself in the morning -- sleep till noon.
