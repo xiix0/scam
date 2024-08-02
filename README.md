@@ -1,1 +1,2 @@
-You will be married within a year, and divorced within two.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
