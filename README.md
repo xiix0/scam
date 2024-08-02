@@ -1,2 +1,1 @@
-Q:	What is the difference between Texas and yogurt?
-A:	Yogurt has culture.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
