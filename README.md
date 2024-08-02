@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+Good day to deal with people in high places; particularly lonely stewardesses.
