@@ -1,1 +1,2 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
