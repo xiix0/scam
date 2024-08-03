@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+You have an ability to sense and know higher truth.
