@@ -1,5 +1,5 @@
-Q:	How does the Polish Constitution differ from the American?
-A:	Under the Polish Constitution citizens are guaranteed freedom of
-	speech, but under the United States constitution they are
-	guaranteed freedom after speech.
-		-- being told in Poland, 1987
+Q:	Where's the Lone Ranger take his garbage?
+A:	To the dump, to the dump, to the dump dump dump!
+
+Q:	What's the Pink Panther say when he steps on an ant hill?
+A:	Dead ant, dead ant, dead ant dead ant dead ant...
