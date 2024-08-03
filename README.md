@@ -1,2 +1,2 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
