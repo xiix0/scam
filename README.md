@@ -1,2 +1,2 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
