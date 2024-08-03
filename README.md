@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+Caution: breathing may be hazardous to your health.
