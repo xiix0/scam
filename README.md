@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+Today is the last day of your life so far.
