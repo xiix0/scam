@@ -1,5 +1,6 @@
-	"You have heard me speak of Professor Moriarty?"
-	"The famous scientific criminal, as famous among crooks as --"
-	"My blushes, Watson," Holmes murmured, in a deprecating voice.
-	"I was about to say 'as he is unknown to the public.'"
-		-- A. Conan Doyle, "The Valley of Fear"
+A morgue is a morgue is a morgue.  They can paint the walls with aggressively
+cheerful primary colors and splashy bold graphics, but it's still a holding
+place for the dead until they can be parted out to organ banks.  Not that I
+would have cared normally but my viewpoint was skewed.  The relentless
+pleasance of the room I sat in seemed only grotesque.
+		-- Pat Cadigan, "Mindplayers"
