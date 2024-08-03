@@ -1,3 +1,3 @@
-Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
-are not the person involved.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
