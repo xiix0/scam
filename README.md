@@ -1,2 +1,2 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
