@@ -1,2 +1,1 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
-		-- Mark Twain
+You are a very redundant person, that's what kind of person you are.
