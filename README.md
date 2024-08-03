@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+Don't look now, but there is a multi-legged creature on your shoulder.
