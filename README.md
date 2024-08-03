@@ -1,3 +1,2 @@
-Have a place for everything and keep the thing somewhere else; this is not
-advice, it is merely custom.
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
 		-- Mark Twain
