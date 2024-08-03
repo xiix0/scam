@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+Your boss is a few sandwiches short of a picnic.
