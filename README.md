@@ -1,1 +1,2 @@
-You have Egyptian flu: you're going to be a mummy.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
