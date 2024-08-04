@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
