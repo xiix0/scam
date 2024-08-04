@@ -1,3 +1,3 @@
-It were not best that we should all think alike; it is difference of opinion
-that makes horse-races.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
