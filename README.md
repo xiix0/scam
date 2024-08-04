@@ -1,2 +1,1 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+A few hours grace before the madness begins again.
