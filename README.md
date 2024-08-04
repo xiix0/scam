@@ -1,1 +1,2 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
