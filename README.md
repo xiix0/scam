@@ -1,3 +1,3 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
