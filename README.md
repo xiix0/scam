@@ -1,1 +1,2 @@
-You have a deep interest in all that is artistic.
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
