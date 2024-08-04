@@ -1,3 +1,5 @@
-Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
-A:	Easy.  It's because they can't figure out how to get the little
-	bottles into the typewriter.
+Steady movement is more important than speed, much of the time.  So long
+as there is a regular progression of stimuli to get your mental hooks
+into, there is room for lateral movement.  Once this begins, its rate is
+a matter of discretion.
+		-- Corwin, Prince of Amber
