@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
