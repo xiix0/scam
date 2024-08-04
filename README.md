@@ -1,2 +1,1 @@
-Q:	Why do mountain climbers rope themselves together?
-A:	To prevent the sensible ones from going home.
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
