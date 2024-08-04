@@ -1,3 +1,1 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+It's lucky you're going so slowly, because you're going in the wrong direction.
