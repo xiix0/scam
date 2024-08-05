@@ -1,2 +1,2 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
