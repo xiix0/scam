@@ -1,2 +1,2 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
