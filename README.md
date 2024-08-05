@@ -1,2 +1,2 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
