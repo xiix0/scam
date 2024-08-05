@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+You will be married within a year, and divorced within two.
