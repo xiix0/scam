@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+Tuesday After Lunch is the cosmic time of the week.
