@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+There is a 20% chance of tomorrow.
