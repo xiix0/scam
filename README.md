@@ -1,1 +1,3 @@
-Perfect day for scrubbing the floor and other exciting things.
+"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
+for you and me."
+		-- J. R. R. Tolkien
