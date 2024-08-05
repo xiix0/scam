@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+You will engage in a profitable business activity.
