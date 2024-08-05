@@ -1,2 +1,2 @@
-Kiss me, Kate, we will be married o' Sunday.
-		-- William Shakespeare, "The Taming of the Shrew"
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
