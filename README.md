@@ -1,2 +1,1 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+Perfect day for scrubbing the floor and other exciting things.
