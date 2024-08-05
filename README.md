@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+Caution: Keep out of reach of children.
