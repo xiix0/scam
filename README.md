@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+You are taking yourself far too seriously.
