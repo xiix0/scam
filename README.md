@@ -1,1 +1,1 @@
-Everything that you know is wrong, but you can be straightened out.
+Today is the first day of the rest of your life.
