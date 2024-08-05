@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+You single-handedly fought your way into this hopeless mess.
