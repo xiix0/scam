@@ -1,2 +1,1 @@
-When you are about to die, a wombat is better than no company at all.
-		-- Roger Zelazny, "Doorways in the Sand"
+You are dishonest, but never to the point of hurting a friend.
