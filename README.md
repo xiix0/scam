@@ -1,1 +1,2 @@
-You will be awarded a medal for disregarding safety in saving someone.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
