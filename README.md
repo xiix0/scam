@@ -1,3 +1,6 @@
-Q:	How many Zen masters does it take to screw in a light bulb?
-A:	None.  The Universe spins the bulb, and the Zen master stays out
-	of the way.
+Stop!  There was first a game of blindman's buff.  Of course there was.
+And I no more believe Topper was really blind than I believe he had eyes
+in his boots.  My opinion is, that it was a done thing between him and
+Scrooge's nephew; and that the Ghost of Christmas Present knew it.  The
+way he went after that plump sister in the lace tucker, was an outrage
+on the credulity of human nature.
