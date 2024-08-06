@@ -1,2 +1,2 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
