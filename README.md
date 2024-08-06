@@ -1,2 +1,1 @@
-Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
-		-- Shakespeare
+Make a wish, it might come true.
