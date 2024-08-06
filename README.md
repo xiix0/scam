@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+Best of all is never to have been born.  Second best is to die soon.
