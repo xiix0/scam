@@ -1,2 +1,2 @@
-If you tell the truth you don't have to remember anything.
-		-- Mark Twain
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
