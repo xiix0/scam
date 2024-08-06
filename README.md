@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
