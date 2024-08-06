@@ -1,1 +1,2 @@
-You are dishonest, but never to the point of hurting a friend.
+Q:	What do Winnie the Pooh and John the Baptist have in common?
+A:	The same middle name.
