@@ -1,1 +1,2 @@
-Alimony and bribes will engage a large share of your wealth.
+You'll wish that you had done some of the hard things when they were easier
+to do.
