@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+There was a phone call for you.
