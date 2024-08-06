@@ -1,1 +1,2 @@
-Stay away from flying saucers today.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
