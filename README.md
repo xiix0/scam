@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+Your lover will never wish to leave you.
