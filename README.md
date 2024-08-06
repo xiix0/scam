@@ -1,3 +1,3 @@
-Q:	What looks like a cat, flies like a bat, brays like a donkey, and
-	plays like a monkey?
-A:	Nothing.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
