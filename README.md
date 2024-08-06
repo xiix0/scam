@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+You seek to shield those you love and you like the role of the provider.
