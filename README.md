@@ -1,2 +1,3 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+Q:	Why do people who live near Niagara Falls have flat foreheads?
+A:	Because every morning they wake up thinking "What *is* that noise?
+	Oh, right, *of course*!
