@@ -1,3 +1,8 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+Delay not, Caesar.  Read it instantly.
+		-- Shakespeare, "Julius Caesar" 3,1
+
+Here is a letter, read it at your leisure.
+		-- Shakespeare, "Merchant of Venice" 5,1
+
+	[Quoted in "VMS Internals and Data Structures", V4.4, when
+	 referring to I/O system services.]
