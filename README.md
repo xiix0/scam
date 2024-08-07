@@ -1,4 +1,3 @@
-Whenever the literary German dives into a sentence, that is the last
-you are going to see of him until he emerges on the other side of his
-Atlantic with his verb in his mouth.
-		-- Mark Twain "A Connecticut Yankee in King Arthur's Court"
+Hain't we got all the fools in town on our side?  And hain't that a big
+enough majority in any town?
+		-- Mark Twain, "Huckleberry Finn"
