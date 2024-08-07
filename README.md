@@ -1,2 +1,2 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
