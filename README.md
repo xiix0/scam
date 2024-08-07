@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+You will be run over by a bus.
