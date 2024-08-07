@@ -1,2 +1,3 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+Anyone who has had a bull by the tail knows five or six more things
+than someone who hasn't.
+		-- Mark Twain
