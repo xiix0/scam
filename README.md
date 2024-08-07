@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+Expect the worst, it's the least you can do.
