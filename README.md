@@ -1,1 +1,1 @@
-Is that really YOU that is reading this?
+Today is what happened to yesterday.
