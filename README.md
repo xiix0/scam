@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
