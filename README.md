@@ -1,1 +1,2 @@
-You are a very redundant person, that's what kind of person you are.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
