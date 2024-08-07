@@ -1,1 +1,2 @@
-You will be run over by a bus.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
