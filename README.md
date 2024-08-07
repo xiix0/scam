@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+You are so boring that when I see you my feet go to sleep.
