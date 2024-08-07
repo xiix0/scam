@@ -1,2 +1,2 @@
-Q:	Why do WASPs play golf ?
-A:	So they can dress like pimps.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
