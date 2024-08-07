@@ -1,1 +1,2 @@
-You are so boring that when I see you my feet go to sleep.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
