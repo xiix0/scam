@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+Afternoon very favorable for romance.  Try a single person for a change.
