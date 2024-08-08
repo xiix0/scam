@@ -1,2 +1,2 @@
-Alas, how love can trifle with itself!
-		-- William Shakespeare, "The Two Gentlemen of Verona"
+If you tell the truth you don't have to remember anything.
+		-- Mark Twain
