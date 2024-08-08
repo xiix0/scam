@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+Avoid gunfire in the bathroom tonight.
