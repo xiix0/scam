@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+Someone is speaking well of you.
