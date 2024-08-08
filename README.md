@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
