@@ -1,1 +1,1 @@
-Accent on helpful side of your nature.  Drain the moat.
+Your own qualities will help prevent your advancement in the world.
