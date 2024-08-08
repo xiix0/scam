@@ -1,2 +1,1 @@
-Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
-A:	Trustworthy.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
