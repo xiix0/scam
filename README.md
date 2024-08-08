@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+Go to a movie tonight.  Darkness becomes you.
