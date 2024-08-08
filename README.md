@@ -1,1 +1,2 @@
-Your love life will be happy and harmonious.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
