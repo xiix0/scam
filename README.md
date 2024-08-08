@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+After your lover has gone you will still have PEANUT BUTTER!
