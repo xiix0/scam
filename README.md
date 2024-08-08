@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
