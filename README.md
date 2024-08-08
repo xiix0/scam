@@ -1,1 +1,1 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+You have an unusual equipment for success.  Be sure to use it properly.
