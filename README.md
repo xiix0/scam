@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Don't read everything you believe.
