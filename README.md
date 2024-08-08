@@ -1,2 +1,1 @@
-If you tell the truth you don't have to remember anything.
-		-- Mark Twain
+You could live a better life, if you had a better mind and a better body.
