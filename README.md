@@ -1,1 +1,1 @@
-Don't read everything you believe.
+Are you sure the back door is locked?
