@@ -1,1 +1,3 @@
-You're not my type.  For that matter, you're not even my species!!!
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
