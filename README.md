@@ -1,2 +1,2 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
