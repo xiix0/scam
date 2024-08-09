@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+You don't become a failure until you're satisfied with being one.
