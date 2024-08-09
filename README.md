@@ -1,1 +1,1 @@
-You'd like to do it instantaneously, but that's too slow.
+Generosity and perfection are your everlasting goals.
