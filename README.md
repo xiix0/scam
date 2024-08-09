@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+Don't worry so loud, your roommate can't think.
