@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+You will win success in whatever calling you adopt.
