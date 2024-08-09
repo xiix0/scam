@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+You recoil from the crude; you tend naturally toward the exquisite.
