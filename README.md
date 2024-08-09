@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+You are going to have a new love affair.
