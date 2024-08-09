@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
