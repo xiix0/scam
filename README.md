@@ -1,2 +1,1 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+Don't plan any hasty moves.  You'll be evicted soon anyway.
