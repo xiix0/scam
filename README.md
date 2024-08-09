@@ -1,2 +1,1 @@
-Kiss me, Kate, we will be married o' Sunday.
-		-- William Shakespeare, "The Taming of the Shrew"
+A visit to a strange place will bring fresh work.
