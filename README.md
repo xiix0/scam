@@ -1,2 +1,2 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
