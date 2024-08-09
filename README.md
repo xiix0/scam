@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+You can rent this space for only $5 a week.
