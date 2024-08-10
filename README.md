@@ -1,2 +1,2 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
