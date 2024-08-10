@@ -1,2 +1,2 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
