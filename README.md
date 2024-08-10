@@ -1,2 +1,2 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
