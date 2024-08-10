@@ -1,2 +1,2 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
