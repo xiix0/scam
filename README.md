@@ -1,1 +1,2 @@
-There is a fly on your nose.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
