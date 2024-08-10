@@ -1,2 +1,2 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
