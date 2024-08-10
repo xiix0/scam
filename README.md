@@ -1,1 +1,2 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+Just because the message may never be received does not mean it is
+not worth sending.
