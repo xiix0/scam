@@ -1,2 +1,1 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+You need no longer worry about the future.  This time tomorrow you'll be dead.
