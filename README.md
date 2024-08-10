@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+All generalizations are false, including this one.
+		-- Mark Twain
