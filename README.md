@@ -1,1 +1,2 @@
-You don't become a failure until you're satisfied with being one.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
