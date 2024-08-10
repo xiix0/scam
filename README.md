@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+You have had a long-term stimulation relative to business.
