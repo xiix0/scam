@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
