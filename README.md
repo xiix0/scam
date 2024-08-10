@@ -1,1 +1,2 @@
-Try to have as good a life as you can under the circumstances.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
