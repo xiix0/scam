@@ -1,1 +1,2 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
