@@ -1,2 +1,2 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
