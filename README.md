@@ -1,2 +1,2 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
