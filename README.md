@@ -1,2 +1,2 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
