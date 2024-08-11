@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+You will be awarded the Nobel Peace Prize... posthumously.
