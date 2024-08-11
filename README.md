@@ -1,3 +1,2 @@
-Noise proves nothing.  Often a hen who has merely laid an egg cackles
-as if she laid an asteroid.
-		-- Mark Twain
+You're growing out of some of your problems, but there are others that
+you're growing into.
