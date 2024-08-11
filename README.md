@@ -1,2 +1,3 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+Q:	Why is Christmas just like a day at the office?
+A:	You do all of the work and the fat guy in the suit
+	gets all the credit.
