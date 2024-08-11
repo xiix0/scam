@@ -1,3 +1,2 @@
-Q:	Why haven't you graduated yet?
-A:	Well, Dad, I could have finished years ago, but I wanted
-	my dissertation to rhyme.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
