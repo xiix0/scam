@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+Excellent day for putting Slinkies on an escalator.
