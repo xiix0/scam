@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+You are number 6!  Who is number one?
