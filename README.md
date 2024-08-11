@@ -1,2 +1,2 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
