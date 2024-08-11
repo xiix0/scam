@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+Q:	Are we not men?
+A:	We are Vaxen.
