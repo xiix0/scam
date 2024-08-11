@@ -1,1 +1,3 @@
-Avoid gunfire in the bathroom tonight.
+Questionable day.
+
+Ask somebody something.
