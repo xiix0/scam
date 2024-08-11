@@ -1,3 +1,2 @@
-I must have a prodigious quantity of mind; it takes me as much as a
-week sometimes to make it up.
-		-- Mark Twain, "The Innocents Abroad"
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
