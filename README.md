@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+You are fairminded, just and loving.
