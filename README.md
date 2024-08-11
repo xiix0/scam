@@ -1,1 +1,1 @@
-You will be successful in love.
+So this is it.  We're going to die.
