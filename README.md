@@ -1,2 +1,1 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+Caution: breathing may be hazardous to your health.
