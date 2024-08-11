@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Executive ability is prominent in your make-up.
