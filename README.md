@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+Be security conscious -- National defense is at stake.
