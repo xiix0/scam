@@ -1,2 +1,1 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+Don't look now, but the man in the moon is laughing at you.
