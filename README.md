@@ -1,1 +1,2 @@
-Your present plans will be successful.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
