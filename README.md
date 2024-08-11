@@ -1,1 +1,2 @@
-Executive ability is prominent in your make-up.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
