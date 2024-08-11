@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+Try to value useful qualities in one who loves you.
