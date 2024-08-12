@@ -1,2 +1,1 @@
-	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
+You're definitely on their list.  The question to ask next is what list it is.
