@@ -1,1 +1,1 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+Good day to deal with people in high places; particularly lonely stewardesses.
