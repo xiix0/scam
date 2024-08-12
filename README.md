@@ -1,5 +1,3 @@
-Q:	Where's the Lone Ranger take his garbage?
-A:	To the dump, to the dump, to the dump dump dump!
-
-Q:	What's the Pink Panther say when he steps on an ant hill?
-A:	Dead ant, dead ant, dead ant dead ant dead ant...
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
