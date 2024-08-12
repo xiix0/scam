@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+Look afar and see the end from the beginning.
