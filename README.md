@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+You will not be elected to public office this year.
