@@ -1,1 +1,2 @@
-You display the wonderful traits of charm and courtesy.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
