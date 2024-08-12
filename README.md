@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
