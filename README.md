@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+Living your life is a task so difficult, it has never been attempted before.
