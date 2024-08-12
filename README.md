@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Your life would be very empty if you had nothing to regret.
