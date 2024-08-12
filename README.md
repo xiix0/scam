@@ -1,3 +1,2 @@
-Q:	How many psychiatrists does it take to change a light bulb?
-A:	Only one, but it takes a long time, and the light bulb has
-	to really want to change.
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
