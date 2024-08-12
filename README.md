@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+You will have good luck and overcome many hardships.
