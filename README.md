@@ -1,2 +1,3 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+My only love sprung from my only hate!
+Too early seen unknown, and known too late!
+		-- William Shakespeare, "Romeo and Juliet"
