@@ -1,2 +1,2 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
