@@ -1,3 +1,2 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
