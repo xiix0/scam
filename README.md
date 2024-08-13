@@ -1,2 +1,3 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
