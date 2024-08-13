@@ -1,2 +1,3 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+Q:	Why do the police always travel in threes?
+A:	One to do the reading, one to do the writing, and the other keeps
+	an eye on the two intellectuals.
