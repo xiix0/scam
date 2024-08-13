@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+Excellent day for putting Slinkies on an escalator.
