@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+A tall, dark stranger will have more fun than you.
