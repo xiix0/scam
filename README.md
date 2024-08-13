@@ -1,2 +1,1 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+Stay away from flying saucers today.
