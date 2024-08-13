@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
