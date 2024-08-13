@@ -1,3 +1,2 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
