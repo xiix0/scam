@@ -1,1 +1,1 @@
-You dialed 5483.
+Alimony and bribes will engage a large share of your wealth.
