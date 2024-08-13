@@ -1,1 +1,2 @@
-Truth will out this morning.  (Which may really mess things up.)
+Fine day for friends.
+So-so day for you.
