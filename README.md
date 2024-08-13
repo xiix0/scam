@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+Blow it out your ear.
