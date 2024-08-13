@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Your boss is a few sandwiches short of a picnic.
