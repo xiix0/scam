@@ -1,2 +1,1 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Good day to let down old friends who need help.
