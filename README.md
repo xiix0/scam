@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+The time is right to make new friends.
