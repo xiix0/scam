@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Truth will out this morning.  (Which may really mess things up.)
