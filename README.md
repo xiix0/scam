@@ -1,1 +1,1 @@
-The time is right to make new friends.
+It's all in the mind, ya know.
