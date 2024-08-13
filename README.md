@@ -1,1 +1,2 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
