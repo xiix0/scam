@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+Keep it short for pithy sake.
