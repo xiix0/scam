@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+You will be awarded a medal for disregarding safety in saving someone.
