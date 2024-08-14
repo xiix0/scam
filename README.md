@@ -1,1 +1,1 @@
-In the stairway of life, you'd best take the elevator.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
