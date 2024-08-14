@@ -1,1 +1,2 @@
-Bridge ahead.  Pay troll.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
