@@ -1,2 +1,1 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+Alimony and bribes will engage a large share of your wealth.
