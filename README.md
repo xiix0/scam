@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+In the stairway of life, you'd best take the elevator.
