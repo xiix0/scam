@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+Your talents will be recognized and suitably rewarded.
