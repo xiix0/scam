@@ -1,2 +1,2 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
