@@ -1,1 +1,1 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
