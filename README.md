@@ -1,3 +1,2 @@
-Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
-as intelligent as ever.
-		-- Samuel Beckett, "Endgame"
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
