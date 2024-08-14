@@ -1,2 +1,2 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
