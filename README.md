@@ -1,1 +1,2 @@
-If you stand on your head, you will get footprints in your hair.
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
