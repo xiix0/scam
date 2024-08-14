@@ -1,2 +1,1 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+Afternoon very favorable for romance.  Try a single person for a change.
