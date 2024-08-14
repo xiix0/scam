@@ -1,2 +1,2 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
