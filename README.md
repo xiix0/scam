@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
