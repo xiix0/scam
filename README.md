@@ -1,1 +1,2 @@
-Alimony and bribes will engage a large share of your wealth.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
