@@ -1,1 +1,2 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
