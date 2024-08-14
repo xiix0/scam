@@ -1,1 +1,2 @@
-After your lover has gone you will still have PEANUT BUTTER!
+When in doubt, tell the truth.
+		-- Mark Twain
