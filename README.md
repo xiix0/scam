@@ -1,1 +1,2 @@
-You have a deep appreciation of the arts and music.
+You learn to write as if to someone else because NEXT YEAR YOU WILL BE
+"SOMEONE ELSE."
