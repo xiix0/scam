@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+You recoil from the crude; you tend naturally toward the exquisite.
