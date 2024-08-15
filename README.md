@@ -1,1 +1,1 @@
-You never know how many friends you have until you rent a house on the beach.
+Let me put it this way: today is going to be a learning experience.
