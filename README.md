@@ -1,1 +1,2 @@
-You display the wonderful traits of charm and courtesy.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
