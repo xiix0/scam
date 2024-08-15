@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+You display the wonderful traits of charm and courtesy.
