@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+You will always get the greatest recognition for the job you least like.
