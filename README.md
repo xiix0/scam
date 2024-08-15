@@ -1,1 +1,1 @@
-You will outgrow your usefulness.
+You are going to have a new love affair.
