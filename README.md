@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
