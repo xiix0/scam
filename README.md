@@ -1,1 +1,1 @@
-Long life is in store for you.
+You will be held hostage by a radical group.
