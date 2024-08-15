@@ -1,1 +1,2 @@
-Go to a movie tonight.  Darkness becomes you.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
