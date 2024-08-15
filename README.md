@@ -1,1 +1,2 @@
-You like to form new friendships and make new acquaintances.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
