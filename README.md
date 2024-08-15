@@ -1,2 +1,2 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
