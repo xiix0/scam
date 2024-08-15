@@ -1,1 +1,1 @@
-You would if you could but you can't so you won't.
+Your aims are high, and you are capable of much.
