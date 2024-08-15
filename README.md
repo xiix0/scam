@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
