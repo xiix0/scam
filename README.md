@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+You will outgrow your usefulness.
