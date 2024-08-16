@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
