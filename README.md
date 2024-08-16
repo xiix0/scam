@@ -1,1 +1,2 @@
-You will attract cultured and artistic people to your home.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
