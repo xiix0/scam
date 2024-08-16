@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+You will get what you deserve.
