@@ -1,1 +1,1 @@
-Chess tonight.
+Long life is in store for you.
