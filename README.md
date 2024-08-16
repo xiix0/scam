@@ -1,1 +1,2 @@
-Never look up when dragons fly overhead.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
