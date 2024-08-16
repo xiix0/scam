@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+You're definitely on their list.  The question to ask next is what list it is.
