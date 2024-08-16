@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+You will be awarded a medal for disregarding safety in saving someone.
