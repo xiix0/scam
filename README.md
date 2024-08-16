@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+Perfect day for scrubbing the floor and other exciting things.
