@@ -1,2 +1,2 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
