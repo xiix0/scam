@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+Your mode of life will be changed for the better because of good news soon.
