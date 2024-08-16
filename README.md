@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
