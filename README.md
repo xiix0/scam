@@ -1,1 +1,2 @@
-You will be held hostage by a radical group.
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
