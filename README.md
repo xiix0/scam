@@ -1,1 +1,2 @@
-You will soon meet a person who will play an important role in your life.
+Q:	What's the difference between Bell Labs and the Boy Scouts of America?
+A:	The Boy Scouts have adult supervision.
