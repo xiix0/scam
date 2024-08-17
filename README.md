@@ -1,1 +1,2 @@
-Expect the worst, it's the least you can do.
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
