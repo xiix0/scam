@@ -1,1 +1,2 @@
-You are magnetic in your bearing.
+A is for Apple.
+		-- Hester Pryne
