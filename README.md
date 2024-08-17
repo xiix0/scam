@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
