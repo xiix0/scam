@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Make a wish, it might come true.
