@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
