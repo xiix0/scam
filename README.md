@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+You will inherit some money or a small piece of land.
