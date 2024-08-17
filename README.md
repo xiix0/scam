@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+You display the wonderful traits of charm and courtesy.
