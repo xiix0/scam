@@ -1,2 +1,1 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+Time to be aggressive.  Go after a tattooed Virgo.
