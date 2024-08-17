@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+You're currently going through a difficult transition period called "Life."
