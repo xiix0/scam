@@ -1,1 +1,1 @@
-Bank error in your favor.  Collect $200.
+You will win success in whatever calling you adopt.
