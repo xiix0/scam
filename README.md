@@ -1,2 +1,1 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+Don't look now, but there is a multi-legged creature on your shoulder.
