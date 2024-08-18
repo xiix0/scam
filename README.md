@@ -1,2 +1,1 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+Today is the tomorrow you worried about yesterday.
