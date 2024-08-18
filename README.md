@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+Fine day to work off excess energy.  Steal something heavy.
