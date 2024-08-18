@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
