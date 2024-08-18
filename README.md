@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+You should go home.
