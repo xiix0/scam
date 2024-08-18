@@ -1,2 +1,2 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
