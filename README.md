@@ -1,1 +1,2 @@
-Day of inquiry.  You will be subpoenaed.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
