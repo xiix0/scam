@@ -1,2 +1,2 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
