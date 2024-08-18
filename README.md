@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+Never look up when dragons fly overhead.
