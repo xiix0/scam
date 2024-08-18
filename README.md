@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+You're almost as happy as you think you are.
