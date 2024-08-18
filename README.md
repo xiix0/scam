@@ -1,2 +1,2 @@
-If you tell the truth you don't have to remember anything.
+The human race has one really effective weapon, and that is laughter.
 		-- Mark Twain
