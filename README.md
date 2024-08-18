@@ -1,1 +1,1 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+You have an unusual understanding of the problems of human relationships.
