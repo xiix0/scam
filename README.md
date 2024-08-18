@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+Excellent time to become a missing person.
