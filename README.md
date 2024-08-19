@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+You are a very redundant person, that's what kind of person you are.
