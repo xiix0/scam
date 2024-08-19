@@ -1,2 +1,2 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+Wagner's music is better than it sounds.
+		-- Mark Twain
