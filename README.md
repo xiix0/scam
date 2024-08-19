@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+You are only young once, but you can stay immature indefinitely.
