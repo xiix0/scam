@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+Let me put it this way: today is going to be a learning experience.
