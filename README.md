@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+Your life would be very empty if you had nothing to regret.
