@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+You attempt things that you do not even plan because of your extreme stupidity.
