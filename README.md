@@ -1,3 +1,2 @@
-It is often the case that the man who can't tell a lie thinks he is the best
-judge of one.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
