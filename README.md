@@ -1,2 +1,1 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+You have an unusual equipment for success.  Be sure to use it properly.
