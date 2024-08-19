@@ -1,3 +1,2 @@
-The difference between the right word and the almost right word is the
-difference between lightning and the lightning bug.
-		-- Mark Twain
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
