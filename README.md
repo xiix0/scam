@@ -1,2 +1,2 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
