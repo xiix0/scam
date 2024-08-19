@@ -1,1 +1,1 @@
-Just to have it is enough.
+Tuesday After Lunch is the cosmic time of the week.
