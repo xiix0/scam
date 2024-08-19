@@ -1,2 +1,3 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
