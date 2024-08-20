@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+Don't hate yourself in the morning -- sleep till noon.
