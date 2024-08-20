@@ -1,3 +1,3 @@
-Q:	What's the difference between a dead dog in the road and a dead
-	lawyer in the road?
-A:	There are skid marks in front of the dog.
+It were not best that we should all think alike; it is difference of opinion
+that makes horse-races.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
