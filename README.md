@@ -1,3 +1,2 @@
-It were not best that we should all think alike; it is difference of opinion
-that makes horse-races.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
