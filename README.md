@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+You're at the end of the road again.
