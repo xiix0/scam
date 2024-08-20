@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+Try to value useful qualities in one who loves you.
