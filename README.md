@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
