@@ -1,2 +1,2 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
