@@ -1,2 +1,2 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
