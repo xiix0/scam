@@ -1,1 +1,8 @@
-Don't let your mind wander -- it's too little to be let out alone.
+To be or not to be.
+		-- Shakespeare
+To do is to be.
+		-- Nietzsche
+To be is to do.
+		-- Sartre
+Do be do be do.
+		-- Sinatra
