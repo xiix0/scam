@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
