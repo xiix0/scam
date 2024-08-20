@@ -1,1 +1,2 @@
-An avocado-tone refrigerator would look good on your resume.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
