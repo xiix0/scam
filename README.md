@@ -1,3 +1,2 @@
-Q:	Know what the difference between your latest project
-	and putting wings on an elephant is?
-A:	Who knows?  The elephant *might* fly, heh, heh...
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
