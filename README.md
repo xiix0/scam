@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+You look like a million dollars.  All green and wrinkled.
