@@ -1,3 +1,3 @@
-Q:	How do you play religious roulette?
-A:	You stand around in a circle and blaspheme and see who gets
-	struck by lightning first.
+Perilous to all of us are the devices of an art deeper than we ourselves
+possess.
+		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
