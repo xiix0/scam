@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
