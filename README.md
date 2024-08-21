@@ -1,2 +1,3 @@
-Alas, how love can trifle with itself!
-		-- William Shakespeare, "The Two Gentlemen of Verona"
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
