@@ -1,3 +1,2 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+Q:	How many IBM 370's does it take to execute a job?
+A:	Four, three to hold it down, and one to rip its head off.
