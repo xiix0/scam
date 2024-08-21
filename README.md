@@ -1,5 +1,5 @@
-Steady movement is more important than speed, much of the time.  So long
-as there is a regular progression of stimuli to get your mental hooks
-into, there is room for lateral movement.  Once this begins, its rate is
-a matter of discretion.
-		-- Corwin, Prince of Amber
+	"You have heard me speak of Professor Moriarty?"
+	"The famous scientific criminal, as famous among crooks as --"
+	"My blushes, Watson," Holmes murmured, in a deprecating voice.
+	"I was about to say 'as he is unknown to the public.'"
+		-- A. Conan Doyle, "The Valley of Fear"
