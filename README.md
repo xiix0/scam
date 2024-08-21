@@ -1,1 +1,2 @@
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+Fine day for friends.
+So-so day for you.
