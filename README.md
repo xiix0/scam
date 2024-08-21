@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+You may be recognized soon.  Hide.
