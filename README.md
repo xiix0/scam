@@ -1,1 +1,2 @@
-Change your thoughts and you change your world.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
