@@ -1,5 +1,1 @@
-Q:	How do you catch a unique rabbit?
-A:	Unique up on it!
-
-Q:	How do you catch a tame rabbit?
-A:	The tame way!
+Future looks spotty.  You will spill soup in late evening.
