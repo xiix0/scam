@@ -1,1 +1,3 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
