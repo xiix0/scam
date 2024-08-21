@@ -1,2 +1,1 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Good day for overcoming obstacles.  Try a steeplechase.
