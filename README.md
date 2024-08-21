@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
