@@ -1,2 +1,2 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+Wagner's music is better than it sounds.
+		-- Mark Twain
