@@ -1,1 +1,2 @@
-Alimony and bribes will engage a large share of your wealth.
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
