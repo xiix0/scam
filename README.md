@@ -1,1 +1,1 @@
-Future looks spotty.  You will spill soup in late evening.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
