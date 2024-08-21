@@ -1,1 +1,3 @@
-Do not sleep in a eucalyptus tree tonight.
+Q:	What do you call a WASP who doesn't work for his father, isn't a
+	lawyer, and believes in social causes?
+A:	A failure.
