@@ -1,2 +1,1 @@
-Extreme fear can neither fight nor fly.
-		-- William Shakespeare, "The Rape of Lucrece"
+Artistic ventures highlighted.  Rob a museum.
