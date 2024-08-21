@@ -1,3 +1,2 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
