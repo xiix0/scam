@@ -1,1 +1,1 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+A visit to a strange place will bring fresh work.
