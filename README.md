@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+If your life was a horse, you'd have to shoot it.
