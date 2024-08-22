@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+You have an ambitious nature and may make a name for yourself.
