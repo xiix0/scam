@@ -1,1 +1,2 @@
-An exotic journey in downtown Newark is in your future.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
