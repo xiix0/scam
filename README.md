@@ -1,1 +1,2 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
