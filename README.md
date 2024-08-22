@@ -1,1 +1,2 @@
-Be cautious in your daily affairs.
+A is for Apple.
+		-- Hester Pryne
