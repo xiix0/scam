@@ -1,1 +1,2 @@
-You are only young once, but you can stay immature indefinitely.
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
