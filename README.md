@@ -1,8 +1,8 @@
-To be or not to be.
-		-- Shakespeare
-To do is to be.
-		-- Nietzsche
-To be is to do.
-		-- Sartre
-Do be do be do.
-		-- Sinatra
+October.
+
+This is one of the peculiarly dangerous months to speculate in stocks in.
+
+The others are July, January, September, April, November, May, March, June,
+December, August, and February.
+
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
