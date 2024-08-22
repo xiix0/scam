@@ -1,1 +1,2 @@
-Excellent time to become a missing person.
+You learn to write as if to someone else because NEXT YEAR YOU WILL BE
+"SOMEONE ELSE."
