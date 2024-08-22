@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
