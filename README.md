@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+Excellent time to become a missing person.
