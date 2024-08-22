@@ -1,2 +1,3 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+I don't know half of you half as well as I should like; and I like less
+than half of you half as well as you deserve.
+		-- J. R. R. Tolkien
