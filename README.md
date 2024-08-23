@@ -1,2 +1,2 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
