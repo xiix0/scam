@@ -1,1 +1,1 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Hope that the day after you die is a nice day.
