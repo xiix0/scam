@@ -1,1 +1,1 @@
-You will pass away very quickly.
+You like to form new friendships and make new acquaintances.
