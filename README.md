@@ -1,2 +1,1 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+Don't let your mind wander -- it's too little to be let out alone.
