@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+You display the wonderful traits of charm and courtesy.
