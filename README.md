@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
