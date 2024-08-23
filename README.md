@@ -1,1 +1,2 @@
-You are taking yourself far too seriously.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
