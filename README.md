@@ -1,3 +1,1 @@
-Grief can take care of itself; but to get the full value of a joy you must
-have somebody to divide it with.
-		-- Mark Twain
+Try to have as good a life as you can under the circumstances.
