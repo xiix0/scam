@@ -1,1 +1,3 @@
-Don't let your mind wander -- it's too little to be let out alone.
+Q:	Why does Washington have the most lawyers per capita and
+	New Jersey the most toxic waste dumps?
+A:	God gave New Jersey first choice.
