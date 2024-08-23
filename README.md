@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+Good day to let down old friends who need help.
