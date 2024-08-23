@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
