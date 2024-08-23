@@ -1,3 +1,6 @@
-It is by the fortune of God that, in this country, we have three benefits:
-freedom of speech, freedom of thought, and the wisdom never to use either.
-		-- Mark Twain
+For there are moments when one can neither think nor feel.  And if one can
+neither think nor feel, she thought, where is one?
+		-- Virginia Woolf, "To the Lighthouse"
+
+	[Quoted in "VMS Internals and Data Structures", V4.4, when
+	 referring to powerfail recovery.]
