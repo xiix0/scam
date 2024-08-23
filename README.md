@@ -1,1 +1,2 @@
-Hope that the day after you die is a nice day.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
