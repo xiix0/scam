@@ -1,1 +1,2 @@
-Try to value useful qualities in one who loves you.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
