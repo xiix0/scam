@@ -1,1 +1,1 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+Write yourself a threatening letter and pen a defiant reply.
