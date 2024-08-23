@@ -1,1 +1,1 @@
-You have no real enemies.
+You are taking yourself far too seriously.
