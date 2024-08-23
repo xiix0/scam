@@ -1,1 +1,2 @@
-You have a truly strong individuality.
+When in doubt, tell the truth.
+		-- Mark Twain
