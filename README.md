@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
