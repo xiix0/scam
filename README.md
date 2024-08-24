@@ -1,1 +1,2 @@
-Among the lucky, you are the chosen one.
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
