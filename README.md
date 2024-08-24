@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+Among the lucky, you are the chosen one.
