@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+You will have good luck and overcome many hardships.
