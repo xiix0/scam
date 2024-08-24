@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+When in doubt, tell the truth.
+		-- Mark Twain
