@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+Things will be bright in P.M.  A cop will shine a light in your face.
