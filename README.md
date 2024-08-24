@@ -1,2 +1,2 @@
-Q:	What's tiny and yellow and very, very, dangerous?
-A:	A canary with the super-user password.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
