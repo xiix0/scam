@@ -1,2 +1,2 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+What I tell you three times is true.
+		-- Lewis Carroll
