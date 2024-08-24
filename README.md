@@ -1,2 +1,1 @@
-Q:	What do agnostic, insomniac dyslexics do at night?
-A:	Stay awake and wonder if there's a dog.
+Beware of a tall blond man with one black shoe.
