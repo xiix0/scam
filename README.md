@@ -1,2 +1,1 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+Beware of a tall black man with one blond shoe.
