@@ -1,1 +1,1 @@
-You'll be called to a post requiring ability in handling groups of people.
+You never know how many friends you have until you rent a house on the beach.
