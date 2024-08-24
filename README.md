@@ -1,2 +1,2 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
