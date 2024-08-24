@@ -1,1 +1,2 @@
-You are number 6!  Who is number one?
+Too much is just enough.
+		-- Mark Twain, on whiskey
