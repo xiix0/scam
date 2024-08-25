@@ -1,3 +1,3 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
+Don't go around saying the world owes you a living.  The world owes you
+nothing.  It was here first.
 		-- Mark Twain
