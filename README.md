@@ -1,1 +1,3 @@
-Try to get all of your posthumous medals in advance.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
