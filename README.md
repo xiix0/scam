@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Your talents will be recognized and suitably rewarded.
