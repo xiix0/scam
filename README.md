@@ -1,1 +1,2 @@
-Your talents will be recognized and suitably rewarded.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
