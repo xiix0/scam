@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+You will be awarded the Nobel Peace Prize... posthumously.
