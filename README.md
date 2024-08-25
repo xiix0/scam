@@ -1,1 +1,1 @@
-You will contract a rare disease.
+You will give someone a piece of your mind, which you can ill afford.
