@@ -1,1 +1,3 @@
-Tuesday is the Wednesday of the rest of your life.
+Someone is speaking well of you.
+
+How unusual!
