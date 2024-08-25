@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+You have the power to influence all with whom you come in contact.
