@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+Beauty and harmony are as necessary to you as the very breath of life.
