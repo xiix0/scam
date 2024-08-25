@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+You will meet an important person who will help you advance professionally.
