@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+You have had a long-term stimulation relative to business.
