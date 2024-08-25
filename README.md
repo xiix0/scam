@@ -1,1 +1,1 @@
-You should go home.
+Today is the tomorrow you worried about yesterday.
