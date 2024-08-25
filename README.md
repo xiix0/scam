@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+Domestic happiness and faithful friends.
