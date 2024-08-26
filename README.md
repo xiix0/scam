@@ -1,1 +1,3 @@
-Good news from afar can bring you a welcome visitor.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
