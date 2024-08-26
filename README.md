@@ -1,3 +1,2 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
