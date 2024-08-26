@@ -1,1 +1,1 @@
-You will remember something that you should not have forgotten.
+Good day to deal with people in high places; particularly lonely stewardesses.
