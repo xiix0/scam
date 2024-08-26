@@ -1,1 +1,2 @@
-You are dishonest, but never to the point of hurting a friend.
+Your goose is cooked.
+(Your current chick is burned up too!)
