@@ -1,2 +1,1 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+Good news.  Ten weeks from Friday will be a pretty good day.
