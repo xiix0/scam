@@ -1,2 +1,2 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
