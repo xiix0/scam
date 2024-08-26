@@ -1,3 +1,3 @@
-Q:	Why do people who live near Niagara Falls have flat foreheads?
-A:	Because every morning they wake up thinking "What *is* that noise?
-	Oh, right, *of course*!
+A banker is a fellow who lends you his umbrella when the sun is shining
+and wants it back the minute it begins to rain.
+		-- Mark Twain
