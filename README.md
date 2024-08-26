@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+You have many friends and very few living enemies.
