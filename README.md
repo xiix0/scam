@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+Don't read everything you believe.
