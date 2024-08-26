@@ -1,1 +1,4 @@
-Of course you have a purpose -- to find a purpose.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
