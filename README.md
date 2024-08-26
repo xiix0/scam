@@ -1,1 +1,2 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+Q:	What do you have when you have a lawyer buried up to his neck in sand?
+A:	Not enough sand.
