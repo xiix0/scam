@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+Excellent time to become a missing person.
