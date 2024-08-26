@@ -1,1 +1,2 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
