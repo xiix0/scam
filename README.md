@@ -1,1 +1,2 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
