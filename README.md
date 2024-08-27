@@ -1,2 +1,1 @@
-Q:	What's the difference between a duck and an elephant?
-A:	You can't get down off an elephant.
+Good news from afar can bring you a welcome visitor.
