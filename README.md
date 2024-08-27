@@ -1,1 +1,2 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
