@@ -1,5 +1,8 @@
-When I was younger, I could remember anything, whether it had happened
-or not; but my faculties are decaying now and soon I shall be so I
-cannot remember any but the things that never happened.  It is sad to
-go to pieces like this but we all have to do it.
-		-- Mark Twain
+Delay not, Caesar.  Read it instantly.
+		-- Shakespeare, "Julius Caesar" 3,1
+
+Here is a letter, read it at your leisure.
+		-- Shakespeare, "Merchant of Venice" 5,1
+
+	[Quoted in "VMS Internals and Data Structures", V4.4, when
+	 referring to I/O system services.]
