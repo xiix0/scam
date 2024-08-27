@@ -1,4 +1,3 @@
-AWAKE! FEAR! FIRE! FOES! AWAKE!
-	FEAR! FIRE! FOES!
-		AWAKE! AWAKE!
-		-- J. R. R. Tolkien
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
