@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+You'd like to do it instantaneously, but that's too slow.
