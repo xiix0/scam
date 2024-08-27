@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+An exotic journey in downtown Newark is in your future.
