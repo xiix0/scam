@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+Excellent time to become a missing person.
