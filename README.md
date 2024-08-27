@@ -1,2 +1,1 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+Try to have as good a life as you can under the circumstances.
