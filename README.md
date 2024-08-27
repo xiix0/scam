@@ -1,1 +1,1 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
