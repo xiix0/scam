@@ -1,1 +1,4 @@
-An exotic journey in downtown Newark is in your future.
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
