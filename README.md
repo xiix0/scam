@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Executive ability is prominent in your make-up.
