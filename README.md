@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Love is in the offing.  Be affectionate to one who adores you.
