@@ -1,1 +1,2 @@
-You are a very redundant person, that's what kind of person you are.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
