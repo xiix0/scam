@@ -1,2 +1,3 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
