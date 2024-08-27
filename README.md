@@ -1,1 +1,2 @@
-What happened last night can happen again.
+Wagner's music is better than it sounds.
+		-- Mark Twain
