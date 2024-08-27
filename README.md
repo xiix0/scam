@@ -1,1 +1,4 @@
-Tomorrow will be cancelled due to lack of interest.
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
