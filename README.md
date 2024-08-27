@@ -1,2 +1,2 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
