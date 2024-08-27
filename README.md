@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+What happened last night can happen again.
