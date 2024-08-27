@@ -1,1 +1,1 @@
-Day of inquiry.  You will be subpoenaed.
+Don't look back, the lemmings are gaining on you.
