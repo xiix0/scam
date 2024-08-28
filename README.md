@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You will have good luck and overcome many hardships.
