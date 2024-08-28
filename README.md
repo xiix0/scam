@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of good news soon.
+You have Egyptian flu: you're going to be a mummy.
