@@ -1,2 +1,2 @@
-What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+All generalizations are false, including this one.
+		-- Mark Twain
