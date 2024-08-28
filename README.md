@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+It's all in the mind, ya know.
