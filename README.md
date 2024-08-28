@@ -1,2 +1,2 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
