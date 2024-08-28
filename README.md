@@ -1,1 +1,2 @@
-You will be surrounded by luxury.
+A is for Apple.
+		-- Hester Pryne
