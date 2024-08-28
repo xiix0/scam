@@ -1,1 +1,2 @@
-Stay away from hurricanes for a while.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
