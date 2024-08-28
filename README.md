@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+Don't look now, but the man in the moon is laughing at you.
