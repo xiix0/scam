@@ -1,1 +1,2 @@
-You dialed 5483.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
