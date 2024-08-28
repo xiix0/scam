@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
