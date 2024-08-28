@@ -1,3 +1,2 @@
-Q:	Why do people who live near Niagara Falls have flat foreheads?
-A:	Because every morning they wake up thinking "What *is* that noise?
-	Oh, right, *of course*!
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
