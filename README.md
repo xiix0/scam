@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Don't kiss an elephant on the lips today.
