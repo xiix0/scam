@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Cold hands, no gloves.
