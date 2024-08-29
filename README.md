@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+You get along very well with everyone except animals and people.
