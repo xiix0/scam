@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+Caution: Keep out of reach of children.
