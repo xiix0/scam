@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+You don't become a failure until you're satisfied with being one.
