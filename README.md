@@ -1,2 +1,1 @@
-Q:	What do you get when you cross the Godfather with an attorney?
-A:	An offer you can't understand.
+Don't let your mind wander -- it's too little to be let out alone.
