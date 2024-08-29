@@ -1,1 +1,2 @@
-You will reach the highest possible point in your business or profession.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
