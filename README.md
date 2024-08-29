@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+You are a fluke of the universe; you have no right to be here.
