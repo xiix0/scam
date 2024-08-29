@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+Do not overtax your powers.
