@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
