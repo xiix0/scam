@@ -1,1 +1,2 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
