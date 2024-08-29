@@ -1,2 +1,2 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
