@@ -1,1 +1,2 @@
-You dialed 5483.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
