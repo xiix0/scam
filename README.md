@@ -1,4 +1,17 @@
-In India, "cold weather" is merely a conventional phrase and has come into
-use through the necessity of having some way to distinguish between weather
-which will melt a brass door-knob and weather which will only make it mushy.
-		-- Mark Twain
+A Tale of Two Cities LITE(tm)
+	-- by Charles Dickens
+
+	A man in love with a girl who loves another man who looks just
+	like him has his head chopped off in France because of a mean
+	lady who knits.
+
+Crime and Punishment LITE(tm)
+	-- by Fyodor Dostoevski
+
+	A man sends a nasty letter to a pawnbroker, but later
+	feels guilty and apologizes.
+
+The Odyssey LITE(tm)
+	-- by Homer
+
+	After working late, a valiant warrior gets lost on his way home.
