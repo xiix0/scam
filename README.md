@@ -1,2 +1,2 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+Few things are harder to put up with than the annoyance of a good example.
+		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
