@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
