@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+Today is the tomorrow you worried about yesterday.
