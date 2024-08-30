@@ -1,1 +1,1 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+Love is in the offing.  Be affectionate to one who adores you.
