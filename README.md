@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+"... all the modern inconveniences ..."
+		-- Mark Twain
