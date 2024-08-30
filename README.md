@@ -1,1 +1,2 @@
-Love is in the offing.  Be affectionate to one who adores you.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
