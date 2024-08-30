@@ -1,2 +1,2 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
