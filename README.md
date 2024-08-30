@@ -1,2 +1,2 @@
-Q:	How many Marxists does it take to screw in a light bulb?
-A:	None:  The light bulb contains the seeds of its own revolution.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
