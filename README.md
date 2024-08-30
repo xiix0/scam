@@ -1,1 +1,1 @@
-You will be divorced within a year.
+You are confused; but this is your normal state.
