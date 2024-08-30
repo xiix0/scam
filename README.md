@@ -1,1 +1,2 @@
-You two ought to be more careful--your love could drag on for years and years.
+You're growing out of some of your problems, but there are others that
+you're growing into.
