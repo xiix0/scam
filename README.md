@@ -1,1 +1,1 @@
-You will always get the greatest recognition for the job you least like.
+You're a card which will have to be dealt with.
