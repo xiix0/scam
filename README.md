@@ -1,2 +1,3 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
