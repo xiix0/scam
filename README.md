@@ -1,3 +1,2 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+Q:	How many Marxists does it take to screw in a light bulb?
+A:	None:  The light bulb contains the seeds of its own revolution.
