@@ -1,2 +1,1 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+Don't tell any big lies today.  Small ones can be just as effective.
