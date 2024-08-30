@@ -1,1 +1,2 @@
-You will pass away very quickly.
+Q:	What is the sound of one cat napping?
+A:	Mu.
