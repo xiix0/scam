@@ -1,1 +1,3 @@
-You are a fluke of the universe; you have no right to be here.
+All say, "How hard it is that we have to die"--a strange complaint to come from
+the mouths of people who have had to live.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
