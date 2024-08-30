@@ -1,2 +1,2 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+Q:	How many marketing people does it take to change a light bulb?
+A:	I'll have to get back to you on that.
