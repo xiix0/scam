@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+You can create your own opportunities this week.  Blackmail a senior executive.
