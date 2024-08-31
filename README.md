@@ -1,1 +1,1 @@
-Don't let your mind wander -- it's too little to be let out alone.
+Never look up when dragons fly overhead.
