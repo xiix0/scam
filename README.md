@@ -1,3 +1,1 @@
-Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
-as intelligent as ever.
-		-- Samuel Beckett, "Endgame"
+You don't become a failure until you're satisfied with being one.
