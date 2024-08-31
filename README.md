@@ -1,1 +1,1 @@
-Break into jail and claim police brutality.
+Your lucky color has faded.
