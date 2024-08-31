@@ -1,1 +1,3 @@
-You will live to see your grandchildren.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
