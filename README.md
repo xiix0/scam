@@ -1,3 +1,2 @@
-Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
-A:	That's proprietary information.  Answer available from AT&T on payment
-	of license fee (binary only).
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
