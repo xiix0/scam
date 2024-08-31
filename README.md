@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+Go to a movie tonight.  Darkness becomes you.
