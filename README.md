@@ -1,1 +1,1 @@
-You definitely intend to start living sometime soon.
+Change your thoughts and you change your world.
