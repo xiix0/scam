@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
