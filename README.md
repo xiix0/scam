@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+Don't let your mind wander -- it's too little to be let out alone.
