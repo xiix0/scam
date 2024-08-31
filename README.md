@@ -1,2 +1,3 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #4
+A:	Go west, young man, go west!
+Q:	What do wabbits do when they get tiwed of wunning awound?
