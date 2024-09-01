@@ -1,2 +1,2 @@
-You learn to write as if to someone else because NEXT YEAR YOU WILL BE
-"SOMEONE ELSE."
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
