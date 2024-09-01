@@ -1,2 +1,1 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+You love your home and want it to be beautiful.
