@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
