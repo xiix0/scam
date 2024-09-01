@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
