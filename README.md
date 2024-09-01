@@ -1,1 +1,2 @@
-Bank error in your favor.  Collect $200.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
