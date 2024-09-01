@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+Your true value depends entirely on what you are compared with.
