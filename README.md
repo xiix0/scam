@@ -1,1 +1,2 @@
-You're almost as happy as you think you are.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
