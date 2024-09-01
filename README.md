@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+Tuesday After Lunch is the cosmic time of the week.
