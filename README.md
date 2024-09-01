@@ -1,3 +1,2 @@
-So so is good, very good, very excellent good:
-and yet it is not; it is but so so.
-		-- William Shakespeare, "As You Like It"
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
