@@ -1,1 +1,1 @@
-You've been leading a dog's life.  Stay off the furniture.
+A few hours grace before the madness begins again.
