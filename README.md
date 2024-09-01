@@ -1,1 +1,1 @@
-Beware the one behind you.
+Future looks spotty.  You will spill soup in late evening.
