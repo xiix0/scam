@@ -1,1 +1,1 @@
-Don't relax!  It's only your tension that's holding you together.
+Hope that the day after you die is a nice day.
