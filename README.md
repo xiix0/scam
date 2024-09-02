@@ -1,1 +1,2 @@
-Your lucky number has been disconnected.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
