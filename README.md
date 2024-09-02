@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+Don't look now, but the man in the moon is laughing at you.
