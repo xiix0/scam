@@ -1,1 +1,2 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
