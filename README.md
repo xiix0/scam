@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+Do nothing unless you must, and when you must act -- hesitate.
