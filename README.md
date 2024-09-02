@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
