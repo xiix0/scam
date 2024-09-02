@@ -1,1 +1,2 @@
-You will never know hunger.
+Fine day for friends.
+So-so day for you.
