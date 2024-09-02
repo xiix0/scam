@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+Don't tell any big lies today.  Small ones can be just as effective.
