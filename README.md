@@ -1,1 +1,2 @@
-Don't look now, but the man in the moon is laughing at you.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
