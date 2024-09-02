@@ -1,1 +1,2 @@
-You will be surrounded by luxury.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
