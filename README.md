@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+You're a card which will have to be dealt with.
