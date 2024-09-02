@@ -1,1 +1,1 @@
-Just to have it is enough.
+Your aim is high and to the right.
