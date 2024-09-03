@@ -1,2 +1,2 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
