@@ -1,1 +1,2 @@
-Another good night not to sleep in a eucalyptus tree.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
