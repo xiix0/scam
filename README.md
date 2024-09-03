@@ -1,4 +1,2 @@
-	You will remember, Watson, how the dreadful business of the
-Abernetty family was first brought to my notice by the depth which the
-parsley had sunk into the butter upon a hot day.
-		-- Sherlock Holmes
+Q:	How many lawyers does it take to change a light bulb?
+A:	One.  Only it's his light bulb when he's done.
