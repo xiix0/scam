@@ -1,1 +1,2 @@
-You possess a mind not merely twisted, but actually sprained.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
