@@ -1,2 +1,3 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
