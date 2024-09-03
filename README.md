@@ -1,2 +1,5 @@
-Q:	How many IBM 370's does it take to execute a job?
-A:	Four, three to hold it down, and one to rip its head off.
+Q:	How do you catch a unique rabbit?
+A:	Unique up on it!
+
+Q:	How do you catch a tame rabbit?
+A:	The tame way!
