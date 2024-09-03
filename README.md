@@ -1,2 +1,1 @@
-question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+Truth will out this morning.  (Which may really mess things up.)
