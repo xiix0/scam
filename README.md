@@ -1,2 +1,1 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+Ships are safe in harbor, but they were never meant to stay there.
