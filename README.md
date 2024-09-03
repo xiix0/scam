@@ -1,2 +1,1 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+Caution: breathing may be hazardous to your health.
