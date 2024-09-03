@@ -1,2 +1,2 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
