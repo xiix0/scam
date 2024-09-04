@@ -1,2 +1,2 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
