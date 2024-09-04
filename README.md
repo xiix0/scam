@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+Your mode of life will be changed for the better because of new developments.
