@@ -1,2 +1,1 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Fine day to work off excess energy.  Steal something heavy.
