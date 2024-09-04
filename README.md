@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+Live in a world of your own, but always welcome visitors.
