@@ -1,2 +1,1 @@
-What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, "The League of Frightened Men"
+Are you ever going to do the dishes?  Or will you change your major to biology?
