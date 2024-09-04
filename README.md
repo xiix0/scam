@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+You have been selected for a secret mission.
