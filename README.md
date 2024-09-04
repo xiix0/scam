@@ -1,1 +1,5 @@
-Of course you have a purpose -- to find a purpose.
+Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
+sword wielding purple fish glued to Harley-Davidson motorcycles.
+
+Oh, and have a nice day!
+		-- Bryce Nesbitt '84
