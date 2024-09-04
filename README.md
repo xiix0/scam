@@ -1,1 +1,2 @@
-You need more time; and you probably always will.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
