@@ -1,5 +1,4 @@
-Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
-sword wielding purple fish glued to Harley-Davidson motorcycles.
-
-Oh, and have a nice day!
-		-- Bryce Nesbitt '84
+Behold, the fool saith, "Put not all thine eggs in the one basket"--which is
+but a manner of saying, "Scatter your money and your attention;" but the wise
+man saith, "Put all your eggs in the one basket and--WATCH THAT BASKET."
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
