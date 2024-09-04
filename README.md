@@ -1,2 +1,3 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
