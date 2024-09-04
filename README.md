@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
