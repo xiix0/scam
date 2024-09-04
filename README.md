@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+You need more time; and you probably always will.
