@@ -1,2 +1,1 @@
-Q:	What do you get when you cross the Godfather with an attorney?
-A:	An offer you can't understand.
+Your true value depends entirely on what you are compared with.
