@@ -1,3 +1,2 @@
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
-		-- Mark Twain
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
