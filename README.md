@@ -1,1 +1,2 @@
-You've been leading a dog's life.  Stay off the furniture.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
