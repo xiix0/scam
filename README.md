@@ -1,1 +1,1 @@
-You will be divorced within a year.
+You are dishonest, but never to the point of hurting a friend.
