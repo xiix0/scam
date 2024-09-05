@@ -1,1 +1,1 @@
-Chess tonight.
+Today is the last day of your life so far.
