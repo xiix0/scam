@@ -1,1 +1,2 @@
-You are dishonest, but never to the point of hurting a friend.
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
