@@ -1,1 +1,2 @@
-Try to get all of your posthumous medals in advance.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
