@@ -1,1 +1,1 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+Avert misunderstanding by calm, poise, and balance.
