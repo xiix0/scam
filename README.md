@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+Long life is in store for you.
