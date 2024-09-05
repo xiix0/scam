@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+You will be divorced within a year.
