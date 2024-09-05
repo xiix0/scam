@@ -1,1 +1,1 @@
-You seek to shield those you love and you like the role of the provider.
+Don't you feel more like you do now than you did when you came in?
