@@ -1,2 +1,1 @@
-Patch griefs with proverbs.
-		-- William Shakespeare, "Much Ado About Nothing"
+So this is it.  We're going to die.
