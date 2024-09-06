@@ -1,1 +1,2 @@
-Today is the last day of your life so far.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
