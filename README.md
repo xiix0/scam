@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+Try to get all of your posthumous medals in advance.
