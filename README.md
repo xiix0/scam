@@ -1,1 +1,1 @@
-You will be reincarnated as a toad; and you will be much happier.
+That secret you've been guarding, isn't.
