@@ -1,1 +1,1 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+If you can read this, you're too close.
