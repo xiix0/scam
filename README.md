@@ -1,1 +1,1 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+You will be reincarnated as a toad; and you will be much happier.
