@@ -1,1 +1,3 @@
-If you can read this, you're too close.
+I don't know half of you half as well as I should like; and I like less
+than half of you half as well as you deserve.
+		-- J. R. R. Tolkien
