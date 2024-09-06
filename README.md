@@ -1,1 +1,1 @@
-You are so boring that when I see you my feet go to sleep.
+You are a very redundant person, that's what kind of person you are.
