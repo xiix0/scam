@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+Q:	How do you keep a moron in suspense?
