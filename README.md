@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+What happened last night can happen again.
