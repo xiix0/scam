@@ -1,1 +1,1 @@
-Are you ever going to do the dishes?  Or will you change your major to biology?
+You will hear good news from one you thought unfriendly to you.
