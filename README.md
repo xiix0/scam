@@ -1,3 +1,5 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	You won't find a lawyer who can change a light bulb.  Now, if
-	you're looking for a lawyer to screw a light bulb...
+The notes blatted skyward as they rose over the Canada geese, feathered
+rumps mooning the day, webbed appendages frantically pedaling unseen
+bicycles in their search for sustenance, driven by cruel Nature's maxim,
+'Ya wanna eat, ya gotta work,' and at last I knew Pittsburgh.
+		-- Winning sentence, 1987 Bulwer-Lytton bad fiction contest.
