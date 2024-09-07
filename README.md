@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+Among the lucky, you are the chosen one.
