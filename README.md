@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
