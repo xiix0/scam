@@ -1,1 +1,1 @@
-It may or may not be worthwhile, but it still has to be done.
+This will be a memorable month -- no matter how hard you try to forget it.
