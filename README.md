@@ -1,1 +1,1 @@
-Accent on helpful side of your nature.  Drain the moat.
+You will step on the night soil of many countries.
