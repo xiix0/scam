@@ -1,1 +1,2 @@
-You will step on the night soil of many countries.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
