@@ -1,1 +1,2 @@
-You have a deep appreciation of the arts and music.
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
