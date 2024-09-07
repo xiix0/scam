@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+It may or may not be worthwhile, but it still has to be done.
