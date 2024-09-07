@@ -1,1 +1,2 @@
-Truth will out this morning.  (Which may really mess things up.)
+All generalizations are false, including this one.
+		-- Mark Twain
