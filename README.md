@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+Look afar and see the end from the beginning.
