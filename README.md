@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+Don't hate yourself in the morning -- sleep till noon.
