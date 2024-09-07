@@ -1,4 +1,3 @@
-Gratitude and treachery are merely the two extremities of the same procession.
-You have seen all of it that is worth staying for when the band and the gaudy
-officials have gone by.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
+A:	Easy.  It's because they can't figure out how to get the little
+	bottles into the typewriter.
