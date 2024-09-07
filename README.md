@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+Truth will out this morning.  (Which may really mess things up.)
