@@ -1,1 +1,2 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
