@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+You're being followed.  Cut out the hanky-panky for a few days.
