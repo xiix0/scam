@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Don't look now, but there is a multi-legged creature on your shoulder.
