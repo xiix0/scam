@@ -1,1 +1,2 @@
-Don't kiss an elephant on the lips today.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
