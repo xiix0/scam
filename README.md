@@ -1,1 +1,2 @@
-Are you making all this up as you go along?
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
