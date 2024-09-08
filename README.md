@@ -1,1 +1,2 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
