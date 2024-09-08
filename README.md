@@ -1,3 +1,2 @@
-It were not best that we should all think alike; it is difference of opinion
-that makes horse-races.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
