@@ -1,1 +1,2 @@
-Your love life will be happy and harmonious.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
