@@ -1,1 +1,2 @@
-The time is right to make new friends.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
