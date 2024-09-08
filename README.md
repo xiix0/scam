@@ -1,2 +1,1 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+You are fighting for survival in your own sweet and gentle way.
