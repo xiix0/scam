@@ -1,2 +1,2 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+Fine day for friends.
+So-so day for you.
