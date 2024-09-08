@@ -1,2 +1,1 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+You seek to shield those you love and you like the role of the provider.
