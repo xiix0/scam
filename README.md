@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
