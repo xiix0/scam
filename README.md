@@ -1,2 +1,2 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
