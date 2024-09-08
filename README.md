@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+Your business will assume vast proportions.
