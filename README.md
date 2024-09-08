@@ -1,2 +1,2 @@
-Fine day for friends.
-So-so day for you.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
