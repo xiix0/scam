@@ -1,3 +1,9 @@
-Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
-A:	That's proprietary information.  Answer available from AT&T on payment
-	of license fee (binary only).
+Q:	How many DEC repairman does it take to fix a flat?
+A:	Five; four to hold the car up and one to swap tires.
+
+Q:	How long does it take?
+A:	It's indeterminate.
+	It will depend upon how many flats they've brought with them.
+
+Q:	What happens if you've got TWO flats?
+A:	They replace your generator.
