@@ -1,1 +1,1 @@
-You are as I am with You.
+You can create your own opportunities this week.  Blackmail a senior executive.
