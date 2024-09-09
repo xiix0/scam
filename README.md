@@ -1,1 +1,2 @@
-You will not be elected to public office this year.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
