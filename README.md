@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+Are you ever going to do the dishes?  Or will you change your major to biology?
