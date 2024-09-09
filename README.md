@@ -1,2 +1,2 @@
-As to the Adjective: when in doubt, strike it out.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
