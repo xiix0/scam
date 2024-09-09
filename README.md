@@ -1,1 +1,1 @@
-You should go home.
+A day for firm decisions!!!!!  Or is it?
