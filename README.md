@@ -1,1 +1,1 @@
-Do not overtax your powers.
+You are confused; but this is your normal state.
