@@ -1,3 +1,5 @@
-Q:	Why is Christmas just like a day at the office?
-A:	You do all of the work and the fat guy in the suit
-	gets all the credit.
+Knucklehead:	"Knock, knock"
+Pee Wee:	"Who's there?"
+Knucklehead:	"Little ol' lady."
+Pee Wee:	"Liddle ol' lady who?"
+Knucklehead:	"I didn't know you could yodel"
