@@ -1,1 +1,2 @@
-Be careful!  UGLY strikes 9 out of 10!
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
