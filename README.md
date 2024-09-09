@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Your mode of life will be changed for the better because of new developments.
