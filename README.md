@@ -1,1 +1,1 @@
-You'll be called to a post requiring ability in handling groups of people.
+Do nothing unless you must, and when you must act -- hesitate.
