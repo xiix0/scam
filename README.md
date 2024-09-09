@@ -1,1 +1,2 @@
-You have had a long-term stimulation relative to business.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
