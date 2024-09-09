@@ -1,2 +1,2 @@
-Q:	What's the difference between Bell Labs and the Boy Scouts of America?
-A:	The Boy Scouts have adult supervision.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
