@@ -1,2 +1,2 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
