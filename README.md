@@ -1,1 +1,2 @@
-You are standing on my toes.
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
