@@ -1,2 +1,2 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
