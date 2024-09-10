@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+You are only young once, but you can stay immature indefinitely.
