@@ -1,1 +1,2 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
