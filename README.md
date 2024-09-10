@@ -1,1 +1,2 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
