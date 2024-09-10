@@ -1,2 +1,3 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
