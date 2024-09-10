@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+You have an unusual equipment for success.  Be sure to use it properly.
