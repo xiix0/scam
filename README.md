@@ -1,1 +1,1 @@
-Your present plans will be successful.
+An exotic journey in downtown Newark is in your future.
