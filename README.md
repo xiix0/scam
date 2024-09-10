@@ -1,1 +1,2 @@
-Accent on helpful side of your nature.  Drain the moat.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
