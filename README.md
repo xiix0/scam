@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Q:	What is the sound of one cat napping?
+A:	Mu.
