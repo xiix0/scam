@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+You will always get the greatest recognition for the job you least like.
