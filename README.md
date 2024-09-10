@@ -1,1 +1,2 @@
-Go to a movie tonight.  Darkness becomes you.
+Your goose is cooked.
+(Your current chick is burned up too!)
