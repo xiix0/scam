@@ -1,1 +1,1 @@
-Think twice before speaking, but don't say "think think click click".
+You need more time; and you probably always will.
