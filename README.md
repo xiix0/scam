@@ -1,1 +1,2 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
