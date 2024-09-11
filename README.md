@@ -1,2 +1,2 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
