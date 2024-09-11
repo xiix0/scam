@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+Day of inquiry.  You will be subpoenaed.
