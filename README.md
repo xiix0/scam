@@ -1,1 +1,3 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+Q:	What does a WASP Mom make for dinner?
+A:	A crisp salad, a hearty soup, a lovely entree, followed by
+	a delicious dessert.
