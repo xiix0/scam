@@ -1,5 +1,3 @@
-Q:	How do you catch a unique rabbit?
-A:	Unique up on it!
-
-Q:	How do you catch a tame rabbit?
-A:	The tame way!
+He draweth out the thread of his verbosity finer than the staple of his
+argument.
+		-- William Shakespeare, "Love's Labour's Lost"
