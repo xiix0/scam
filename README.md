@@ -1,2 +1,2 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
