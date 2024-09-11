@@ -1,1 +1,2 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
