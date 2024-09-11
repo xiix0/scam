@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
