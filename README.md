@@ -1,2 +1,1 @@
-Q:	What's the difference betweeen USL and the Graf Zeppelin?
-A:	The Graf Zeppelin represented cutting edge technology for its time.
+It's lucky you're going so slowly, because you're going in the wrong direction.
