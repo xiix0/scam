@@ -1,1 +1,1 @@
-Never reveal your best argument.
+Go to a movie tonight.  Darkness becomes you.
