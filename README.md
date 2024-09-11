@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+You have a deep interest in all that is artistic.
