@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+That secret you've been guarding, isn't.
