@@ -1,1 +1,2 @@
-After your lover has gone you will still have PEANUT BUTTER!
+He is now rising from affluence to poverty.
+		-- Mark Twain
