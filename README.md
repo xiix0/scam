@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+You possess a mind not merely twisted, but actually sprained.
