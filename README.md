@@ -1,1 +1,2 @@
-You have a strong desire for a home and your family interests come first.
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
