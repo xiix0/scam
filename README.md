@@ -1,1 +1,2 @@
-You will live to see your grandchildren.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
