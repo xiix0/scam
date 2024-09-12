@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+Today is the first day of the rest of the mess.
