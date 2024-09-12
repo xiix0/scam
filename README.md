@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You are a fluke of the universe; you have no right to be here.
