@@ -1,1 +1,2 @@
-You're not my type.  For that matter, you're not even my species!!!
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
