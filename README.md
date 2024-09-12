@@ -1,2 +1,1 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
