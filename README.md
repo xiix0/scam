@@ -1,1 +1,2 @@
-You are deeply attached to your friends and acquaintances.
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
