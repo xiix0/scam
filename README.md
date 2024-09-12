@@ -1,2 +1,2 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
