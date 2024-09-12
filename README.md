@@ -1,1 +1,1 @@
-You'll never be the man your mother was!
+So this is it.  We're going to die.
