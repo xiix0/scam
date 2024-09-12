@@ -1,1 +1,2 @@
-Go to a movie tonight.  Darkness becomes you.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
