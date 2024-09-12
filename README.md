@@ -1,1 +1,4 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
