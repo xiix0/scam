@@ -1,1 +1,4 @@
-You are a fluke of the universe; you have no right to be here.
+O, it is excellent
+To have a giant's strength; but it is tyrannous
+To use it like a giant.
+		-- Shakespeare, "Measure for Measure", II, 2
