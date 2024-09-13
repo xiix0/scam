@@ -1,1 +1,2 @@
-Be careful!  Is it classified?
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
