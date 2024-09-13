@@ -1,1 +1,1 @@
-Think twice before speaking, but don't say "think think click click".
+Increased knowledge will help you now.  Have mate's phone bugged.
