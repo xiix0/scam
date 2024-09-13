@@ -1,1 +1,2 @@
-Be cautious in your daily affairs.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
