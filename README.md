@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+Someone is speaking well of you.
