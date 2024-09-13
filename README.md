@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
