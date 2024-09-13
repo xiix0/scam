@@ -1,2 +1,2 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
