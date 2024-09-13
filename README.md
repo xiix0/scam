@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+Don't kiss an elephant on the lips today.
