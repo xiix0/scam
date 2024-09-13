@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+Are you sure the back door is locked?
