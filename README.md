@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+You're currently going through a difficult transition period called "Life."
