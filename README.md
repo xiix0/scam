@@ -1,1 +1,2 @@
-You'll be called to a post requiring ability in handling groups of people.
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
