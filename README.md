@@ -1,2 +1,2 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+Q:	What's the difference between Bell Labs and the Boy Scouts of America?
+A:	The Boy Scouts have adult supervision.
