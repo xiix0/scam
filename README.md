@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+Afternoon very favorable for romance.  Try a single person for a change.
