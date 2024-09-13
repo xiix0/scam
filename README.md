@@ -1,2 +1,2 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
