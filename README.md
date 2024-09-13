@@ -1,1 +1,2 @@
-Don't kiss an elephant on the lips today.
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
