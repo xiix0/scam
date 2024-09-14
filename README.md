@@ -1,1 +1,2 @@
-Do something unusual today.  Pay a bill.
+The Public is merely a multiplied "me."
+		-- Mark Twain
