@@ -1,3 +1,2 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
