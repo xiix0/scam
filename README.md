@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+You will gain money by a fattening action.
