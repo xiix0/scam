@@ -1,1 +1,3 @@
-Never be led astray onto the path of virtue.
+Questionable day.
+
+Ask somebody something.
