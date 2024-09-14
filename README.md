@@ -1,1 +1,3 @@
-You will inherit millions of dollars.
+Questionable day.
+
+Ask somebody something.
