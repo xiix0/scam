@@ -1,2 +1,1 @@
-Never laugh at live dragons.
-		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
+You will overcome the attacks of jealous associates.
