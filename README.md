@@ -1,1 +1,3 @@
-You will be held hostage by a radical group.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
