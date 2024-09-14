@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+Don't go surfing in South Dakota for a while.
