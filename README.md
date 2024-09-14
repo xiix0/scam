@@ -1,2 +1,2 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+The Public is merely a multiplied "me."
+		-- Mark Twain
