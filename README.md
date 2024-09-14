@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+You will have a long and boring life.
