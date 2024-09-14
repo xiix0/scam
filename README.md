@@ -1,1 +1,2 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Too much is just enough.
+		-- Mark Twain, on whiskey
