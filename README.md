@@ -1,2 +1,2 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
