@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+An avocado-tone refrigerator would look good on your resume.
