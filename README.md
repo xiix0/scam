@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
