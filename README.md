@@ -1,2 +1,1 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+You have literary talent that you should take pains to develop.
