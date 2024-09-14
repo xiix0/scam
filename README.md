@@ -1,1 +1,2 @@
-You will have a long and boring life.
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
