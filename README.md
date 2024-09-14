@@ -1,1 +1,2 @@
-You are number 6!  Who is number one?
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
