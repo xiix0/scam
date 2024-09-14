@@ -1,3 +1,2 @@
-You never have to change anything you got up in the middle of the night
-to write.
-		-- Saul Bellow
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
