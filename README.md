@@ -1,2 +1,1 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+You have an ambitious nature and may make a name for yourself.
