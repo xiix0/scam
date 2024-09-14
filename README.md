@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+Today is the tomorrow you worried about yesterday.
