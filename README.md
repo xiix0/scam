@@ -1,1 +1,2 @@
-It's all in the mind, ya know.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
