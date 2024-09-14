@@ -1,2 +1,3 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
