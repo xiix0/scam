@@ -1,2 +1,1 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+You never know how many friends you have until you rent a house on the beach.
