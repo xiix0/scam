@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+You will feel hungry again in another hour.
