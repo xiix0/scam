@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+Don't read any sky-writing for the next two weeks.
