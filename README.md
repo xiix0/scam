@@ -1,2 +1,2 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
