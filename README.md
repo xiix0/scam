@@ -1,1 +1,2 @@
-Don't read any sky-writing for the next two weeks.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
