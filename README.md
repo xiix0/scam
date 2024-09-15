@@ -1,1 +1,2 @@
-Slow day.  Practice crawling.
+Don't Worry, Be Happy.
+		-- Meher Baba
