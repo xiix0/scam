@@ -1,1 +1,2 @@
-You will feel hungry again in another hour.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
