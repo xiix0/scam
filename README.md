@@ -1,1 +1,2 @@
-You'll feel much better once you've given up hope.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
