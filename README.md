@@ -1,1 +1,3 @@
-You will be audited by the Internal Revenue Service.
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
