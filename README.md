@@ -1,2 +1,2 @@
-"Life, loathe it or ignore it, you can't like it."
-		-- Marvin, "Hitchhiker's Guide to the Galaxy"
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
