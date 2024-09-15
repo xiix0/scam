@@ -1,1 +1,2 @@
-You will always get the greatest recognition for the job you least like.
+"Life, loathe it or ignore it, you can't like it."
+		-- Marvin, "Hitchhiker's Guide to the Galaxy"
