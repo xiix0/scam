@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
