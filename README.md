@@ -1,2 +1,2 @@
-Q:	Why do WASPs play golf ?
-A:	So they can dress like pimps.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
