@@ -1,1 +1,2 @@
-Never reveal your best argument.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
