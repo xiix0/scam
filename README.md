@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+You will hear good news from one you thought unfriendly to you.
