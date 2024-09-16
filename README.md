@@ -1,1 +1,1 @@
-Don't get to bragging.
+Don't read everything you believe.
