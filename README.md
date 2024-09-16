@@ -1,1 +1,2 @@
-Don't read everything you believe.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
