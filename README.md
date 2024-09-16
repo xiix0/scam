@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You get along very well with everyone except animals and people.
