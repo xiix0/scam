@@ -1,1 +1,1 @@
-You will contract a rare disease.
+Try to value useful qualities in one who loves you.
