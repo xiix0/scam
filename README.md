@@ -1,1 +1,2 @@
-Are you making all this up as you go along?
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
