@@ -1,1 +1,2 @@
-You'll be called to a post requiring ability in handling groups of people.
+There is a great discovery still to be made in Literature: that of
+paying literary men by the quantity they do NOT write.
