@@ -1,2 +1,2 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
