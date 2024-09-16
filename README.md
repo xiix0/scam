@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
