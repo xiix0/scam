@@ -1,1 +1,1 @@
-You will contract a rare disease.
+Don't get to bragging.
