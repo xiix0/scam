@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
