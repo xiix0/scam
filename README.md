@@ -1,1 +1,1 @@
-You will be audited by the Internal Revenue Service.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
