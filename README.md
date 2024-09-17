@@ -1,1 +1,2 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Q:	Are we not men?
+A:	We are Vaxen.
