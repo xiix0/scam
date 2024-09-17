@@ -1,4 +1,3 @@
-Gratitude and treachery are merely the two extremities of the same procession.
-You have seen all of it that is worth staying for when the band and the gaudy
-officials have gone by.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+There is no hunting like the hunting of man, and those who have hunted
+armed men long enough and liked it, never care for anything else thereafter.
+		-- Ernest Hemingway
