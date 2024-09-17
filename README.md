@@ -1,2 +1,1 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+Tuesday After Lunch is the cosmic time of the week.
