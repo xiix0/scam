@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+This will be a memorable month -- no matter how hard you try to forget it.
