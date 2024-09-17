@@ -1,1 +1,2 @@
-Courage is your greatest present need.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
