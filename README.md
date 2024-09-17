@@ -1,1 +1,2 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
