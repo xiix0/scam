@@ -1,1 +1,1 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+Good news.  Ten weeks from Friday will be a pretty good day.
