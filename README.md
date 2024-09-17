@@ -1,1 +1,2 @@
-Go to a movie tonight.  Darkness becomes you.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
