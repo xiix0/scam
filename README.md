@@ -1,2 +1,8 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+To be or not to be.
+		-- Shakespeare
+To do is to be.
+		-- Nietzsche
+To be is to do.
+		-- Sartre
+Do be do be do.
+		-- Sinatra
