@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
