@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
