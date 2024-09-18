@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+Don't look now, but there is a multi-legged creature on your shoulder.
