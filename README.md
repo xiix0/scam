@@ -1,3 +1,5 @@
-Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
-A:	Easy.  It's because they can't figure out how to get the little
-	bottles into the typewriter.
+I got a hint of things to come when I overheard my boss lamenting, 'The
+books are done and we still don't have an author! I must sign someone
+today!
+		-- Tamim Ansary, "Edutopia Magazine, Issue 2, November 2004"
+		   on the topic of school textbooks
