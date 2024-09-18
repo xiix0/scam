@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
