@@ -1,2 +1,1 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+You prefer the company of the opposite sex, but are well liked by your own.
