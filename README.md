@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
