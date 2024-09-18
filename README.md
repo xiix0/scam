@@ -1,1 +1,3 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
