@@ -1,1 +1,2 @@
-You will inherit millions of dollars.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
