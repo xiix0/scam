@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+You're currently going through a difficult transition period called "Life."
