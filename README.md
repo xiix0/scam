@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
