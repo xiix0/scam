@@ -1,20 +1,6 @@
-We were young and our happiness dazzled us with its strength.  But there was
-also a terrible betrayal that lay within me like a Merle Haggard song at a
-French restaurant. [...]
-	I could not tell the girl about the woman of the tollway, of her milk
-white BMW and her Jordache smile.  There had been a fight.  I had punched her
-boyfriend, who fought the mechanical bulls.  Everyone told him, "You ride the
-bull, senor.  You do not fight it."  But he was lean and tough like a bad
-rib-eye and he fought the bull.  And then he fought me.  And when we finished
-there were no winners, just men doing what men must do. [...]
-	"Stop the car," the girl said.
-	There was a look of terrible sadness in her eyes.  She knew about the
-woman of the tollway.  I knew not how.  I started to speak, but she raised an
-arm and spoke with a quiet and peace I will never forget.
-	"I do not ask for whom's the tollway belle," she said, "the tollway
-belle's for thee."
-	The next morning our youth was a memory, and our happiness was a lie.
-Life is like a bad margarita with good tequila, I thought as I poured whiskey
-onto my granola and faced a new day.
-		-- Peter Applebome, International Imitation Hemingway
-		   Competition
+The true Southern watermelon is a boon apart, and not to be mentioned with
+commoner things.  It is chief of the world's luxuries, king by the grace of God
+over all the fruits of the earth.  When one has tasted it, he knows what the
+angels eat.  It was not a Southern watermelon that Eve took; we know it because
+she repented.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
