@@ -1,1 +1,3 @@
-You're at the end of the road again.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
