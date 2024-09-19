@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+You have an ability to sense and know higher truth.
