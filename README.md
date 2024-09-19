@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Your supervisor is thinking about you.
