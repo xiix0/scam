@@ -1,1 +1,2 @@
-You will be winged by an anti-aircraft battery.
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
