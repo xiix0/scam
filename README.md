@@ -1,1 +1,2 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
