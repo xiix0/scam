@@ -1,1 +1,3 @@
-Beware of a tall black man with one blond shoe.
+Reader, suppose you were an idiot.  And suppose you were a member of
+Congress.  But I repeat myself.
+		-- Mark Twain
