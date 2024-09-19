@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Are you sure the back door is locked?
