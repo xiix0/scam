@@ -1,1 +1,1 @@
-You plan things that you do not even attempt because of your extreme caution.
+Write yourself a threatening letter and pen a defiant reply.
