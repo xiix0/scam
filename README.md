@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
