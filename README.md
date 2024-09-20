@@ -1,3 +1,3 @@
-It is often the case that the man who can't tell a lie thinks he is the best
-judge of one.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	What do you call the money you pay to the government when
+	you ride into the country on the back of an elephant?
+A:	A howdah duty.
