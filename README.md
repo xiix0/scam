@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+Future looks spotty.  You will spill soup in late evening.
