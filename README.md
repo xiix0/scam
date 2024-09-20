@@ -1,3 +1,3 @@
-Q:	How does a hacker fix a function which
-	doesn't work for all of the elements in its domain?
-A:	He changes the domain.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
+		-- Mark Twain
