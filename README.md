@@ -1,2 +1,2 @@
-Familiarity breeds contempt -- and children.
+Nothing so needs reforming as other people's habits.
 		-- Mark Twain
