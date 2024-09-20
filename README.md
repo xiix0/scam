@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
