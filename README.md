@@ -1,1 +1,2 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
