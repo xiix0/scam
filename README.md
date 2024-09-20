@@ -1,1 +1,2 @@
-Future looks spotty.  You will spill soup in late evening.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
