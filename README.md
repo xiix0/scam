@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+You will obey or molten silver will be poured into your ears.
