@@ -1,1 +1,2 @@
-Don't look now, but the man in the moon is laughing at you.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
