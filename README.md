@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You will not be elected to public office this year.
