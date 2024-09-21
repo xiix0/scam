@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+You can rent this space for only $5 a week.
