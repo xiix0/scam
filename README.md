@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+A tall, dark stranger will have more fun than you.
