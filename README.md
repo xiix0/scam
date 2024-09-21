@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
