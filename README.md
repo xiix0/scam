@@ -1,2 +1,2 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
