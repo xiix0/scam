@@ -1,2 +1,1 @@
-"Life, loathe it or ignore it, you can't like it."
-		-- Marvin, "Hitchhiker's Guide to the Galaxy"
+Try to get all of your posthumous medals in advance.
