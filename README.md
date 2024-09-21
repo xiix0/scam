@@ -1,1 +1,2 @@
-Today is the first day of the rest of your life.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
