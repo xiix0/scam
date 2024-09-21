@@ -1,1 +1,2 @@
-You will be traveling and coming into a fortune.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
