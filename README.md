@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+Someone whom you reject today, will reject you tomorrow.
