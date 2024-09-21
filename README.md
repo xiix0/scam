@@ -1,1 +1,3 @@
-Your ignorance cramps my conversation.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
