@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+Never commit yourself!  Let someone else commit you.
