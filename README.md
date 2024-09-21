@@ -1,1 +1,1 @@
-You will be audited by the Internal Revenue Service.
+You will receive a legacy which will place you above want.
