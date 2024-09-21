@@ -1,1 +1,2 @@
-Avert misunderstanding by calm, poise, and balance.
+"Life, loathe it or ignore it, you can't like it."
+		-- Marvin, "Hitchhiker's Guide to the Galaxy"
