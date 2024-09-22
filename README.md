@@ -1,2 +1,3 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
