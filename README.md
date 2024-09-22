@@ -1,1 +1,1 @@
-You could live a better life, if you had a better mind and a better body.
+You need no longer worry about the future.  This time tomorrow you'll be dead.
