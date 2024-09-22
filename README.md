@@ -1,2 +1,2 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
