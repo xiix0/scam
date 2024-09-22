@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+It's lucky you're going so slowly, because you're going in the wrong direction.
