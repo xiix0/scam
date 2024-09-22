@@ -1,2 +1,2 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
