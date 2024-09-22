@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+Expect a letter from a friend who will ask a favor of you.
