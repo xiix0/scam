@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+Time to be aggressive.  Go after a tattooed Virgo.
