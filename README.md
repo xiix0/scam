@@ -1,2 +1,1 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Try to have as good a life as you can under the circumstances.
