@@ -1,1 +1,2 @@
-You like to form new friendships and make new acquaintances.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
