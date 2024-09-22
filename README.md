@@ -1,2 +1,2 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
