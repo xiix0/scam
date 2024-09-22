@@ -1,1 +1,2 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
