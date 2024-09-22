@@ -1,1 +1,1 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+You will soon meet a person who will play an important role in your life.
