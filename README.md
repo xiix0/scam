@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
