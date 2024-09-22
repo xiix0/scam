@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+The Public is merely a multiplied "me."
+		-- Mark Twain
