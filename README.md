@@ -1,1 +1,1 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Keep emotionally active.  Cater to your favorite neurosis.
