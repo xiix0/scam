@@ -1,1 +1,2 @@
-You will reach the highest possible point in your business or profession.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
