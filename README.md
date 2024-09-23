@@ -1,1 +1,2 @@
-You will be winged by an anti-aircraft battery.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
