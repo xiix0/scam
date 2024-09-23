@@ -1,3 +1,1 @@
-Q:	How many bureaucrats does it take to screw in a light bulb?
-A:	Two.  One to assure everyone that everything possible is being
-	done while the other screws the bulb into the water faucet.
+Your temporary financial embarrassment will be relieved in a surprising manner.
