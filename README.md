@@ -1,1 +1,2 @@
-What happened last night can happen again.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
