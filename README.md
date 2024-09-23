@@ -1,1 +1,2 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
