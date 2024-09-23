@@ -1,1 +1,2 @@
-You will be surrounded by luxury.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
