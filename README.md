@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+You're currently going through a difficult transition period called "Life."
