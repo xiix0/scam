@@ -1,2 +1,1 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+A tall, dark stranger will have more fun than you.
