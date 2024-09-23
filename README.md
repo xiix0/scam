@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
