@@ -1,1 +1,3 @@
-In the stairway of life, you'd best take the elevator.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
