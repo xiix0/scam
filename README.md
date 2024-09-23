@@ -1,1 +1,1 @@
-Is this really happening?
+What happened last night can happen again.
