@@ -1,1 +1,1 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+Keep emotionally active.  Cater to your favorite neurosis.
