@@ -1,1 +1,3 @@
-Your mode of life will be changed for the better because of new developments.
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
