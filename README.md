@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
