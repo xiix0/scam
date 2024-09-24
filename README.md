@@ -1,4 +1,2 @@
-In India, "cold weather" is merely a conventional phrase and has come into
-use through the necessity of having some way to distinguish between weather
-which will melt a brass door-knob and weather which will only make it mushy.
-		-- Mark Twain
+There is a great discovery still to be made in Literature: that of
+paying literary men by the quantity they do NOT write.
