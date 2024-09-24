@@ -1,1 +1,1 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+You're at the end of the road again.
