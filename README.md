@@ -1,1 +1,2 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
