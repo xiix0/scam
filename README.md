@@ -1,1 +1,1 @@
-Are you a turtle?
+You will contract a rare disease.
