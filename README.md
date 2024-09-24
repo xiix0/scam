@@ -1,3 +1,2 @@
-Noise proves nothing.  Often a hen who has merely laid an egg cackles
-as if she laid an asteroid.
-		-- Mark Twain
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
