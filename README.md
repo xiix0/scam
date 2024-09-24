@@ -1,2 +1,2 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
