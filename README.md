@@ -1,1 +1,2 @@
-Many changes of mind and mood; do not hesitate too long.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
