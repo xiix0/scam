@@ -1,1 +1,2 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
