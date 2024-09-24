@@ -1,3 +1,1 @@
-Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
-as intelligent as ever.
-		-- Samuel Beckett, "Endgame"
+It may or may not be worthwhile, but it still has to be done.
