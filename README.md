@@ -1,1 +1,1 @@
-You will be awarded a medal for disregarding safety in saving someone.
+You are dishonest, but never to the point of hurting a friend.
