@@ -1,1 +1,2 @@
-You feel a whole lot more like you do now than you did when you used to.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
