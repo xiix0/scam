@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+Beware the one behind you.
