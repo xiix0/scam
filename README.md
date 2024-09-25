@@ -1,2 +1,1 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+It may or may not be worthwhile, but it still has to be done.
