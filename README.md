@@ -1,3 +1,2 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
