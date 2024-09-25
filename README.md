@@ -1,1 +1,2 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
