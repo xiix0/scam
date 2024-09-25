@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+You love your home and want it to be beautiful.
