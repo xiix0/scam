@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
