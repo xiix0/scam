@@ -1,2 +1,2 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
