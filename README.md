@@ -1,2 +1,1 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+Caution: breathing may be hazardous to your health.
