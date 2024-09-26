@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+Be careful!  UGLY strikes 9 out of 10!
