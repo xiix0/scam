@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+When in doubt, tell the truth.
+		-- Mark Twain
