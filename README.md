@@ -1,2 +1,1 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Good news.  Ten weeks from Friday will be a pretty good day.
