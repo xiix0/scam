@@ -1,2 +1,3 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+Training is everything.  The peach was once a bitter almond; cauliflower is
+nothing but cabbage with a college education.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
