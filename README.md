@@ -1,2 +1,1 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+Good day for a change of scene.  Repaper the bedroom wall.
