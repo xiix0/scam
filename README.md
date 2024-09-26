@@ -1,1 +1,2 @@
-Don't look now, but the man in the moon is laughing at you.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
