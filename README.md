@@ -1,1 +1,3 @@
-Never commit yourself!  Let someone else commit you.
+Questionable day.
+
+Ask somebody something.
