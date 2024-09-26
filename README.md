@@ -1,1 +1,2 @@
-You have literary talent that you should take pains to develop.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
