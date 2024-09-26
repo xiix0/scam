@@ -1,2 +1,2 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
