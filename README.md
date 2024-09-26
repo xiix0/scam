@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+Live in a world of your own, but always welcome visitors.
