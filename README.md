@@ -1,2 +1,3 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+Questionable day.
+
+Ask somebody something.
