@@ -1,3 +1,3 @@
-Don't go around saying the world owes you a living.  The world owes you
-nothing.  It was here first.
+The only way to keep your health is to eat what you don't want, drink what
+you don't like, and do what you'd rather not.
 		-- Mark Twain
