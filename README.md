@@ -1,1 +1,4 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
