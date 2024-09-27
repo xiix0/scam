@@ -1,1 +1,1 @@
-Beware the one behind you.
+Accent on helpful side of your nature.  Drain the moat.
