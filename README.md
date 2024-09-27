@@ -1,1 +1,2 @@
-Your business will go through a period of considerable expansion.
+You'll wish that you had done some of the hard things when they were easier
+to do.
