@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
-A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
-Q:	Who were the Democratic presidential candidates?
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
