@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+You learn to write as if to someone else because NEXT YEAR YOU WILL BE
+"SOMEONE ELSE."
