@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
