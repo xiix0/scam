@@ -1,1 +1,2 @@
-You are the only person to ever get this message.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
