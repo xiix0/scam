@@ -1,1 +1,2 @@
-Be careful!  UGLY strikes 9 out of 10!
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
