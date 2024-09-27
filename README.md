@@ -1,1 +1,1 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
