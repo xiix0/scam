@@ -1,2 +1,1 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Living your life is a task so difficult, it has never been attempted before.
