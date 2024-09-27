@@ -1,2 +1,2 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
