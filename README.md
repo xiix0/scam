@@ -1,1 +1,1 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+You will be the victim of a bizarre joke.
