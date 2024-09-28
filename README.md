@@ -1,2 +1,1 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+You seek to shield those you love and you like the role of the provider.
