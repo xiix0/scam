@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
