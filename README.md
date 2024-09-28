@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+You have Egyptian flu: you're going to be a mummy.
