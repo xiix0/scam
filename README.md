@@ -1,3 +1,1 @@
-Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
-A:	Easy.  It's because they can't figure out how to get the little
-	bottles into the typewriter.
+Don't you feel more like you do now than you did when you came in?
