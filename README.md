@@ -1,2 +1,1 @@
-Big book, big bore.
-		-- Callimachus
+Tuesday After Lunch is the cosmic time of the week.
