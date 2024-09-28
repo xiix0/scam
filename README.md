@@ -1,2 +1,1 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+Beware of a dark-haired man with a loud tie.
