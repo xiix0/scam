@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
