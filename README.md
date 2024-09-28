@@ -1,1 +1,1 @@
-Never reveal your best argument.
+Chicken Little was right.
