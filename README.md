@@ -1,1 +1,2 @@
-A gift of a flower will soon be made to you.
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
