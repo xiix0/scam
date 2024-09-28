@@ -1,1 +1,2 @@
-Generosity and perfection are your everlasting goals.
+A is for Apple.
+		-- Hester Pryne
