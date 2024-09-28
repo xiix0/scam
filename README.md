@@ -1,2 +1,2 @@
-Wagner's music is better than it sounds.
+Familiarity breeds contempt -- and children.
 		-- Mark Twain
