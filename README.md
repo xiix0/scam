@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+Your lucky color has faded.
