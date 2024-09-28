@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+A tall, dark stranger will have more fun than you.
