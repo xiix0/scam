@@ -1,1 +1,2 @@
-Today is National Existential Ennui Awareness Day.
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
