@@ -1,1 +1,2 @@
-Chicken Little was right.
+Big book, big bore.
+		-- Callimachus
