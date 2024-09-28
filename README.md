@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+A gift of a flower will soon be made to you.
