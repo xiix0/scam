@@ -1,2 +1,2 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+Fine day for friends.
+So-so day for you.
