@@ -1,1 +1,2 @@
-There will be big changes for you but you will be happy.
+Q:	Are we not men?
+A:	We are Vaxen.
