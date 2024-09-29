@@ -1,1 +1,2 @@
-Bank error in your favor.  Collect $200.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
