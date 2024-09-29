@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
