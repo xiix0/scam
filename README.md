@@ -1,1 +1,2 @@
-You will be married within a year, and divorced within two.
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
