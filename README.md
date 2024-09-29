@@ -1,2 +1,1 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
