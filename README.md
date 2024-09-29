@@ -1,1 +1,2 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+Q:	Are we not men?
+A:	We are Vaxen.
