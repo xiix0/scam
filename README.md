@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+A few hours grace before the madness begins again.
