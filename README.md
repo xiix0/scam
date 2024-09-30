@@ -1,1 +1,2 @@
-You are dishonest, but never to the point of hurting a friend.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
