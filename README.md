@@ -1,1 +1,4 @@
-You've been leading a dog's life.  Stay off the furniture.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
