@@ -1,2 +1,2 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+Wagner's music is better than it sounds.
+		-- Mark Twain
