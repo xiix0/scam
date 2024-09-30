@@ -1,2 +1,3 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+A classic is something that everyone wants to have read
+and nobody wants to read.
+		-- Mark Twain, "The Disappearance of Literature"
