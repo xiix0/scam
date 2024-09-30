@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Be security conscious -- National defense is at stake.
