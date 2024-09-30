@@ -1,3 +1,3 @@
-Hain't we got all the fools in town on our side?  And hain't that a big
-enough majority in any town?
-		-- Mark Twain, "Huckleberry Finn"
+In a museum in Havana, there are two skulls of Christopher Columbus,
+"one when he was a boy and one when he was a man."
+		-- Mark Twain
