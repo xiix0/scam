@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+You will have good luck and overcome many hardships.
