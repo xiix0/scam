@@ -1,3 +1,3 @@
-So so is good, very good, very excellent good:
-and yet it is not; it is but so so.
-		-- William Shakespeare, "As You Like It"
+Hain't we got all the fools in town on our side?  And hain't that a big
+enough majority in any town?
+		-- Mark Twain, "Huckleberry Finn"
