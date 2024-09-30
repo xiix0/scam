@@ -1,1 +1,2 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
