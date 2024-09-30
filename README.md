@@ -1,1 +1,2 @@
-Be security conscious -- National defense is at stake.
+Too much is just enough.
+		-- Mark Twain, on whiskey
