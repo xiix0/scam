@@ -1,1 +1,2 @@
-A visit to a strange place will bring fresh work.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
