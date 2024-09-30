@@ -1,1 +1,1 @@
-You are not dead yet.  But watch for further reports.
+Don't hate yourself in the morning -- sleep till noon.
