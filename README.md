@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+It's lucky you're going so slowly, because you're going in the wrong direction.
