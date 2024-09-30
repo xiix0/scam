@@ -1,2 +1,1 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+You will give someone a piece of your mind, which you can ill afford.
