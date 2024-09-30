@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+You'll be called to a post requiring ability in handling groups of people.
