@@ -1,2 +1,1 @@
-You learn to write as if to someone else because NEXT YEAR YOU WILL BE
-"SOMEONE ELSE."
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
