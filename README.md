@@ -1,1 +1,4 @@
-You are taking yourself far too seriously.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
