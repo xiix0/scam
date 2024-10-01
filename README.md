@@ -1,3 +1,2 @@
-The mind is its own place, and in itself
-Can make a Heav'n of Hell, a Hell of Heav'n.
-		-- John Milton
+You're growing out of some of your problems, but there are others that
+you're growing into.
