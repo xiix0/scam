@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+You will overcome the attacks of jealous associates.
