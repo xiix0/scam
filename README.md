@@ -1,1 +1,2 @@
-You will have a long and boring life.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
