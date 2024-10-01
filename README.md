@@ -1,1 +1,1 @@
-Long life is in store for you.
+You prefer the company of the opposite sex, but are well liked by your own.
