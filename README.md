@@ -1,1 +1,2 @@
-Change your thoughts and you change your world.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
