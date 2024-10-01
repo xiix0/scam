@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+You are taking yourself far too seriously.
