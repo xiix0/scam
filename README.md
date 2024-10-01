@@ -1,3 +1,2 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
