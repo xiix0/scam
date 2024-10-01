@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+You will become rich and famous unless you don't.
