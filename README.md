@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of new developments.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
