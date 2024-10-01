@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+Your aims are high, and you are capable of much.
