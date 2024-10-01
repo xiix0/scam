@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+Perfect day for scrubbing the floor and other exciting things.
