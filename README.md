@@ -1,1 +1,2 @@
-You possess a mind not merely twisted, but actually sprained.
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
