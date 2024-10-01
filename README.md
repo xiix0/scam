@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+You will always get the greatest recognition for the job you least like.
