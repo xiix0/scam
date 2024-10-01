@@ -1,2 +1,2 @@
-What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
