@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+"... all the modern inconveniences ..."
+		-- Mark Twain
