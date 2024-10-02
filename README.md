@@ -1,1 +1,1 @@
-You are not dead yet.  But watch for further reports.
+Are you ever going to do the dishes?  Or will you change your major to biology?
