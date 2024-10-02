@@ -1,2 +1,1 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+You possess a mind not merely twisted, but actually sprained.
