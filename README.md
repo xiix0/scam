@@ -1,2 +1,2 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+What I tell you three times is true.
+		-- Lewis Carroll
