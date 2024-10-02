@@ -1,2 +1,2 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
