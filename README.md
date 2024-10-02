@@ -1,4 +1,1 @@
-F.S. Fitzgerald to Hemingway:
-	"Ernest, the rich are different from us."
-Hemingway:
-	"Yes.  They have more money."
+You prefer the company of the opposite sex, but are well liked by your own.
