@@ -1,1 +1,2 @@
-Don't go surfing in South Dakota for a while.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
