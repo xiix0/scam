@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+Expect a letter from a friend who will ask a favor of you.
