@@ -1,1 +1,2 @@
-You will remember something that you should not have forgotten.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
