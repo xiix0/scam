@@ -1,1 +1,2 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
