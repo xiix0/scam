@@ -1,2 +1,2 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
