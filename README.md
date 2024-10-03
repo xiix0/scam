@@ -1,1 +1,1 @@
-You have had a long-term stimulation relative to business.
+You're working under a slight handicap.  You happen to be human.
