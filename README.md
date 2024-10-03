@@ -1,3 +1,1 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+Don't worry so loud, your roommate can't think.
