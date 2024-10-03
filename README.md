@@ -1,2 +1,2 @@
-When angry, count four; when very angry, swear.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
