@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+You will remember something that you should not have forgotten.
