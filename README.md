@@ -1,2 +1,1 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+You have had a long-term stimulation relative to business.
