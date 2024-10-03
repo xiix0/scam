@@ -1,3 +1,2 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
