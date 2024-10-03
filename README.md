@@ -1,1 +1,2 @@
-You're working under a slight handicap.  You happen to be human.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
