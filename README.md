@@ -1,1 +1,2 @@
-You are deeply attached to your friends and acquaintances.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
