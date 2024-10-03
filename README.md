@@ -1,2 +1,2 @@
-Q:	What do you get when you cross the Godfather with an attorney?
-A:	An offer you can't understand.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
