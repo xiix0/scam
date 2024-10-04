@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+Don't get stuck in a closet -- wear yourself out.
