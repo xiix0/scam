@@ -1,1 +1,1 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+You will receive a legacy which will place you above want.
