@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+You have taken yourself too seriously.
