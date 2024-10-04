@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Your aims are high, and you are capable of much.
