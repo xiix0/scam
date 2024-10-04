@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+You will be recognized and honored as a community leader.
