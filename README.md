@@ -1,2 +1,2 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
