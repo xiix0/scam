@@ -1,2 +1,2 @@
-If you learn one useless thing every day, in a single year you'll learn
-365 useless things.
+Q:	What do you get when you cross a mobster with an international standard?
+A:	You get someone who makes you an offer that you can't understand!
