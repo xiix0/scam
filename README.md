@@ -1,3 +1,1 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+Expect a letter from a friend who will ask a favor of you.
