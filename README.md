@@ -1,1 +1,2 @@
-You will be run over by a bus.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
