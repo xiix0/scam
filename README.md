@@ -1,1 +1,1 @@
-Don't read everything you believe.
+Good day to let down old friends who need help.
