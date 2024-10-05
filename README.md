@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Expect a letter from a friend who will ask a favor of you.
