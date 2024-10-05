@@ -1,1 +1,2 @@
-Never give an inch!
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
