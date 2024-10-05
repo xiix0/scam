@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
