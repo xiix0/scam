@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
