@@ -1,3 +1,3 @@
-Anyone who has had a bull by the tail knows five or six more things
-than someone who hasn't.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
 		-- Mark Twain
