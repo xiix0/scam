@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+You will give someone a piece of your mind, which you can ill afford.
