@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+Q:	What's the difference between a duck and an elephant?
+A:	You can't get down off an elephant.
