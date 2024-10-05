@@ -1,1 +1,2 @@
-Never commit yourself!  Let someone else commit you.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
