@@ -1,1 +1,1 @@
-Beware of a tall black man with one blond shoe.
+Future looks spotty.  You will spill soup in late evening.
