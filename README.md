@@ -1,2 +1,1 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+Afternoon very favorable for romance.  Try a single person for a change.
