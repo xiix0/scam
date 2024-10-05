@@ -1,1 +1,2 @@
-Future looks spotty.  You will spill soup in late evening.
+I fell asleep reading a dull book, and I dreamt that I was reading on,
+so I woke up from sheer boredom.
