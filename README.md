@@ -1,1 +1,2 @@
-You have a will that can be influenced by all with whom you come in contact.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
