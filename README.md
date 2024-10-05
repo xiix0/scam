@@ -1,2 +1,1 @@
-Every why hath a wherefore.
-		-- William Shakespeare, "A Comedy of Errors"
+Your heart is pure, and your mind clear, and your soul devout.
