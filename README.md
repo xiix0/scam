@@ -1,2 +1,1 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+Don't read everything you believe.
