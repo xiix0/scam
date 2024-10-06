@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+Break into jail and claim police brutality.
