@@ -1,1 +1,1 @@
-You will be divorced within a year.
+You have no real enemies.
