@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Conscience doth make cowards of us all.
+		-- Shakespeare
