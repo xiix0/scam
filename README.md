@@ -1,3 +1,2 @@
-A classic is something that everyone wants to have read
-and nobody wants to read.
-		-- Mark Twain, "The Disappearance of Literature"
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
