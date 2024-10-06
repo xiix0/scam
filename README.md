@@ -1,1 +1,2 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
