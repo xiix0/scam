@@ -1,2 +1,3 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+A classic is something that everyone wants to have read
+and nobody wants to read.
+		-- Mark Twain, "The Disappearance of Literature"
