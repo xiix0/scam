@@ -1,3 +1,4 @@
-Q:	What do you call the money you pay to the government when
-	you ride into the country on the back of an elephant?
-A:	A howdah duty.
+Persons attempting to find a motive in this narrative will be prosecuted;
+persons attempting to find a moral in it will be banished; persons attempting
+to find a plot in it will be shot.  By Order of the Author
+		-- Mark Twain, "The Adventures of Huckleberry Finn"
