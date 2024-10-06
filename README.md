@@ -1,1 +1,1 @@
-You will always get the greatest recognition for the job you least like.
+Another good night not to sleep in a eucalyptus tree.
