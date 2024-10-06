@@ -1,2 +1,4 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
