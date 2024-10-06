@@ -1,1 +1,1 @@
-You have had a long-term stimulation relative to business.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
