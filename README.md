@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+You love your home and want it to be beautiful.
