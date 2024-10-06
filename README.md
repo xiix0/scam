@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Be cautious in your daily affairs.
