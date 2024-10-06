@@ -1,1 +1,2 @@
-Be cautious in your daily affairs.
+Conscience doth make cowards of us all.
+		-- Shakespeare
