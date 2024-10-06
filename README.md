@@ -1,3 +1,1 @@
-If one cannot enjoy reading a book over and over again, there is no use
-in reading it at all.
-		-- Oscar Wilde
+You could live a better life, if you had a better mind and a better body.
