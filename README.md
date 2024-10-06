@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+You will live a long, healthy, happy life and make bags of money.
