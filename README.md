@@ -1,1 +1,1 @@
-Love is in the offing.  Be affectionate to one who adores you.
+Caution: Keep out of reach of children.
