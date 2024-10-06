@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+Tomorrow will be cancelled due to lack of interest.
