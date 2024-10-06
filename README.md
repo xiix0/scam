@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You're working under a slight handicap.  You happen to be human.
