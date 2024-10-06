@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
