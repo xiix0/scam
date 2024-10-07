@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
