@@ -1,1 +1,2 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Wagner's music is better than it sounds.
+		-- Mark Twain
