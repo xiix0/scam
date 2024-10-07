@@ -1,3 +1,3 @@
-Someone is speaking well of you.
-
-How unusual!
+Grief can take care of itself; but to get the full value of a joy you must
+have somebody to divide it with.
+		-- Mark Twain
