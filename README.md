@@ -1,1 +1,2 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
