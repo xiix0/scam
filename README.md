@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+Avoid reality at all costs.
