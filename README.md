@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+Change your thoughts and you change your world.
