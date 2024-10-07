@@ -1,2 +1,2 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
