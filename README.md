@@ -1,1 +1,3 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
