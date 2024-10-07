@@ -1,2 +1,2 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
