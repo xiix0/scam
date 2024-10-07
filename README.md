@@ -1,2 +1,2 @@
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
