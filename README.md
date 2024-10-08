@@ -1,3 +1,2 @@
-The human race is a race of cowards; and I am not only marching in that
-procession but carrying a banner.
-		-- Mark Twain
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
