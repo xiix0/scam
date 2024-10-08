@@ -1,1 +1,3 @@
-Give your very best today.  Heaven knows it's little enough.
+Q:	How does a hacker fix a function which
+	doesn't work for all of the elements in its domain?
+A:	He changes the domain.
