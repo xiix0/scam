@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+You will be awarded a medal for disregarding safety in saving someone.
