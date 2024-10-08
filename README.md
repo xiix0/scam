@@ -1,1 +1,2 @@
-You are not dead yet.  But watch for further reports.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
