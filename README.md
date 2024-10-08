@@ -1,2 +1,2 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
