@@ -1,1 +1,2 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
