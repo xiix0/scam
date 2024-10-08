@@ -1,2 +1,4 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
