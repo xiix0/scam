@@ -1,1 +1,2 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
