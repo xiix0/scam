@@ -1,1 +1,2 @@
-You are deeply attached to your friends and acquaintances.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
