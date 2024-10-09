@@ -1,1 +1,2 @@
-You're working under a slight handicap.  You happen to be human.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
