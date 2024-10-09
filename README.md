@@ -1,1 +1,2 @@
-Are you a turtle?
+Q:	What is purple and commutes?
+A:	An Abelian grape.
