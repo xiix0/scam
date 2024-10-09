@@ -1,1 +1,2 @@
-You have an ability to sense and know higher truth.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
