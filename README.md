@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+Tomorrow will be cancelled due to lack of interest.
