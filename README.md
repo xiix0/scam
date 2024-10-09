@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+Hope that the day after you die is a nice day.
