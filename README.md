@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+You are as I am with You.
