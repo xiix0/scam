@@ -1,1 +1,2 @@
-You enjoy the company of other people.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
