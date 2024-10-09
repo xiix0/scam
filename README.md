@@ -1,2 +1,2 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
