@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
