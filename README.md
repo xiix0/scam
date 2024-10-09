@@ -1,1 +1,2 @@
-Tomorrow will be cancelled due to lack of interest.
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
