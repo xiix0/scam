@@ -1,1 +1,2 @@
-Hope that the day after you die is a nice day.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
