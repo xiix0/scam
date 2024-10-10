@@ -1,3 +1,2 @@
-Your manuscript is both good and original, but the part that is good is not
-original and the part that is original is not good.
-		-- Samuel Johnson
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
