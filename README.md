@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
