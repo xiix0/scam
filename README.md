@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
