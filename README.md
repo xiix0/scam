@@ -1,1 +1,2 @@
-You may get an opportunity for advancement today.  Watch it!
+You will pay for your sins.  If you have already paid, please disregard
+this message.
