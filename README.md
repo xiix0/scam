@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+Good day for a change of scene.  Repaper the bedroom wall.
