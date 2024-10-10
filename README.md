@@ -1,2 +1,2 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
