@@ -1,2 +1,2 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
