@@ -1,1 +1,1 @@
-You will soon forget this.
+You will be divorced within a year.
