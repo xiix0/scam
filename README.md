@@ -1,1 +1,3 @@
-You have a strong desire for a home and your family interests come first.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
