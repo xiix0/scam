@@ -1,5 +1,3 @@
-We know all about the habits of the ant, we know all about the habits of the
-bee, but we know nothing at all about the habits of the oyster.  It seems
-almost certain that we have been choosing the wrong time for studying the
-oyster.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How does a hacker fix a function which
+	doesn't work for all of the elements in its domain?
+A:	He changes the domain.
