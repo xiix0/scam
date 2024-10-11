@@ -1,1 +1,2 @@
-You have the power to influence all with whom you come in contact.
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
