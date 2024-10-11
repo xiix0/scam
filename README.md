@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+A day for firm decisions!!!!!  Or is it?
