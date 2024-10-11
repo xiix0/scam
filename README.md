@@ -1,2 +1,1 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+You have a deep interest in all that is artistic.
