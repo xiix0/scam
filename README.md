@@ -1,1 +1,2 @@
-A tall, dark stranger will have more fun than you.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
