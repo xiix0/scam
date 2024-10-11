@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+Are you ever going to do the dishes?  Or will you change your major to biology?
