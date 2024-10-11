@@ -1,2 +1,2 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
