@@ -1,1 +1,3 @@
-Don't relax!  It's only your tension that's holding you together.
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
