@@ -1,2 +1,2 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+Q:	Are we not men?
+A:	We are Vaxen.
