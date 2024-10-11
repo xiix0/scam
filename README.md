@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+Don't relax!  It's only your tension that's holding you together.
