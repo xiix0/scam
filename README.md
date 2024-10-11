@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+You will gain money by an immoral action.
