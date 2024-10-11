@@ -1,2 +1,2 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
