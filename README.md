@@ -1,2 +1,1 @@
-Q:	Why did the WASP cross the road?
-A:	To get to the middle.
+It's lucky you're going so slowly, because you're going in the wrong direction.
