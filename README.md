@@ -1,1 +1,2 @@
-There was a phone call for you.
+When in doubt, tell the truth.
+		-- Mark Twain
