@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+You will receive a legacy which will place you above want.
