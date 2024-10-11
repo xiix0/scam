@@ -1,1 +1,1 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+You seek to shield those you love and you like the role of the provider.
