@@ -1,1 +1,1 @@
-Many pages make a thick book.
+You will always have good luck in your personal affairs.
