@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Good day for a change of scene.  Repaper the bedroom wall.
