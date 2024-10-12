@@ -1,1 +1,1 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+You have an unusual understanding of the problems of human relationships.
