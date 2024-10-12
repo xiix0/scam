@@ -1,1 +1,2 @@
-You will always have good luck in your personal affairs.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
