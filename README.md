@@ -1,1 +1,1 @@
-A day for firm decisions!!!!!  Or is it?
+You will visit the Dung Pits of Glive soon.
