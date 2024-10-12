@@ -1,1 +1,1 @@
-You are number 6!  Who is number one?
+You two ought to be more careful--your love could drag on for years and years.
