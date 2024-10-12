@@ -1,3 +1,2 @@
-Don't go around saying the world owes you a living.  The world owes you
-nothing.  It was here first.
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
 		-- Mark Twain
