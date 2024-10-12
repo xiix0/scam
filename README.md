@@ -1,1 +1,2 @@
-You will visit the Dung Pits of Glive soon.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
