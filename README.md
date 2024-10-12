@@ -1,3 +1,3 @@
-Zounds!  I was never so bethumped with words
-since I first called my brother's father dad.
-		-- William Shakespeare, "Kind John"
+The only way to keep your health is to eat what you don't want, drink what
+you don't like, and do what you'd rather not.
+		-- Mark Twain
