@@ -1,3 +1,3 @@
-Reader, suppose you were an idiot.  And suppose you were a member of
-Congress.  But I repeat myself.
-		-- Mark Twain
+Questionable day.
+
+Ask somebody something.
