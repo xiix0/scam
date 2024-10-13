@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+You are a fluke of the universe; you have no right to be here.
