@@ -1,2 +1,2 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
