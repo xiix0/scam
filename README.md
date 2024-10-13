@@ -1,2 +1,1 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+Don't worry so loud, your roommate can't think.
