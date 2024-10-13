@@ -1,2 +1,1 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+Tuesday After Lunch is the cosmic time of the week.
