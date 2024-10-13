@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+You are capable of planning your future.
