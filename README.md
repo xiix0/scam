@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+You will inherit millions of dollars.
