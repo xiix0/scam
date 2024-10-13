@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+Another good night not to sleep in a eucalyptus tree.
