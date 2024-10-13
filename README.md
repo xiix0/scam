@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+You're not my type.  For that matter, you're not even my species!!!
