@@ -1,3 +1,2 @@
-Grief can take care of itself; but to get the full value of a joy you must
-have somebody to divide it with.
-		-- Mark Twain
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
