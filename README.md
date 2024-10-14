@@ -1,2 +1,1 @@
-Q:	What's tiny and yellow and very, very, dangerous?
-A:	A canary with the super-user password.
+If you sow your wild oats, hope for a crop failure.
