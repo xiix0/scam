@@ -1,1 +1,2 @@
-You will attract cultured and artistic people to your home.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
