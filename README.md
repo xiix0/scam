@@ -1,2 +1,1 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+Good day to deal with people in high places; particularly lonely stewardesses.
