@@ -1,1 +1,2 @@
-Domestic happiness and faithful friends.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
