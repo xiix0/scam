@@ -1,1 +1,1 @@
-Your present plans will be successful.
+Be cautious in your daily affairs.
