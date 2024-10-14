@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+You are the only person to ever get this message.
