@@ -1,3 +1,1 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+You two ought to be more careful--your love could drag on for years and years.
