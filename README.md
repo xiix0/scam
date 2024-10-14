@@ -1,1 +1,3 @@
-You will always get the greatest recognition for the job you least like.
+Someone is speaking well of you.
+
+How unusual!
