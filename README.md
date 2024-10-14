@@ -1,2 +1,1 @@
-English literature's performing flea.
-		-- Sean O'Casey on P. G. Wodehouse
+A visit to a strange place will bring fresh work.
