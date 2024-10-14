@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+Write yourself a threatening letter and pen a defiant reply.
