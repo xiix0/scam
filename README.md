@@ -1,1 +1,2 @@
-You will engage in a profitable business activity.
+Too much is just enough.
+		-- Mark Twain, on whiskey
