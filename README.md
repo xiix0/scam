@@ -1,1 +1,2 @@
-Reply hazy, ask again later.
+Don't Worry, Be Happy.
+		-- Meher Baba
