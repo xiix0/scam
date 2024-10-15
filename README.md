@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+If you can read this, you're too close.
