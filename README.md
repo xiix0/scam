@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Day of inquiry.  You will be subpoenaed.
