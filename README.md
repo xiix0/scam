@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+You will soon meet a person who will play an important role in your life.
