@@ -1,1 +1,2 @@
-You will be run over by a bus.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
