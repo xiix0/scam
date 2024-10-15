@@ -1,1 +1,2 @@
-You will give someone a piece of your mind, which you can ill afford.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
