@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+You will be singled out for promotion in your work.
