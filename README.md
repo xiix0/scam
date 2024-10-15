@@ -1,2 +1,2 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
