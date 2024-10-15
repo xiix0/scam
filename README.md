@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
