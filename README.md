@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Generosity and perfection are your everlasting goals.
