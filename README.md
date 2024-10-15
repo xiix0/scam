@@ -1,6 +1,3 @@
-Q:	How do you shoot a blue elephant?
-A:	With a blue-elephant gun.
-
-Q:	How do you shoot a pink elephant?
-A:	Twist its trunk until it turns blue, then shoot it with
-	a blue-elephant gun.
+One of the most striking differences between a cat and a lie is that a cat has
+only nine lives.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
