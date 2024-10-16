@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+Today is National Existential Ennui Awareness Day.
