@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+You will have a long and unpleasant discussion with your supervisor.
