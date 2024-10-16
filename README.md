@@ -1,1 +1,3 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+Zounds!  I was never so bethumped with words
+since I first called my brother's father dad.
+		-- William Shakespeare, "Kind John"
