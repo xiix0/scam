@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+An exotic journey in downtown Newark is in your future.
