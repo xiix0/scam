@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+A day for firm decisions!!!!!  Or is it?
