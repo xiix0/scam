@@ -1,2 +1,2 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Just because the message may never be received does not mean it is
+not worth sending.
