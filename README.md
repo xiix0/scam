@@ -1,2 +1,1 @@
-Every why hath a wherefore.
-		-- William Shakespeare, "A Comedy of Errors"
+You will be called upon to help a friend in trouble.
