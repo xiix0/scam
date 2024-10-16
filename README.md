@@ -1,2 +1,2 @@
-Big book, big bore.
-		-- Callimachus
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
