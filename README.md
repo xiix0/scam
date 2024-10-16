@@ -1,2 +1,2 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+After all, all he did was string together a lot of old, well-known quotations.
+		-- H. L. Mencken, on Shakespeare
