@@ -1,1 +1,2 @@
-An exotic journey in downtown Newark is in your future.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
