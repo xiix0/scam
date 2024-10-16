@@ -1,2 +1,2 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
