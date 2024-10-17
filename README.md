@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+Accent on helpful side of your nature.  Drain the moat.
