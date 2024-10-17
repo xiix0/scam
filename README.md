@@ -1,1 +1,1 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+You will be advanced socially, without any special effort on your part.
