@@ -1,1 +1,2 @@
-Your lover will never wish to leave you.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
