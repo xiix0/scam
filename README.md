@@ -1,1 +1,3 @@
-You will be advanced socially, without any special effort on your part.
+Someone is speaking well of you.
+
+How unusual!
