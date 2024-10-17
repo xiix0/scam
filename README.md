@@ -1,1 +1,2 @@
-You are not dead yet.  But watch for further reports.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
