@@ -1,4 +1,4 @@
-It is easy to find fault, if one has that disposition.  There was once a man
-who, not being able to find any other fault with his coal, complained that
-there were too many prehistoric toads in it.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+"I understand this is your first dead client," Sabian was saying.  The
+absurdity of the statement made me want to laugh but they don't call me
+Deadpan Allie and lie.
+		-- Pat Cadigan, "Mindplayers"
