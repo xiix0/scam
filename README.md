@@ -1,1 +1,2 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
