@@ -1,2 +1,3 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
+Anyone who has had a bull by the tail knows five or six more things
+than someone who hasn't.
 		-- Mark Twain
