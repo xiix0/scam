@@ -1,2 +1,1 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+Your lover will never wish to leave you.
