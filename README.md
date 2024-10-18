@@ -1,5 +1,6 @@
-When I was younger, I could remember anything, whether it had happened
-or not; but my faculties are decaying now and soon I shall be so I
-cannot remember any but the things that never happened.  It is sad to
-go to pieces like this but we all have to do it.
-		-- Mark Twain
+Stop!  There was first a game of blindman's buff.  Of course there was.
+And I no more believe Topper was really blind than I believe he had eyes
+in his boots.  My opinion is, that it was a done thing between him and
+Scrooge's nephew; and that the Ghost of Christmas Present knew it.  The
+way he went after that plump sister in the lace tucker, was an outrage
+on the credulity of human nature.
