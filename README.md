@@ -1,1 +1,2 @@
-You love your home and want it to be beautiful.
+Fine day for friends.
+So-so day for you.
