@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
