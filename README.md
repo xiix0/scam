@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+You dialed 5483.
