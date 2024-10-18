@@ -1,3 +1,1 @@
-A classic is something that everyone wants to have read
-and nobody wants to read.
-		-- Mark Twain, "The Disappearance of Literature"
+People are beginning to notice you.  Try dressing before you leave the house.
