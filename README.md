@@ -1,2 +1,1 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+You will meet an important person who will help you advance professionally.
