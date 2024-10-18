@@ -1,1 +1,2 @@
-You should go home.
+Don't Worry, Be Happy.
+		-- Meher Baba
