@@ -1,1 +1,2 @@
-Try the Moo Shu Pork.  It is especially good today.
+He is now rising from affluence to poverty.
+		-- Mark Twain
