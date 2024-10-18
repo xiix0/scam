@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+You love your home and want it to be beautiful.
