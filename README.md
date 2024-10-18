@@ -1,2 +1,5 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
+
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
