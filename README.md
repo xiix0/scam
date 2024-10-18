@@ -1,2 +1,1 @@
-Fine day for friends.
-So-so day for you.
+You will experience a strong urge to do good; but it will pass.
