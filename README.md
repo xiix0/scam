@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+People are beginning to notice you.  Try dressing before you leave the house.
