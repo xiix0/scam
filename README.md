@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+Your life would be very empty if you had nothing to regret.
