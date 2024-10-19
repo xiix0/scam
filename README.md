@@ -1,2 +1,2 @@
-You have a reputation for being thoroughly reliable and trustworthy.
-A pity that it's totally undeserved.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
