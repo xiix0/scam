@@ -1,1 +1,1 @@
-Are you making all this up as you go along?
+Many changes of mind and mood; do not hesitate too long.
