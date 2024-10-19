@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+You're at the end of the road again.
