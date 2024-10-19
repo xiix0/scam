@@ -1,1 +1,2 @@
-You display the wonderful traits of charm and courtesy.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
