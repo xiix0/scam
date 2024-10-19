@@ -1,2 +1,3 @@
-Every why hath a wherefore.
-		-- William Shakespeare, "A Comedy of Errors"
+"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
+for you and me."
+		-- J. R. R. Tolkien
