@@ -1,1 +1,1 @@
-You will get what you deserve.
+You are not dead yet.  But watch for further reports.
