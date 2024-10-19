@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+If you sow your wild oats, hope for a crop failure.
