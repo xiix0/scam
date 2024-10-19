@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
