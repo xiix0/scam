@@ -1,1 +1,1 @@
-Your object is to save the world, while still leading a pleasant life.
+You display the wonderful traits of charm and courtesy.
