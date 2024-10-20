@@ -1,1 +1,2 @@
-Don't let your mind wander -- it's too little to be let out alone.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
