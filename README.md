@@ -1,1 +1,1 @@
-You possess a mind not merely twisted, but actually sprained.
+Don't read any sky-writing for the next two weeks.
