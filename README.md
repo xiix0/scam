@@ -1,1 +1,8 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+To be or not to be.
+		-- Shakespeare
+To do is to be.
+		-- Nietzsche
+To be is to do.
+		-- Sartre
+Do be do be do.
+		-- Sinatra
