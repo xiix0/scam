@@ -1,2 +1,2 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
