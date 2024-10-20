@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
