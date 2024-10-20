@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+Today is the last day of your life so far.
