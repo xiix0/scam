@@ -1,1 +1,2 @@
-Today is National Existential Ennui Awareness Day.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
