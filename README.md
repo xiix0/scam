@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+Cold hands, no gloves.
