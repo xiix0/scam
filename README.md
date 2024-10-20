@@ -1,2 +1,3 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
