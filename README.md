@@ -1,1 +1,1 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+You will be run over by a beer truck.
