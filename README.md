@@ -1,1 +1,1 @@
-Be careful!  Is it classified?
+Learn to pause -- or nothing worthwhile can catch up to you.
