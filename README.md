@@ -1,3 +1,2 @@
-I must have a prodigious quantity of mind; it takes me as much as a
-week sometimes to make it up.
-		-- Mark Twain, "The Innocents Abroad"
+Q:	What do you have when you have a lawyer buried up to his neck in sand?
+A:	Not enough sand.
