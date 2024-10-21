@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+You will be a winner today.  Pick a fight with a four-year-old.
