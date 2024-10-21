@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
