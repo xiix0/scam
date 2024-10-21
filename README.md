@@ -1,1 +1,1 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+You recoil from the crude; you tend naturally toward the exquisite.
