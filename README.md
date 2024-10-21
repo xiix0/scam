@@ -1,3 +1,1 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
