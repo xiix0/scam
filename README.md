@@ -1,2 +1,2 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
