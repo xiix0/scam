@@ -1,1 +1,2 @@
-You will gain money by an illegal action.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
