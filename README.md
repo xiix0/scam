@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
