@@ -1,2 +1,2 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
