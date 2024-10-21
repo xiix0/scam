@@ -1,1 +1,2 @@
-If your life was a horse, you'd have to shoot it.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
