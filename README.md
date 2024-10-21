@@ -1,2 +1,1 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+You're working under a slight handicap.  You happen to be human.
