@@ -1,1 +1,2 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+I'll burn my books.
+		-- Christopher Marlowe
