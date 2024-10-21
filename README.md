@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Good day for overcoming obstacles.  Try a steeplechase.
