@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+You will be awarded a medal for disregarding safety in saving someone.
