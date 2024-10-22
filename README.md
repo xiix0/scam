@@ -1,3 +1,3 @@
-It is so very hard to be an
-on-your-own-take-care-of-yourself-because-there-is-no-one-else-to-do-it-for-you
-grown-up.
+Q:	What's the difference between a dead dog in the road and a dead
+	lawyer in the road?
+A:	There are skid marks in front of the dog.
