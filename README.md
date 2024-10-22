@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+Q:	What is the sound of one cat napping?
+A:	Mu.
