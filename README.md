@@ -1,1 +1,2 @@
-Your aims are high, and you are capable of much.
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
