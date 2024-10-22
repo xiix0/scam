@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+Beware of a dark-haired man with a loud tie.
