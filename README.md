@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
