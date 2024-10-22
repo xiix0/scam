@@ -1,1 +1,1 @@
-You have a strong desire for a home and your family interests come first.
+You will soon meet a person who will play an important role in your life.
