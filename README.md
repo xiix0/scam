@@ -1,1 +1,1 @@
-You'll never be the man your mother was!
+Change your thoughts and you change your world.
