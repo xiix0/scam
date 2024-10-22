@@ -1,2 +1,1 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
