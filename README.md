@@ -1,3 +1,4 @@
-Q:	What's the difference between a dead dog in the road and a dead
-	lawyer in the road?
-A:	There are skid marks in front of the dog.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
