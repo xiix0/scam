@@ -1,3 +1,2 @@
-My only love sprung from my only hate!
-Too early seen unknown, and known too late!
-		-- William Shakespeare, "Romeo and Juliet"
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
