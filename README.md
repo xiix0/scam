@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+You will inherit some money or a small piece of land.
