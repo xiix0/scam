@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+You would if you could but you can't so you won't.
