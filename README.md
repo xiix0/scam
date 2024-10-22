@@ -1,4 +1,2 @@
-F.S. Fitzgerald to Hemingway:
-	"Ernest, the rich are different from us."
-Hemingway:
-	"Yes.  They have more money."
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
