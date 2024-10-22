@@ -1,1 +1,3 @@
-You will soon meet a person who will play an important role in your life.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #4
+A:	Go west, young man, go west!
+Q:	What do wabbits do when they get tiwed of wunning awound?
