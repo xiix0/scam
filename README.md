@@ -1,1 +1,1 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+You have a strong desire for a home and your family interests come first.
