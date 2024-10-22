@@ -1,11 +1,5 @@
-Q:	How many hardware engineers does it take to change a light bulb?
-A:	None.  We'll fix it in software.
-
-Q:	How many system programmers does it take to change a light bulb?
-A:	None.  The application can work around it.
-
-Q:	How many software engineers does it take to change a light bulb?
-A:	None.  We'll document it in the manual.
-
-Q:	How many tech writers does it take to change a light bulb?
-A:	None.  The user can figure it out.
+Steady movement is more important than speed, much of the time.  So long
+as there is a regular progression of stimuli to get your mental hooks
+into, there is room for lateral movement.  Once this begins, its rate is
+a matter of discretion.
+		-- Corwin, Prince of Amber
