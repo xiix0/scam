@@ -1,1 +1,2 @@
-You are dishonest, but never to the point of hurting a friend.
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
