@@ -1,1 +1,3 @@
-You never know how many friends you have until you rent a house on the beach.
+The mind is its own place, and in itself
+Can make a Heav'n of Hell, a Hell of Heav'n.
+		-- John Milton
