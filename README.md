@@ -1,1 +1,2 @@
-Many pages make a thick book.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
