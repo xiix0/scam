@@ -1,2 +1,6 @@
-What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+Q:	How do you shoot a blue elephant?
+A:	With a blue-elephant gun.
+
+Q:	How do you shoot a pink elephant?
+A:	Twist its trunk until it turns blue, then shoot it with
+	a blue-elephant gun.
