@@ -1,3 +1,4 @@
-Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
-A:	That's proprietary information.  Answer available from AT&T on payment
-	of license fee (binary only).
+	You will remember, Watson, how the dreadful business of the
+Abernetty family was first brought to my notice by the depth which the
+parsley had sunk into the butter upon a hot day.
+		-- Sherlock Holmes
