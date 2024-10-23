@@ -1,2 +1,1 @@
-Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
-A:	Trustworthy.
+Everything that you know is wrong, but you can be straightened out.
