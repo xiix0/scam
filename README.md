@@ -1,2 +1,1 @@
-Big book, big bore.
-		-- Callimachus
+Are you a turtle?
