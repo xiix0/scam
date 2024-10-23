@@ -1,3 +1,1 @@
-If one cannot enjoy reading a book over and over again, there is no use
-in reading it at all.
-		-- Oscar Wilde
+You never know how many friends you have until you rent a house on the beach.
