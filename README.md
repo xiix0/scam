@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
