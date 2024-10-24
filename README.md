@@ -1,1 +1,2 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
