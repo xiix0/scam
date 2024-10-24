@@ -1,1 +1,1 @@
-You will never know hunger.
+Truth will out this morning.  (Which may really mess things up.)
