@@ -1,1 +1,2 @@
-Abandon the search for Truth; settle for a good fantasy.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
