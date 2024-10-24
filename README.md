@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Caution: Keep out of reach of children.
