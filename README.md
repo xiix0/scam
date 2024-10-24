@@ -1,1 +1,2 @@
-Do nothing unless you must, and when you must act -- hesitate.
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
