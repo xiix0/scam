@@ -1,3 +1,1 @@
-Q:	Why does Washington have the most lawyers per capita and
-	New Jersey the most toxic waste dumps?
-A:	God gave New Jersey first choice.
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
