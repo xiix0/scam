@@ -1,2 +1,1 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+This will be a memorable month -- no matter how hard you try to forget it.
