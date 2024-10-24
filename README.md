@@ -1,1 +1,2 @@
-Advancement in position.
+Q:	What is the sound of one cat napping?
+A:	Mu.
