@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
