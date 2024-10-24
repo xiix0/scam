@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
