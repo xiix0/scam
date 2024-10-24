@@ -1,1 +1,1 @@
-Do not overtax your powers.
+Your business will go through a period of considerable expansion.
