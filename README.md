@@ -1,2 +1,1 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+In the stairway of life, you'd best take the elevator.
