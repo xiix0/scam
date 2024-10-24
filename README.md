@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Stay away from flying saucers today.
