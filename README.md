@@ -1,1 +1,1 @@
-Everything that you know is wrong, but you can be straightened out.
+A vivid and creative mind characterizes you.
