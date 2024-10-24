@@ -1,1 +1,1 @@
-Your lucky color has faded.
+Give your very best today.  Heaven knows it's little enough.
