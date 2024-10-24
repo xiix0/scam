@@ -1,2 +1,2 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
