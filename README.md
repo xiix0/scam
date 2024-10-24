@@ -1,1 +1,2 @@
-Give your very best today.  Heaven knows it's little enough.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
