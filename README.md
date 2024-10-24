@@ -1,2 +1,3 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
