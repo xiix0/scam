@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+Communicate!  It can't make things any worse.
