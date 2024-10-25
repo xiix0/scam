@@ -1,2 +1,1 @@
-Q:	What do you get when you cross the Godfather with an attorney?
-A:	An offer you can't understand.
+Try the Moo Shu Pork.  It is especially good today.
