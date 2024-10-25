@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+Tuesday is the Wednesday of the rest of your life.
