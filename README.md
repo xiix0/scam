@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+You will be run over by a bus.
