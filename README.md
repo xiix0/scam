@@ -1,2 +1,2 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
