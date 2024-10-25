@@ -1,3 +1,3 @@
-Q:	Why do people who live near Niagara Falls have flat foreheads?
-A:	Because every morning they wake up thinking "What *is* that noise?
-	Oh, right, *of course*!
+Habit is habit, and not to be flung out of the window by any man, but coaxed
+down-stairs a step at a time.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar
