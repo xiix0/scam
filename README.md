@@ -1,2 +1,3 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+In the Spring, I have counted 136 different kinds of weather inside of
+24 hours.
+		-- Mark Twain, on New England weather
