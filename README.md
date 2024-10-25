@@ -1,1 +1,3 @@
-Tuesday is the Wednesday of the rest of your life.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
