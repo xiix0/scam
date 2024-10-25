@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+You enjoy the company of other people.
