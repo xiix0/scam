@@ -1,1 +1,1 @@
-Don't feed the bats tonight.
+An avocado-tone refrigerator would look good on your resume.
