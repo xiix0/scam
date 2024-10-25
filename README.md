@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+You attempt things that you do not even plan because of your extreme stupidity.
