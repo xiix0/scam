@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+Q:	Are we not men?
+A:	We are Vaxen.
