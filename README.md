@@ -1,1 +1,3 @@
-You will be advanced socially, without any special effort on your part.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
