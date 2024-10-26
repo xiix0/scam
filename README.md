@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+You will probably marry after a very brief courtship.
