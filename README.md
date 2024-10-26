@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+You will be audited by the Internal Revenue Service.
