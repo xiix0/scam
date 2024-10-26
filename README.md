@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+You will have a long and boring life.
