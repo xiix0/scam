@@ -1,5 +1,3 @@
-Knucklehead:	"Knock, knock"
-Pee Wee:	"Who's there?"
-Knucklehead:	"Little ol' lady."
-Pee Wee:	"Liddle ol' lady who?"
-Knucklehead:	"I didn't know you could yodel"
+Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
+that think they are truffles.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
