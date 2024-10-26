@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+You will always have good luck in your personal affairs.
