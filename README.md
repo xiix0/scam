@@ -1,1 +1,2 @@
-You're definitely on their list.  The question to ask next is what list it is.
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
