@@ -1,1 +1,2 @@
-You plan things that you do not even attempt because of your extreme caution.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
