@@ -1,1 +1,2 @@
-Q:	How do you keep a moron in suspense?
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
