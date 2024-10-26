@@ -1,1 +1,3 @@
-You have a strong desire for a home and your family interests come first.
+He draweth out the thread of his verbosity finer than the staple of his
+argument.
+		-- William Shakespeare, "Love's Labour's Lost"
