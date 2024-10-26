@@ -1,1 +1,2 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
