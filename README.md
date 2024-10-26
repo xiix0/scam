@@ -1,1 +1,3 @@
-You will be audited by the Internal Revenue Service.
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
