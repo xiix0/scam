@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+Good day to let down old friends who need help.
