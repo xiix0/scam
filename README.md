@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You will meet an important person who will help you advance professionally.
