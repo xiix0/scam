@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+You will step on the night soil of many countries.
