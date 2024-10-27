@@ -1,2 +1,1 @@
-Q:	Why do mountain climbers rope themselves together?
-A:	To prevent the sensible ones from going home.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
