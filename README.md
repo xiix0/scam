@@ -1,1 +1,1 @@
-Be careful!  Is it classified?
+Stay away from flying saucers today.
