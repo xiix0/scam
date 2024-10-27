@@ -1,1 +1,2 @@
-You have a deep appreciation of the arts and music.
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
