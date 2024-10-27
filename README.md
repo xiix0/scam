@@ -1,1 +1,2 @@
-Your domestic life may be harmonious.
+Don't Worry, Be Happy.
+		-- Meher Baba
