@@ -1,1 +1,1 @@
-You will step on the night soil of many countries.
+Tuesday is the Wednesday of the rest of your life.
