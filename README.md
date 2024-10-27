@@ -1,3 +1,3 @@
-The man who sets out to carry a cat by its tail learns something that
-will always be useful and which never will grow dim or doubtful.
-		-- Mark Twain
+All say, "How hard it is that we have to die"--a strange complaint to come from
+the mouths of people who have had to live.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
