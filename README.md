@@ -1,1 +1,1 @@
-Don't get to bragging.
+You will receive a legacy which will place you above want.
