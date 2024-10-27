@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+Your reasoning powers are good, and you are a fairly good planner.
