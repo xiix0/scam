@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
