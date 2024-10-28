@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+Fine day to work off excess energy.  Steal something heavy.
