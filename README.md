@@ -1,1 +1,1 @@
-Are you making all this up as you go along?
+You may be recognized soon.  Hide.
