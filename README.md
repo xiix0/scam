@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Among the lucky, you are the chosen one.
