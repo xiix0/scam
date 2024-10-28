@@ -1,2 +1,2 @@
-When angry, count four; when very angry, swear.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
