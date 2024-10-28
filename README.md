@@ -1,1 +1,1 @@
-You are always busy.
+A vivid and creative mind characterizes you.
