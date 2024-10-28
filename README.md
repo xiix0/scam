@@ -1,2 +1,2 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
