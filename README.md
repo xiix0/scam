@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+Generosity and perfection are your everlasting goals.
