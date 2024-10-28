@@ -1,3 +1,1 @@
-The difference between the right word and the almost right word is the
-difference between lightning and the lightning bug.
-		-- Mark Twain
+Your fly might be open (but don't check it just now).
