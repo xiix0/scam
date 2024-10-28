@@ -1,2 +1,3 @@
-Q:	What do you get when you cross the Godfather with an attorney?
-A:	An offer you can't understand.
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
