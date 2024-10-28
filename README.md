@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
