@@ -1,3 +1,1 @@
-Perilous to all of us are the devices of an art deeper than we ourselves
-possess.
-		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
+This life is yours.  Some of it was given to you; the rest, you made yourself.
