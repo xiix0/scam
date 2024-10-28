@@ -1,1 +1,1 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+Your society will be sought by people of taste and refinement.
