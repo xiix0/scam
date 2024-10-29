@@ -1,2 +1,2 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
