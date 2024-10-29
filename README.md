@@ -1,2 +1,2 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
