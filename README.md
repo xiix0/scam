@@ -1,2 +1,2 @@
-Extreme fear can neither fight nor fly.
-		-- William Shakespeare, "The Rape of Lucrece"
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
