@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+I'll burn my books.
+		-- Christopher Marlowe
