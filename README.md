@@ -1,1 +1,2 @@
-You love your home and want it to be beautiful.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
