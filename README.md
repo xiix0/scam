@@ -1,2 +1,2 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
