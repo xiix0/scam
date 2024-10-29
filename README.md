@@ -1,1 +1,2 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
