@@ -1,1 +1,1 @@
-You never know how many friends you have until you rent a house on the beach.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
