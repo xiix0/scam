@@ -1,1 +1,2 @@
-Today is National Existential Ennui Awareness Day.
+Big book, big bore.
+		-- Callimachus
