@@ -1,1 +1,2 @@
-You will experience a strong urge to do good; but it will pass.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
