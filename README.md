@@ -1,1 +1,3 @@
-You will be reincarnated as a toad; and you will be much happier.
+Training is everything.  The peach was once a bitter almond; cauliflower is
+nothing but cabbage with a college education.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
