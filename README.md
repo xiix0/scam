@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+Your own qualities will help prevent your advancement in the world.
