@@ -1,2 +1,5 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+Q:	How do you catch a unique rabbit?
+A:	Unique up on it!
+
+Q:	How do you catch a tame rabbit?
+A:	The tame way!
