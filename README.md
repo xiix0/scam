@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+Good day to deal with people in high places; particularly lonely stewardesses.
