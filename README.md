@@ -1,1 +1,1 @@
-You will have a long and boring life.
+Increased knowledge will help you now.  Have mate's phone bugged.
