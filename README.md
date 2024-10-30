@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
