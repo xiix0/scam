@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+You will forget that you ever knew me.
