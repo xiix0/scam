@@ -1,2 +1,3 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+If you pick up a starving dog and make him prosperous, he will not bite you.
+This is the principal difference between a dog and a man.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
