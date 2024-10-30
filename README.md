@@ -1,2 +1,2 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
