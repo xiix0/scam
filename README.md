@@ -1,1 +1,1 @@
-Day of inquiry.  You will be subpoenaed.
+You have a strong desire for a home and your family interests come first.
