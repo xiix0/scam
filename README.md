@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+Your heart is pure, and your mind clear, and your soul devout.
