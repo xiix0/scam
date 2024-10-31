@@ -1,3 +1,3 @@
-Consider well the proportions of things.  It is better to be a young June-bug
-than an old bird of paradise.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
