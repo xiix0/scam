@@ -1,1 +1,2 @@
-Good news from afar can bring you a welcome visitor.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
