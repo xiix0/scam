@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+You work very hard.  Don't try to think as well.
