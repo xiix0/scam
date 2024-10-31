@@ -1,3 +1,3 @@
-The mind is its own place, and in itself
-Can make a Heav'n of Hell, a Hell of Heav'n.
-		-- John Milton
+In the Spring, I have counted 136 different kinds of weather inside of
+24 hours.
+		-- Mark Twain, on New England weather
