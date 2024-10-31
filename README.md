@@ -1,2 +1,2 @@
-Alas, how love can trifle with itself!
-		-- William Shakespeare, "The Two Gentlemen of Verona"
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
