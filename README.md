@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+You will receive a legacy which will place you above want.
