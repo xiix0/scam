@@ -1,1 +1,2 @@
-Try to get all of your posthumous medals in advance.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
