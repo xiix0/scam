@@ -1,1 +1,1 @@
-Chess tonight.
+You will be awarded the Nobel Peace Prize... posthumously.
