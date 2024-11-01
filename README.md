@@ -1,2 +1,1 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+Learn to pause -- or nothing worthwhile can catch up to you.
