@@ -1,1 +1,2 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
