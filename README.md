@@ -1,2 +1,2 @@
-Civilization is the limitless multiplication of unnecessary necessities.
+Repartee is something we think of twenty-four hours too late.
 		-- Mark Twain
