@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+That secret you've been guarding, isn't.
