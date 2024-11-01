@@ -1,1 +1,2 @@
-There is a fly on your nose.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
