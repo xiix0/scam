@@ -1,1 +1,2 @@
-Today is the last day of your life so far.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
