@@ -1,2 +1,1 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+Don't plan any hasty moves.  You'll be evicted soon anyway.
