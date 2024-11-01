@@ -1,1 +1,3 @@
-If you stand on your head, you will get footprints in your hair.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
