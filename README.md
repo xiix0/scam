@@ -1,2 +1,3 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
