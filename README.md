@@ -1,1 +1,2 @@
-You are number 6!  Who is number one?
+The Public is merely a multiplied "me."
+		-- Mark Twain
