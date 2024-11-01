@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
