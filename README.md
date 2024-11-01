@@ -1,2 +1,1 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+There will be big changes for you but you will be happy.
