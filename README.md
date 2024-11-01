@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+Good day for overcoming obstacles.  Try a steeplechase.
