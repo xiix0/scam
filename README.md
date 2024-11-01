@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+If you stand on your head, you will get footprints in your hair.
