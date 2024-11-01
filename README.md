@@ -1,2 +1,3 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Q:	What does a WASP Mom make for dinner?
+A:	A crisp salad, a hearty soup, a lovely entree, followed by
+	a delicious dessert.
