@@ -1,1 +1,2 @@
-You will be successful in love.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
