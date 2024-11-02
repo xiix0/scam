@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+A tall, dark stranger will have more fun than you.
