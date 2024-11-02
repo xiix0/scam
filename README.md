@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+Good news.  Ten weeks from Friday will be a pretty good day.
