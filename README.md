@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+You have an unusual understanding of the problems of human relationships.
