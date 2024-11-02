@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
