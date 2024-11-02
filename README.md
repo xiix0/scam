@@ -1,1 +1,2 @@
-Don't read everything you believe.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
