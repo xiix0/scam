@@ -1,1 +1,1 @@
-Your business will assume vast proportions.
+You will be given a post of trust and responsibility.
