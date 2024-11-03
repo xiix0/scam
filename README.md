@@ -1,1 +1,3 @@
-Try the Moo Shu Pork.  It is especially good today.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
