@@ -1,1 +1,2 @@
-You will pass away very quickly.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
