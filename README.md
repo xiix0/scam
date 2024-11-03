@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+You will be surprised by a loud noise.
