@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
