@@ -1,2 +1,1 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+Your true value depends entirely on what you are compared with.
