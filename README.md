@@ -1,1 +1,2 @@
-You will pass away very quickly.
+I'll burn my books.
+		-- Christopher Marlowe
