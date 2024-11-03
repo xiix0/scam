@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+Tuesday After Lunch is the cosmic time of the week.
