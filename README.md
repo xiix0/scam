@@ -1,2 +1,2 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
