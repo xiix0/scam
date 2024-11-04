@@ -1,2 +1,2 @@
-Q:	What's tiny and yellow and very, very, dangerous?
-A:	A canary with the super-user password.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
