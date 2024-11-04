@@ -1,1 +1,2 @@
-You will triumph over your enemy.
+All generalizations are false, including this one.
+		-- Mark Twain
