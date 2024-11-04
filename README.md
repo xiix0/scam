@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+You'll wish that you had done some of the hard things when they were easier
+to do.
