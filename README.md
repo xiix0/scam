@@ -1,1 +1,2 @@
-You will feel hungry again in another hour.
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
