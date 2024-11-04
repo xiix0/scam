@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+You plan things that you do not even attempt because of your extreme caution.
