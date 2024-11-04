@@ -1,1 +1,2 @@
-Don't go surfing in South Dakota for a while.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
