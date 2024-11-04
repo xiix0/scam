@@ -1,2 +1,2 @@
-Every why hath a wherefore.
-		-- William Shakespeare, "A Comedy of Errors"
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
