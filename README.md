@@ -1,2 +1,1 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+A visit to a fresh place will bring strange work.
