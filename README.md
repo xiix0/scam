@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+Are you sure the back door is locked?
