@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
