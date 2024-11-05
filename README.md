@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+You never know how many friends you have until you rent a house on the beach.
