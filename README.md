@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+Don't look back, the lemmings are gaining on you.
