@@ -1,1 +1,2 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+All generalizations are false, including this one.
+		-- Mark Twain
