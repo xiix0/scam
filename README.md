@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
