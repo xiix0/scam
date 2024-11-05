@@ -1,2 +1,1 @@
-A kind of Batman of contemporary letters.
-		-- Philip Larkin on Anthony Burgess
+Your nature demands love and your happiness depends on it.
