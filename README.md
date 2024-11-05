@@ -1,3 +1,2 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
