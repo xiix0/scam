@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
