@@ -1,1 +1,3 @@
-Accent on helpful side of your nature.  Drain the moat.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
