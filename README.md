@@ -1,2 +1,1 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
