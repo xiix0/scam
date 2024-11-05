@@ -1,1 +1,2 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
