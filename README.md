@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+Your own qualities will help prevent your advancement in the world.
