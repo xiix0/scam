@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+You are fighting for survival in your own sweet and gentle way.
