@@ -1,3 +1,5 @@
-Q:	What do you call the scratches that you get when a female
-	sheep bites you?
-A:	Ewe nicks.
+Knucklehead:	"Knock, knock"
+Pee Wee:	"Who's there?"
+Knucklehead:	"Little ol' lady."
+Pee Wee:	"Liddle ol' lady who?"
+Knucklehead:	"I didn't know you could yodel"
