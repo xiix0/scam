@@ -1,2 +1,2 @@
-Q:	What's the difference between a Mac and an Etch-a-Sketch?
-A:	You don't have to shake the Mac to clear the screen.
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
