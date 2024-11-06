@@ -1,1 +1,1 @@
-Just to have it is enough.
+You will be given a post of trust and responsibility.
