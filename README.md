@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+You will experience a strong urge to do good; but it will pass.
