@@ -1,3 +1,1 @@
-Q:	What's the difference between a dead dog in the road and a dead
-	lawyer in the road?
-A:	There are skid marks in front of the dog.
+Don't let your mind wander -- it's too little to be let out alone.
