@@ -1,2 +1,1 @@
-I fell asleep reading a dull book, and I dreamt that I was reading on,
-so I woke up from sheer boredom.
+You will meet an important person who will help you advance professionally.
