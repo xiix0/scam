@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+You will give someone a piece of your mind, which you can ill afford.
