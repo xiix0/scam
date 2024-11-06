@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Many pages make a thick book.
