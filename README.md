@@ -1,4 +1,3 @@
-	You will remember, Watson, how the dreadful business of the
-Abernetty family was first brought to my notice by the depth which the
-parsley had sunk into the butter upon a hot day.
-		-- Sherlock Holmes
+You may my glories and my state dispose,
+But not my griefs; still am I king of those.
+		-- William Shakespeare, "Richard II"
