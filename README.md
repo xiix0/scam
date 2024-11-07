@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+You will obey or molten silver will be poured into your ears.
