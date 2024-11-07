@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
