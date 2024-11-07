@@ -1,2 +1,1 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+Fine day to work off excess energy.  Steal something heavy.
