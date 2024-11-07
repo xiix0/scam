@@ -1,5 +1,6 @@
-I got a hint of things to come when I overheard my boss lamenting, 'The
-books are done and we still don't have an author! I must sign someone
-today!
-		-- Tamim Ansary, "Edutopia Magazine, Issue 2, November 2004"
-		   on the topic of school textbooks
+Q:	How do you shoot a blue elephant?
+A:	With a blue-elephant gun.
+
+Q:	How do you shoot a pink elephant?
+A:	Twist its trunk until it turns blue, then shoot it with
+	a blue-elephant gun.
