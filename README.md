@@ -1,2 +1,1 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
