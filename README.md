@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+You will remember something that you should not have forgotten.
