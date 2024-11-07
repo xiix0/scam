@@ -1,3 +1,3 @@
-Q:	What's the difference between a dead dog in the road and a dead
-	lawyer in the road?
-A:	There are skid marks in front of the dog.
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
