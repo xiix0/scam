@@ -1,2 +1,1 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+You will be a winner today.  Pick a fight with a four-year-old.
