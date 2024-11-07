@@ -1,1 +1,1 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+The time is right to make new friends.
