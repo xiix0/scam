@@ -1,4 +1,6 @@
-Whoever has lived long enough to find out what life is, knows how deep a debt
-of gratitude we owe to Adam, the first great benefactor of our race.  He
-brought death into the world.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+At once it struck me what quality went to form a man of achievement,
+especially in literature, and which Shakespeare possessed so enormously
+-- I mean negative capability, that is, when a man is capable of being
+in uncertainties, mysteries, doubts, without any irritable reaching
+after fact and reason.
+		-- John Keats
