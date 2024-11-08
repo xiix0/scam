@@ -1,1 +1,2 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
