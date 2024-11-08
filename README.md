@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+You will gain money by an illegal action.
