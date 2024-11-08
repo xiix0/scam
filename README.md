@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Don't you wish you had more energy... or less ambition?
