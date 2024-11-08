@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+Your aims are high, and you are capable of much.
