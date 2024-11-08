@@ -1,1 +1,1 @@
-You seek to shield those you love and you like the role of the provider.
+You could live a better life, if you had a better mind and a better body.
