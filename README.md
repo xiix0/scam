@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+You are a bundle of energy, always on the go.
