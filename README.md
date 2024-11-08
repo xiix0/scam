@@ -1,5 +1,8 @@
-	"You have heard me speak of Professor Moriarty?"
-	"The famous scientific criminal, as famous among crooks as --"
-	"My blushes, Watson," Holmes murmured, in a deprecating voice.
-	"I was about to say 'as he is unknown to the public.'"
-		-- A. Conan Doyle, "The Valley of Fear"
+October.
+
+This is one of the peculiarly dangerous months to speculate in stocks in.
+
+The others are July, January, September, April, November, May, March, June,
+December, August, and February.
+
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
