@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+Try the Moo Shu Pork.  It is especially good today.
