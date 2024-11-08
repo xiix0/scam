@@ -1,2 +1,1 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+You will be aided greatly by a person whom you thought to be unimportant.
