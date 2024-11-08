@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+Good news from afar can bring you a welcome visitor.
