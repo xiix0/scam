@@ -1,3 +1,5 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	You won't find a lawyer who can change a light bulb.  Now, if
-	you're looking for a lawyer to screw a light bulb...
+	"You have heard me speak of Professor Moriarty?"
+	"The famous scientific criminal, as famous among crooks as --"
+	"My blushes, Watson," Holmes murmured, in a deprecating voice.
+	"I was about to say 'as he is unknown to the public.'"
+		-- A. Conan Doyle, "The Valley of Fear"
