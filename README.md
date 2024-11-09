@@ -1,1 +1,3 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+Q:	What looks like a cat, flies like a bat, brays like a donkey, and
+	plays like a monkey?
+A:	Nothing.
