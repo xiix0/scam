@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
