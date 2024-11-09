@@ -1,2 +1,2 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
