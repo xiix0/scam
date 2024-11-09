@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
