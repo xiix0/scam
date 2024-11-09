@@ -1,1 +1,1 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+You are not dead yet.  But watch for further reports.
