@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+Tomorrow, you can be anywhere.
