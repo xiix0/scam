@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
