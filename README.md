@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+You are fighting for survival in your own sweet and gentle way.
