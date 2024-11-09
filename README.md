@@ -1,1 +1,2 @@
-You'll be called to a post requiring ability in handling groups of people.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
