@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
