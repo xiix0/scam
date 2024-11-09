@@ -1,2 +1,1 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+You never know how many friends you have until you rent a house on the beach.
