@@ -1,2 +1,1 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+You are fighting for survival in your own sweet and gentle way.
