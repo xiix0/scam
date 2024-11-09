@@ -1,1 +1,1 @@
-Never reveal your best argument.
+There is a 20% chance of tomorrow.
