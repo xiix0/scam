@@ -1,2 +1,1 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+You need no longer worry about the future.  This time tomorrow you'll be dead.
