@@ -1,2 +1,2 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
