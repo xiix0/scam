@@ -1,2 +1,1 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
