@@ -1,3 +1,1 @@
-Q:	What looks like a cat, flies like a bat, brays like a donkey, and
-	plays like a monkey?
-A:	Nothing.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
