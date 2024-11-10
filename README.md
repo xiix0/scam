@@ -1,2 +1,3 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
-		-- Mark Twain
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
