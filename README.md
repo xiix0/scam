@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Your business will go through a period of considerable expansion.
