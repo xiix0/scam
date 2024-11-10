@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Communicate!  It can't make things any worse.
