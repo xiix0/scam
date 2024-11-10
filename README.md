@@ -1,1 +1,2 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
