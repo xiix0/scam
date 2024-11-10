@@ -1,2 +1,2 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
