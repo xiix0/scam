@@ -1,2 +1,1 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+You need no longer worry about the future.  This time tomorrow you'll be dead.
