@@ -1,1 +1,2 @@
-You are a very redundant person, that's what kind of person you are.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
