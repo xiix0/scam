@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+Your own qualities will help prevent your advancement in the world.
