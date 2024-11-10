@@ -1,1 +1,3 @@
-You have a strong desire for a home and your family interests come first.
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
