@@ -1,1 +1,2 @@
-You will engage in a profitable business activity.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
