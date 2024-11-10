@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+Be careful!  UGLY strikes 9 out of 10!
