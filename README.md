@@ -1,1 +1,1 @@
-Bridge ahead.  Pay troll.
+You will engage in a profitable business activity.
