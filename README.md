@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Are you sure the back door is locked?
