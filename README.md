@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+You have been selected for a secret mission.
