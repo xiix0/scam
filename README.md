@@ -1,1 +1,2 @@
-You'll feel much better once you've given up hope.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
