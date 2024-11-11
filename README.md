@@ -1,2 +1,2 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
