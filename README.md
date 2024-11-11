@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+Future looks spotty.  You will spill soup in late evening.
