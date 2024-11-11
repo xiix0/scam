@@ -1,1 +1,2 @@
-You will be surprised by a loud noise.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
