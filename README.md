@@ -1,2 +1,2 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
