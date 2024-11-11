@@ -1,1 +1,1 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+You don't become a failure until you're satisfied with being one.
