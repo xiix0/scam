@@ -1,1 +1,1 @@
-You will be run over by a bus.
+You will have a long and unpleasant discussion with your supervisor.
