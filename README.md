@@ -1,1 +1,2 @@
-Stay away from flying saucers today.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
