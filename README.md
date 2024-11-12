@@ -1,1 +1,2 @@
-Don't read everything you believe.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
