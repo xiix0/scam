@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+You like to form new friendships and make new acquaintances.
