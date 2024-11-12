@@ -1,1 +1,2 @@
-If you sow your wild oats, hope for a crop failure.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
