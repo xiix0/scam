@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Are you sure the back door is locked?
