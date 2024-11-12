@@ -1,3 +1,2 @@
-You may my glories and my state dispose,
-But not my griefs; still am I king of those.
-		-- William Shakespeare, "Richard II"
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
