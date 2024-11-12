@@ -1,2 +1,1 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+If you sow your wild oats, hope for a crop failure.
