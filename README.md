@@ -1,1 +1,2 @@
-Your lucky number has been disconnected.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
