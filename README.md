@@ -1,1 +1,3 @@
-You're not my type.  For that matter, you're not even my species!!!
+Zounds!  I was never so bethumped with words
+since I first called my brother's father dad.
+		-- William Shakespeare, "Kind John"
