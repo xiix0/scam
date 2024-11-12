@@ -1,1 +1,2 @@
-You're working under a slight handicap.  You happen to be human.
+Wagner's music is better than it sounds.
+		-- Mark Twain
