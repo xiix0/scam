@@ -1,1 +1,3 @@
-Cold hands, no gloves.
+You may my glories and my state dispose,
+But not my griefs; still am I king of those.
+		-- William Shakespeare, "Richard II"
