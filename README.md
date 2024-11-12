@@ -1,1 +1,2 @@
-Are you sure the back door is locked?
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
