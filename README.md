@@ -1,2 +1,1 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+Do what comes naturally.  Seethe and fume and throw a tantrum.
