@@ -1,1 +1,1 @@
-Your step will soil many countries.
+You're not my type.  For that matter, you're not even my species!!!
