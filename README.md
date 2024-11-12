@@ -1,1 +1,1 @@
-You will have a long and unpleasant discussion with your supervisor.
+You're at the end of the road again.
