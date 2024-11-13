@@ -1,2 +1,2 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
