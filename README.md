@@ -1,1 +1,2 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
