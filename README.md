@@ -1,1 +1,1 @@
-You will have long and healthy life.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
