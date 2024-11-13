@@ -1,6 +1,7 @@
-There is no character, howsoever good and fine, but it can be destroyed by
-ridicule, howsoever poor and witless.  Observe the ass, for instance: his
-character is about perfect, he is the choicest spirit among all the humbler
-animals, yet see what ridicule has brought him to.  Instead of feeling
-complimented when we are called an ass, we are left in doubt.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Awash with unfocused desire, Everett twisted the lobe of his one remaining
+ear and felt the presence of somebody else behind him, which caused terror
+to push through his nervous system like a flash flood roaring down the
+mid-fork of the Feather River before the completion of the Oroville Dam
+in 1959.
+		-- Grand Panjandrum's Special Award, 1984 Bulwer-Lytton
+		   bad fiction contest.
