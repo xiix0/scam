@@ -1,1 +1,3 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+The mind is its own place, and in itself
+Can make a Heav'n of Hell, a Hell of Heav'n.
+		-- John Milton
