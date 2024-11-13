@@ -1,1 +1,1 @@
-Just to have it is enough.
+Don't read everything you believe.
