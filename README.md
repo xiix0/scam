@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+You will be singled out for promotion in your work.
