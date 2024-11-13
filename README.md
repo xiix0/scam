@@ -1,2 +1,1 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+You have an unusual equipment for success.  Be sure to use it properly.
