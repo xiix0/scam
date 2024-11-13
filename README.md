@@ -1,1 +1,1 @@
-Day of inquiry.  You will be subpoenaed.
+You will probably marry after a very brief courtship.
