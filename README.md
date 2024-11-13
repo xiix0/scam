@@ -1,2 +1,1 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+Another good night not to sleep in a eucalyptus tree.
