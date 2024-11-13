@@ -1,2 +1,1 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+All the troubles you have will pass away very quickly.
