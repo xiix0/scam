@@ -1,3 +1,1 @@
-All say, "How hard it is that we have to die"--a strange complaint to come from
-the mouths of people who have had to live.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+It may or may not be worthwhile, but it still has to be done.
