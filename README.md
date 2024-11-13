@@ -1,2 +1,1 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+Let me put it this way: today is going to be a learning experience.
