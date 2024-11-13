@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+A day for firm decisions!!!!!  Or is it?
