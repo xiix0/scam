@@ -1,2 +1,2 @@
-There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
