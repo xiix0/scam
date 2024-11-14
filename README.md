@@ -1,1 +1,2 @@
-You will be advanced socially, without any special effort on your part.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
