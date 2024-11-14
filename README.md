@@ -1,1 +1,2 @@
-It may or may not be worthwhile, but it still has to be done.
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
