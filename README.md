@@ -1,1 +1,2 @@
-Don't read any sky-writing for the next two weeks.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
