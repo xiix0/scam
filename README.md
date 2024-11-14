@@ -1,2 +1,2 @@
-He that breaks a thing to find out what it is has left the path of wisdom.
-		-- J.R.R. Tolkien
+You're growing out of some of your problems, but there are others that
+you're growing into.
