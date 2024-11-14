@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+You should go home.
