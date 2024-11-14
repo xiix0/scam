@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+Give your very best today.  Heaven knows it's little enough.
