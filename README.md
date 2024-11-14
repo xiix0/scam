@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Life is to you a dashing and bold adventure.
