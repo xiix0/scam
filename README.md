@@ -1,1 +1,2 @@
-The time is right to make new friends.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
