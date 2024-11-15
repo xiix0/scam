@@ -1,1 +1,2 @@
-You will be married within a year.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
