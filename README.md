@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Your mode of life will be changed for the better because of good news soon.
