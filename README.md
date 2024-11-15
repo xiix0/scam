@@ -1,2 +1,2 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
