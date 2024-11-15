@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+Don't tell any big lies today.  Small ones can be just as effective.
