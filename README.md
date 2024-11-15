@@ -1,1 +1,1 @@
-Advancement in position.
+Live in a world of your own, but always welcome visitors.
