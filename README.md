@@ -1,6 +1,8 @@
-I've touch'd the highest point of all my greatness;
-And from that full meridian of my glory
-I haste now to my setting.  I shall fall,
-Like a bright exhalation in the evening
-And no man see me more.
-		-- Shakespeare
+For the fashion of Minas Tirith was such that it was built on seven levels,
+each delved into a hill, and about each was set a wall, and in each wall
+was a gate.
+		-- J.R.R. Tolkien, "The Return of the King"
+
+	[Quoted in "VMS Internals and Data Structures", V4.4, when
+	 referring to system overview.]
+
