@@ -1,1 +1,1 @@
-You will be divorced within a year.
+There is a fly on your nose.
