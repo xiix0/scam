@@ -1,2 +1,2 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+I have never let my schooling interfere with my education.
+		-- Mark Twain
