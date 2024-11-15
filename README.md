@@ -1,3 +1,3 @@
-Q:	How many Zen masters does it take to screw in a light bulb?
-A:	None.  The Universe spins the bulb, and the Zen master stays out
-	of the way.
+Q:	Why does Washington have the most lawyers per capita and
+	New Jersey the most toxic waste dumps?
+A:	God gave New Jersey first choice.
