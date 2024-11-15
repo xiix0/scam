@@ -1,1 +1,2 @@
-A visit to a strange place will bring fresh work.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
