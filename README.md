@@ -1,2 +1,3 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
