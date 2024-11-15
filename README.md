@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of good news soon.
+Don't tell any big lies today.  Small ones can be just as effective.
