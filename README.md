@@ -1,1 +1,2 @@
-You get along very well with everyone except animals and people.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
