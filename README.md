@@ -1,2 +1,2 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
