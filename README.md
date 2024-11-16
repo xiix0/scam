@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+You have been selected for a secret mission.
