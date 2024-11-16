@@ -1,2 +1,2 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+"... all the modern inconveniences ..."
+		-- Mark Twain
