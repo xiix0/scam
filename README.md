@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+Today is National Existential Ennui Awareness Day.
