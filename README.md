@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+You seek to shield those you love and you like the role of the provider.
