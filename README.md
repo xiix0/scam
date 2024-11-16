@@ -1,2 +1,2 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
