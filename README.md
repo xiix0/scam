@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+You will be recognized and honored as a community leader.
