@@ -1,2 +1,2 @@
-No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
-		-- Sherlock Holmes
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
