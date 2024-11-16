@@ -1,1 +1,2 @@
-You have been selected for a secret mission.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
