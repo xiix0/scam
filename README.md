@@ -1,2 +1,1 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Fine day to work off excess energy.  Steal something heavy.
