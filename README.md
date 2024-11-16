@@ -1,3 +1,1 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+Never look up when dragons fly overhead.
