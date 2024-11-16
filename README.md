@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+Change your thoughts and you change your world.
