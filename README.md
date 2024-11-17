@@ -1,2 +1,2 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+All generalizations are false, including this one.
+		-- Mark Twain
