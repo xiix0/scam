@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Your own qualities will help prevent your advancement in the world.
