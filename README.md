@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
