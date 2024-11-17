@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+Today is National Existential Ennui Awareness Day.
