@@ -1,1 +1,1 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
