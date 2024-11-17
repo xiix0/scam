@@ -1,1 +1,1 @@
-Your lucky color has faded.
+Good day for overcoming obstacles.  Try a steeplechase.
