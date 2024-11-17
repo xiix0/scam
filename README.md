@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
