@@ -1,1 +1,1 @@
-There is a fly on your nose.
+Are you sure the back door is locked?
