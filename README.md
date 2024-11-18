@@ -1,1 +1,2 @@
-Your fly might be open (but don't check it just now).
+Big book, big bore.
+		-- Callimachus
