@@ -1,1 +1,1 @@
-You will wish you hadn't.
+Do nothing unless you must, and when you must act -- hesitate.
