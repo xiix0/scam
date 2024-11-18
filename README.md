@@ -1,1 +1,1 @@
-You'll be called to a post requiring ability in handling groups of people.
+You will pioneer the first Martian colony.
