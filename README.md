@@ -1,3 +1,2 @@
-It is so very hard to be an
-on-your-own-take-care-of-yourself-because-there-is-no-one-else-to-do-it-for-you
-grown-up.
+Q:	How many Harvard MBA's does it take to screw in a light bulb?
+A:	Just one.  He grasps it firmly and the universe revolves around him.
