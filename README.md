@@ -1,2 +1,1 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+You are a fluke of the universe; you have no right to be here.
