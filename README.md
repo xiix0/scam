@@ -1,2 +1,2 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
