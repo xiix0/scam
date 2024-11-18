@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+You'll be called to a post requiring ability in handling groups of people.
