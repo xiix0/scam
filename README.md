@@ -1,2 +1,2 @@
-You are wise, witty, and wonderful, but you spend too much time reading
-this sort of trash.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
