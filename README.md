@@ -1,4 +1,6 @@
-Persons attempting to find a motive in this narrative will be prosecuted;
-persons attempting to find a moral in it will be banished; persons attempting
-to find a plot in it will be shot.  By Order of the Author
-		-- Mark Twain, "The Adventures of Huckleberry Finn"
+I've touch'd the highest point of all my greatness;
+And from that full meridian of my glory
+I haste now to my setting.  I shall fall,
+Like a bright exhalation in the evening
+And no man see me more.
+		-- Shakespeare
