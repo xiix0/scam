@@ -1,2 +1,1 @@
-Big book, big bore.
-		-- Callimachus
+It may or may not be worthwhile, but it still has to be done.
