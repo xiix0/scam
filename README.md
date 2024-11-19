@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
