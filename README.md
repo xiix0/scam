@@ -1,3 +1,2 @@
-A classic is something that everyone wants to have read
-and nobody wants to read.
-		-- Mark Twain, "The Disappearance of Literature"
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
