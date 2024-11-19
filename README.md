@@ -1,1 +1,1 @@
-You are not dead yet.  But watch for further reports.
+So this is it.  We're going to die.
