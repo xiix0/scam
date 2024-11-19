@@ -1,2 +1,2 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
