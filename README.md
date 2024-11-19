@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+Excellent time to become a missing person.
