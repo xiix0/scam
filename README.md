@@ -1,1 +1,2 @@
-You don't become a failure until you're satisfied with being one.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
