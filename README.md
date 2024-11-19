@@ -1,2 +1,2 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
