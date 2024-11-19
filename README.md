@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
