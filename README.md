@@ -1,6 +1,8 @@
-Q:	What did Tarzan say when he saw the elephants coming over the hill?
-A:	"The elephants are coming over the hill."
+October.
 
-Q:	What did he say when saw them coming over the hill wearing
-		sunglasses?
-A:	Nothing, for he didn't recognize them.
+This is one of the peculiarly dangerous months to speculate in stocks in.
+
+The others are July, January, September, April, November, May, March, June,
+December, August, and February.
+
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
