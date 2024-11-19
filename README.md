@@ -1,2 +1,2 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
