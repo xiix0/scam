@@ -1,2 +1,1 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Your own qualities will help prevent your advancement in the world.
