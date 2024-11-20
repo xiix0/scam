@@ -1,2 +1,2 @@
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
