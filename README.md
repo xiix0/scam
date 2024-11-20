@@ -1,1 +1,1 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+You recoil from the crude; you tend naturally toward the exquisite.
