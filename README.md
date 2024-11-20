@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+You display the wonderful traits of charm and courtesy.
