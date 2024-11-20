@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+You will be advanced socially, without any special effort on your part.
