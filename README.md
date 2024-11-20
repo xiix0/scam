@@ -1,1 +1,2 @@
-Try the Moo Shu Pork.  It is especially good today.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
