@@ -1,6 +1,5 @@
-In the plot, people came to the land; the land loved them; they worked and
-struggled and had lots of children.  There was a Frenchman who talked funny
-and a greenhorn from England who was a fancy-pants but when it came to the
-crunch he was all courage.  Those novels would make you retch.
-		-- Canadian novelist Robertson Davies, on the generic Canadian
-		   novel.
+The notes blatted skyward as they rose over the Canada geese, feathered
+rumps mooning the day, webbed appendages frantically pedaling unseen
+bicycles in their search for sustenance, driven by cruel Nature's maxim,
+'Ya wanna eat, ya gotta work,' and at last I knew Pittsburgh.
+		-- Winning sentence, 1987 Bulwer-Lytton bad fiction contest.
