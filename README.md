@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+You attempt things that you do not even plan because of your extreme stupidity.
