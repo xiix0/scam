@@ -1,2 +1,1 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+People are beginning to notice you.  Try dressing before you leave the house.
