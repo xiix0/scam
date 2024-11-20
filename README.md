@@ -1,2 +1,1 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+You are so boring that when I see you my feet go to sleep.
