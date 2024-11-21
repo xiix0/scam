@@ -1,1 +1,2 @@
-You are number 6!  Who is number one?
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
