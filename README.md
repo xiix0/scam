@@ -1,3 +1,1 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+Your mode of life will be changed for the better because of good news soon.
