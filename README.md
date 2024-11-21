@@ -1,8 +1,3 @@
-October.
-
-This is one of the peculiarly dangerous months to speculate in stocks in.
-
-The others are July, January, September, April, November, May, March, June,
-December, August, and February.
-
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
