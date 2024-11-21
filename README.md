@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+You will receive a legacy which will place you above want.
