@@ -1,1 +1,2 @@
-You are taking yourself far too seriously.
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
