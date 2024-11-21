@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+Don't you feel more like you do now than you did when you came in?
