@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+You will live a long, healthy, happy life and make bags of money.
