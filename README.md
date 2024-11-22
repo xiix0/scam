@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+Blow it out your ear.
