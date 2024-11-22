@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Beware of a dark-haired man with a loud tie.
