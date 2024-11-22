@@ -1,3 +1,2 @@
-There is an old time toast which is golden for its beauty.
-"When you ascend the hill of prosperity may you not meet a friend."
-		-- Mark Twain
+Q:	What's the difference betweeen USL and the Graf Zeppelin?
+A:	The Graf Zeppelin represented cutting edge technology for its time.
