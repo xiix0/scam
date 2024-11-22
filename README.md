@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+You own a dog, but you can only feed a cat.
