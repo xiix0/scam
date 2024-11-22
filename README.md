@@ -1,1 +1,2 @@
-You enjoy the company of other people.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
