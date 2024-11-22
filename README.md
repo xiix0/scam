@@ -1,1 +1,2 @@
-Your love life will be... interesting.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
