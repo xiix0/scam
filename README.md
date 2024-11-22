@@ -1,2 +1,2 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
