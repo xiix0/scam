@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+You enjoy the company of other people.
