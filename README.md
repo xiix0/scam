@@ -1,1 +1,1 @@
-You will be run over by a bus.
+You never hesitate to tackle the most difficult problems.
