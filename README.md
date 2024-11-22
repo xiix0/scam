@@ -1,2 +1,1 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
