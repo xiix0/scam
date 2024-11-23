@@ -1,3 +1,1 @@
-Your manuscript is both good and original, but the part that is good is not
-original and the part that is original is not good.
-		-- Samuel Johnson
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
