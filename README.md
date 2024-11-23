@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
