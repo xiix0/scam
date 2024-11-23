@@ -1,2 +1,2 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
