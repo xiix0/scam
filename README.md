@@ -1,2 +1,3 @@
-"... all the modern inconveniences ..."
-		-- Mark Twain
+Someone is speaking well of you.
+
+How unusual!
