@@ -1,2 +1,2 @@
-If you tell the truth you don't have to remember anything.
+"... all the modern inconveniences ..."
 		-- Mark Twain
