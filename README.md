@@ -1,2 +1,1 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+Ships are safe in harbor, but they were never meant to stay there.
