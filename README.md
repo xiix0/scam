@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+You're almost as happy as you think you are.
