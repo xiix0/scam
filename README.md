@@ -1,1 +1,1 @@
-You dialed 5483.
+Life is to you a dashing and bold adventure.
