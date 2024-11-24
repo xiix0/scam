@@ -1,2 +1,2 @@
-You should emulate your heros, but don't carry it too far.  Especially
-if they are dead.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
