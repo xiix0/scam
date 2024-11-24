@@ -1,3 +1,3 @@
-You never have to change anything you got up in the middle of the night
-to write.
-		-- Saul Bellow
+Q:	Why should you always serve a Southern Carolina football man
+	soup in a plate?
+A:	'Cause if you give him a bowl, he'll throw it away.
