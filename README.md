@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+You will feel hungry again in another hour.
