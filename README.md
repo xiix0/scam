@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+Your domestic life may be harmonious.
