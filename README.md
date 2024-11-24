@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+You will be called upon to help a friend in trouble.
