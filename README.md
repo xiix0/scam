@@ -1,2 +1,2 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
