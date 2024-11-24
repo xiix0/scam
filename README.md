@@ -1,2 +1,2 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
