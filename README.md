@@ -1,1 +1,2 @@
-Your sister swims out to meet troop ships.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
