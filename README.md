@@ -1,1 +1,3 @@
-You will live to see your grandchildren.
+Someone is speaking well of you.
+
+How unusual!
