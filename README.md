@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+Abandon the search for Truth; settle for a good fantasy.
