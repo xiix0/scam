@@ -1,1 +1,2 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
