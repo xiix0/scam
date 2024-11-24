@@ -1,2 +1,2 @@
-No group of professionals meets except to conspire against the public at large.
+"... all the modern inconveniences ..."
 		-- Mark Twain
