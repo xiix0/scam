@@ -1,1 +1,3 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Questionable day.
+
+Ask somebody something.
