@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+You are magnetic in your bearing.
