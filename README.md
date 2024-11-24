@@ -1,1 +1,2 @@
-You will be called upon to help a friend in trouble.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
