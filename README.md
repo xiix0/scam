@@ -1,1 +1,1 @@
-A day for firm decisions!!!!!  Or is it?
+Executive ability is prominent in your make-up.
