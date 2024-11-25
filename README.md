@@ -1,3 +1,1 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+Love is in the offing.  Be affectionate to one who adores you.
