@@ -1,2 +1,3 @@
-You will be attacked by a beast who has the body of a wolf, the tail of
-a lion, and the face of Donald Duck.
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
