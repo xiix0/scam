@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+Your mode of life will be changed for the better because of good news soon.
