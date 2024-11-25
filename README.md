@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+Today is what happened to yesterday.
