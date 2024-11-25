@@ -1,1 +1,2 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
