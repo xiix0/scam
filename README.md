@@ -1,2 +1,1 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+Today is the last day of your life so far.
