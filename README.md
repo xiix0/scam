@@ -1,1 +1,2 @@
-Love is in the offing.  Be affectionate to one who adores you.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
