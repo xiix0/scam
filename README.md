@@ -1,1 +1,1 @@
-You're at the end of the road again.
+You have a deep appreciation of the arts and music.
