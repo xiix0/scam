@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Artistic ventures highlighted.  Rob a museum.
