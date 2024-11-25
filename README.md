@@ -1,1 +1,2 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
