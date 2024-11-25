@@ -1,1 +1,2 @@
-You're currently going through a difficult transition period called "Life."
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
