@@ -1,2 +1,2 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
