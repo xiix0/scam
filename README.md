@@ -1,2 +1,1 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+Don't feed the bats tonight.
