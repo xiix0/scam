@@ -1,2 +1,1 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+You're currently going through a difficult transition period called "Life."
