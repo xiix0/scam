@@ -1,1 +1,1 @@
-You will pass away very quickly.
+You have an unusual understanding of the problems of human relationships.
