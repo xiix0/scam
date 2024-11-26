@@ -1,1 +1,3 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
+are not the person involved.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
