@@ -1,2 +1,1 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Do what comes naturally.  Seethe and fume and throw a tantrum.
