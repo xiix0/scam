@@ -1,1 +1,3 @@
-You seek to shield those you love and you like the role of the provider.
+Reader, suppose you were an idiot.  And suppose you were a member of
+Congress.  But I repeat myself.
+		-- Mark Twain
