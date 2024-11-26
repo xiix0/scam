@@ -1,2 +1,1 @@
-When you are about to die, a wombat is better than no company at all.
-		-- Roger Zelazny, "Doorways in the Sand"
+It's lucky you're going so slowly, because you're going in the wrong direction.
