@@ -1,1 +1,1 @@
-You now have Asian Flu.
+Your lucky number has been disconnected.
