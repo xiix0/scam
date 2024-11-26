@@ -1,1 +1,2 @@
-Don't get stuck in a closet -- wear yourself out.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
