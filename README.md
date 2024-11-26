@@ -1,1 +1,1 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+You will be the last person to buy a Chrysler.
