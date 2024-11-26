@@ -1,1 +1,2 @@
-You have an unusual understanding of the problems of human relationships.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
