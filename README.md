@@ -1,1 +1,2 @@
-You have the power to influence all with whom you come in contact.
+I'll burn my books.
+		-- Christopher Marlowe
