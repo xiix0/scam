@@ -1,2 +1,2 @@
-I have never let my schooling interfere with my education.
+Wrinkles should merely indicate where smiles have been.
 		-- Mark Twain
