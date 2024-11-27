@@ -1,1 +1,2 @@
-You would if you could but you can't so you won't.
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
