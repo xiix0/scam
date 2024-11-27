@@ -1,2 +1,2 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
