@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+You would if you could but you can't so you won't.
