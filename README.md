@@ -1,1 +1,2 @@
-Courage is your greatest present need.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
