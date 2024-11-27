@@ -1,1 +1,1 @@
-You feel a whole lot more like you do now than you did when you used to.
+There is a 20% chance of tomorrow.
