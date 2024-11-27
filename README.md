@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+Don't kiss an elephant on the lips today.
