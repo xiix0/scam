@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
