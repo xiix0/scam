@@ -1,2 +1,2 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
