@@ -1,1 +1,3 @@
-Your domestic life may be harmonious.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
