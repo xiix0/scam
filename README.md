@@ -1,1 +1,2 @@
-You're definitely on their list.  The question to ask next is what list it is.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
