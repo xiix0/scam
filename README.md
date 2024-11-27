@@ -1,1 +1,2 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
