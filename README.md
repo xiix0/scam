@@ -1,1 +1,2 @@
-Don't kiss an elephant on the lips today.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
