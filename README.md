@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+You recoil from the crude; you tend naturally toward the exquisite.
