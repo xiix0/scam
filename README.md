@@ -1,2 +1,5 @@
-The first thing we do, let's kill all the lawyers.
-		-- Wm. Shakespeare, "Henry VI", Part IV
+Q:	How do you catch a unique rabbit?
+A:	Unique up on it!
+
+Q:	How do you catch a tame rabbit?
+A:	The tame way!
