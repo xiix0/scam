@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+You seek to shield those you love and you like the role of the provider.
