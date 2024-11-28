@@ -1,1 +1,1 @@
-You will be run over by a bus.
+Change your thoughts and you change your world.
