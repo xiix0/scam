@@ -1,2 +1,1 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+This will be a memorable month -- no matter how hard you try to forget it.
