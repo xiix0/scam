@@ -1,1 +1,2 @@
-Give your very best today.  Heaven knows it's little enough.
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
