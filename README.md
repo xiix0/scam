@@ -1,3 +1,3 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
+Noise proves nothing.  Often a hen who has merely laid an egg cackles
+as if she laid an asteroid.
 		-- Mark Twain
