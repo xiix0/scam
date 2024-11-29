@@ -1,1 +1,2 @@
-Your lover will never wish to leave you.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
