@@ -1,1 +1,2 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
