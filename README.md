@@ -1,1 +1,2 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
