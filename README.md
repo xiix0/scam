@@ -1,1 +1,2 @@
-You will be winged by an anti-aircraft battery.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
