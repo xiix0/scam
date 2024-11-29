@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+Good news.  Ten weeks from Friday will be a pretty good day.
