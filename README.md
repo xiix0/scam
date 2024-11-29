@@ -1,3 +1,1 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #19
-A:	To be or not to be.
-Q:	What is the square root of 4b^2?
+Living your life is a task so difficult, it has never been attempted before.
