@@ -1,1 +1,1 @@
-Let me put it this way: today is going to be a learning experience.
+You have an ambitious nature and may make a name for yourself.
