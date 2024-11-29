@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+There was a phone call for you.
