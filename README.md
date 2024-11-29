@@ -1,2 +1,2 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
