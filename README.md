@@ -1,2 +1,1 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+In the stairway of life, you'd best take the elevator.
