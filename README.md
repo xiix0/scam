@@ -1,5 +1,5 @@
-Q:	What do you call 15 blondes in a circle?
-A:	A dope ring.
-
-Q:	Why do blondes put their hair in ponytails?
-A:	To cover up the valve stem.
+Q:	How many existentialists does it take to screw in a light bulb?
+A:	Two.  One to screw it in and one to observe how the light bulb
+	itself symbolizes a single incandescent beacon of subjective
+	reality in a netherworld of endless absurdity reaching out toward a
+	maudlin cosmos of nothingness.
