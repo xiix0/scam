@@ -1,1 +1,2 @@
-You definitely intend to start living sometime soon.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
