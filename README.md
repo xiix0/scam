@@ -1,1 +1,1 @@
-In the stairway of life, you'd best take the elevator.
+You don't become a failure until you're satisfied with being one.
