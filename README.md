@@ -1,1 +1,2 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
