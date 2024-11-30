@@ -1,1 +1,2 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
