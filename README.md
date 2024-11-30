@@ -1,3 +1,1 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
