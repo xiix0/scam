@@ -1,2 +1,1 @@
-Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
-		-- Shakespeare
+Time to be aggressive.  Go after a tattooed Virgo.
