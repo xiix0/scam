@@ -1,1 +1,2 @@
-Future looks spotty.  You will spill soup in late evening.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
