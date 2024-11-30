@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+Is that really YOU that is reading this?
