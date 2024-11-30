@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You will be given a post of trust and responsibility.
