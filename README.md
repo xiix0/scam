@@ -1,2 +1,8 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+To be or not to be.
+		-- Shakespeare
+To do is to be.
+		-- Nietzsche
+To be is to do.
+		-- Sartre
+Do be do be do.
+		-- Sinatra
