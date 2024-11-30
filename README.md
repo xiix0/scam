@@ -1,1 +1,3 @@
-Don't worry so loud, your roommate can't think.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
