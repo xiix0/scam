@@ -1,1 +1,2 @@
-In the stairway of life, you'd best take the elevator.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
