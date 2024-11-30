@@ -1,2 +1,2 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
