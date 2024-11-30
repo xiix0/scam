@@ -1,2 +1,2 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
