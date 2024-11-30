@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+	A man was reading The Canterbury Tales one Saturday morning, when his
+wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
