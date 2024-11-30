@@ -1,3 +1,2 @@
-Q:	Why do the police always travel in threes?
-A:	One to do the reading, one to do the writing, and the other keeps
-	an eye on the two intellectuals.
+Q:	How many lawyers does it take to change a light bulb?
+A:	One.  Only it's his light bulb when he's done.
