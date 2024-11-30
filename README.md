@@ -1,1 +1,2 @@
-Truth will out this morning.  (Which may really mess things up.)
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
