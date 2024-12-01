@@ -1,1 +1,2 @@
-Another good night not to sleep in a eucalyptus tree.
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
