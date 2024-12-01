@@ -1,2 +1,2 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
