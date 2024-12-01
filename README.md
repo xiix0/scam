@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
