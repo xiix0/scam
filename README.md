@@ -1,3 +1,3 @@
-This is the first age that's paid much attention to the future, which is a
-little ironic since we may not have one.
-		-- Arthur Clarke
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
