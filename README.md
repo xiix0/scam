@@ -1,4 +1,3 @@
-In India, "cold weather" is merely a conventional phrase and has come into
-use through the necessity of having some way to distinguish between weather
-which will melt a brass door-knob and weather which will only make it mushy.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
 		-- Mark Twain
