@@ -1,1 +1,2 @@
-You have had a long-term stimulation relative to business.
+I'll burn my books.
+		-- Christopher Marlowe
