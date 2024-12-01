@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+Tomorrow, you can be anywhere.
