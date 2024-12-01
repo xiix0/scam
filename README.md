@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Another good night not to sleep in a eucalyptus tree.
