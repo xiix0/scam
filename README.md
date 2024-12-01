@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You will always get the greatest recognition for the job you least like.
