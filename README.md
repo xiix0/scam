@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+You're being followed.  Cut out the hanky-panky for a few days.
