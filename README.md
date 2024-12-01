@@ -1,3 +1,2 @@
-Noise proves nothing.  Often a hen who has merely laid an egg cackles
-as if she laid an asteroid.
+Wrinkles should merely indicate where smiles have been.
 		-- Mark Twain
