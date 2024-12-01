@@ -1,3 +1,3 @@
-Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
-A:	Easy.  It's because they can't figure out how to get the little
-	bottles into the typewriter.
+This is the first age that's paid much attention to the future, which is a
+little ironic since we may not have one.
+		-- Arthur Clarke
