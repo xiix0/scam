@@ -1,2 +1,5 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+Knucklehead:	"Knock, knock"
+Pee Wee:	"Who's there?"
+Knucklehead:	"Little ol' lady."
+Pee Wee:	"Liddle ol' lady who?"
+Knucklehead:	"I didn't know you could yodel"
