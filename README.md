@@ -1,3 +1,2 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
