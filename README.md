@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+Excellent day to have a rotten day.
