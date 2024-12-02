@@ -1,2 +1,2 @@
-There is always one thing to remember: writers are always selling somebody out.
-		-- Joan Didion, "Slouching Towards Bethlehem"
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
