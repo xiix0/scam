@@ -1,2 +1,3 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+Q:	Why do people who live near Niagara Falls have flat foreheads?
+A:	Because every morning they wake up thinking "What *is* that noise?
+	Oh, right, *of course*!
