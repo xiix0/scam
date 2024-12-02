@@ -1,1 +1,3 @@
-You are confused; but this is your normal state.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
