@@ -1,2 +1,2 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
