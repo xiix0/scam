@@ -1,1 +1,1 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+Do not sleep in a eucalyptus tree tonight.
