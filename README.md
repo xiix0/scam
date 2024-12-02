@@ -1,2 +1,1 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+You have an unusual equipment for success.  Be sure to use it properly.
