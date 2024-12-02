@@ -1,1 +1,1 @@
-You may be recognized soon.  Hide.
+You have a strong appeal for members of the opposite sex.
