@@ -1,1 +1,2 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
