@@ -1,1 +1,1 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Are you making all this up as you go along?
