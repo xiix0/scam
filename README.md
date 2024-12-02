@@ -1,1 +1,1 @@
-You will be audited by the Internal Revenue Service.
+If you sow your wild oats, hope for a crop failure.
