@@ -1,2 +1,1 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+Your temporary financial embarrassment will be relieved in a surprising manner.
