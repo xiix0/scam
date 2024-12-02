@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+Good day for overcoming obstacles.  Try a steeplechase.
