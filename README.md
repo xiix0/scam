@@ -1,2 +1,1 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+Don't plan any hasty moves.  You'll be evicted soon anyway.
