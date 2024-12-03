@@ -1,1 +1,1 @@
-Don't let your mind wander -- it's too little to be let out alone.
+You have Egyptian flu: you're going to be a mummy.
