@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+You will be the last person to buy a Chrysler.
