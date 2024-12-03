@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+You are deeply attached to your friends and acquaintances.
