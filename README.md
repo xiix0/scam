@@ -1,1 +1,2 @@
-Keep it short for pithy sake.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
