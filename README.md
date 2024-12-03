@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
