@@ -1,2 +1,2 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
