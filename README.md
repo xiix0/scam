@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+Excellent time to become a missing person.
