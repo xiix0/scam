@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+Communicate!  It can't make things any worse.
