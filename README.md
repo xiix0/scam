@@ -1,5 +1,2 @@
-Knucklehead:	"Knock, knock"
-Pee Wee:	"Who's there?"
-Knucklehead:	"Little ol' lady."
-Pee Wee:	"Liddle ol' lady who?"
-Knucklehead:	"I didn't know you could yodel"
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
