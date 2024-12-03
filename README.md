@@ -1,1 +1,2 @@
-You have many friends and very few living enemies.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
