@@ -1,1 +1,2 @@
-You'll feel much better once you've given up hope.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
