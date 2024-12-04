@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
-A:	Chicken Teriyaki.
-Q:	What is the name of the world's oldest kamikaze pilot?
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
