@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+Tonight's the night: Sleep in a eucalyptus tree.
