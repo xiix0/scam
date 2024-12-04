@@ -1,2 +1,3 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
+A:	Chicken Teriyaki.
+Q:	What is the name of the world's oldest kamikaze pilot?
