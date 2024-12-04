@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+Your lucky number is 3552664958674928.  Watch for it everywhere.
