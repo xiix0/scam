@@ -1,1 +1,2 @@
-You'll be called to a post requiring ability in handling groups of people.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
