@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+Someone whom you reject today, will reject you tomorrow.
