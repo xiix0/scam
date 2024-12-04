@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Another good night not to sleep in a eucalyptus tree.
