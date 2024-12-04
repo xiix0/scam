@@ -1,3 +1,3 @@
-He draweth out the thread of his verbosity finer than the staple of his
-argument.
-		-- William Shakespeare, "Love's Labour's Lost"
+Its name is Public Opinion.  It is held in reverence.  It settles everything.
+Some think it is the voice of God.
+		-- Mark Twain
