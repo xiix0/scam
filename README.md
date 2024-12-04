@@ -1,1 +1,2 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
