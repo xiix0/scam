@@ -1,1 +1,2 @@
-You will be surrounded by luxury.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
