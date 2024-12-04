@@ -1,1 +1,2 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
