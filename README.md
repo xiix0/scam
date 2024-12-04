@@ -1,1 +1,2 @@
-You are as I am with You.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
