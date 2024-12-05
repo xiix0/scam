@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Everything that you know is wrong, but you can be straightened out.
