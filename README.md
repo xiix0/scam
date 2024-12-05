@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
+He is now rising from affluence to poverty.
 		-- Mark Twain
