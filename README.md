@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Keep emotionally active.  Cater to your favorite neurosis.
