@@ -1,2 +1,1 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+You'll be called to a post requiring ability in handling groups of people.
