@@ -1,2 +1,2 @@
-He is now rising from affluence to poverty.
+Kindness is a language which the deaf can hear and the blind can read.
 		-- Mark Twain
