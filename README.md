@@ -1,2 +1,3 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
