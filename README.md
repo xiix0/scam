@@ -1,1 +1,2 @@
-Stay away from flying saucers today.
+All generalizations are false, including this one.
+		-- Mark Twain
