@@ -1,1 +1,1 @@
-Everything that you know is wrong, but you can be straightened out.
+You prefer the company of the opposite sex, but are well liked by your own.
