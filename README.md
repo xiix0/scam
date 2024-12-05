@@ -1,2 +1,1 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+Blow it out your ear.
