@@ -1,1 +1,2 @@
-You may get an opportunity for advancement today.  Watch it!
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
