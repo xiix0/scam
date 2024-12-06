@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You are sick, twisted and perverted.  I like that in a person.
