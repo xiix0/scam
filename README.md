@@ -1,2 +1,2 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
