@@ -1,1 +1,1 @@
-You are sick, twisted and perverted.  I like that in a person.
+Someone whom you reject today, will reject you tomorrow.
