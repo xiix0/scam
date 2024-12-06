@@ -1,1 +1,2 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+Conscience doth make cowards of us all.
+		-- Shakespeare
