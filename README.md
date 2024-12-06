@@ -1,2 +1,3 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #19
+A:	To be or not to be.
+Q:	What is the square root of 4b^2?
