@@ -1,2 +1,3 @@
-Q:	How many college football players does it take to screw in a light bulb?
-A:	Only one, but he gets three credits for it.
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
