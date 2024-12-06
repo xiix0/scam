@@ -1,2 +1,1 @@
-Q:	How many marketing people does it take to change a light bulb?
-A:	I'll have to get back to you on that.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
