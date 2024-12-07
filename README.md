@@ -1,1 +1,2 @@
-Another good night not to sleep in a eucalyptus tree.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
