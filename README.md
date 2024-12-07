@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+Alimony and bribes will engage a large share of your wealth.
