@@ -1,1 +1,1 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Cheer Up!  Things are getting worse at a slower rate.
