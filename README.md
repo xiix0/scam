@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+Today is the tomorrow you worried about yesterday.
