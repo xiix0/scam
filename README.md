@@ -1,2 +1,1 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+Your love life will be happy and harmonious.
