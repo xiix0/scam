@@ -1,3 +1,2 @@
-You never have to change anything you got up in the middle of the night
-to write.
-		-- Saul Bellow
+Q:	How many lawyers does it take to change a light bulb?
+A:	One.  Only it's his light bulb when he's done.
