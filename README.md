@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+You'd like to do it instantaneously, but that's too slow.
