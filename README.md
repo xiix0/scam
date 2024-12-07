@@ -1,1 +1,2 @@
-Today is the tomorrow you worried about yesterday.
+I'll burn my books.
+		-- Christopher Marlowe
