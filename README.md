@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+Your mode of life will be changed for the better because of good news soon.
