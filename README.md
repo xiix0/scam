@@ -1,1 +1,2 @@
-You are taking yourself far too seriously.
+What I tell you three times is true.
+		-- Lewis Carroll
