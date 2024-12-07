@@ -1,1 +1,1 @@
-Never reveal your best argument.
+You will be recognized and honored as a community leader.
