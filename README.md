@@ -1,1 +1,2 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
