@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+You will receive a legacy which will place you above want.
