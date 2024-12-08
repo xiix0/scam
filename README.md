@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Your business will assume vast proportions.
