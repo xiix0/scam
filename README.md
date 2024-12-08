@@ -1,1 +1,2 @@
-You are standing on my toes.
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
