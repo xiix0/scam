@@ -1,3 +1,2 @@
-He draweth out the thread of his verbosity finer than the staple of his
-argument.
-		-- William Shakespeare, "Love's Labour's Lost"
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
