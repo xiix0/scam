@@ -1,1 +1,2 @@
-You are magnetic in your bearing.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
