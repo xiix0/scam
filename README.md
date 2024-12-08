@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+Cheer Up!  Things are getting worse at a slower rate.
