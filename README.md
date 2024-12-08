@@ -1,2 +1,2 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
