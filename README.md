@@ -1,1 +1,2 @@
-You will triumph over your enemy.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
