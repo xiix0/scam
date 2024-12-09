@@ -1,2 +1,3 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
