@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+You dialed 5483.
