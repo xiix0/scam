@@ -1,2 +1,3 @@
-Q:	Why do WASPs play golf ?
-A:	So they can dress like pimps.
+A classic is something that everyone wants to have read
+and nobody wants to read.
+		-- Mark Twain, "The Disappearance of Literature"
