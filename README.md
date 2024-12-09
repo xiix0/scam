@@ -1,2 +1,1 @@
-Talkers are no good doers.
-		-- William Shakespeare, "Henry VI"
+All the troubles you have will pass away very quickly.
