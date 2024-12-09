@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
