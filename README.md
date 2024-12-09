@@ -1,1 +1,1 @@
-Don't get to bragging.
+You will engage in a profitable business activity.
