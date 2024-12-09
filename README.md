@@ -1,2 +1,2 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
