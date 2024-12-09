@@ -1,1 +1,2 @@
-Change your thoughts and you change your world.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
