@@ -1,2 +1,1 @@
-No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
-		-- Sherlock Holmes
+You never know how many friends you have until you rent a house on the beach.
