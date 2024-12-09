@@ -1,1 +1,2 @@
-You fill a much-needed gap.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
