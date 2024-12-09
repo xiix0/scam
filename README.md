@@ -1,3 +1,2 @@
-Q:	Know what the difference between your latest project
-	and putting wings on an elephant is?
-A:	Who knows?  The elephant *might* fly, heh, heh...
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
