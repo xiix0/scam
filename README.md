@@ -1,1 +1,2 @@
-You will step on the night soil of many countries.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
