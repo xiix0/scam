@@ -1,3 +1,2 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
