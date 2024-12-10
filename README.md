@@ -1,2 +1,1 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+Let me put it this way: today is going to be a learning experience.
