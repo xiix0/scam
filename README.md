@@ -1,1 +1,3 @@
-Let me put it this way: today is going to be a learning experience.
+In a museum in Havana, there are two skulls of Christopher Columbus,
+"one when he was a boy and one when he was a man."
+		-- Mark Twain
