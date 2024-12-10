@@ -1,1 +1,1 @@
-Chicken Little was right.
+Are you sure the back door is locked?
