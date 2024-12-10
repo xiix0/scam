@@ -1,1 +1,2 @@
-Executive ability is prominent in your make-up.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
