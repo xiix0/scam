@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+Executive ability is prominent in your make-up.
