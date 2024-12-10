@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
