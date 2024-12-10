@@ -1,1 +1,3 @@
-Everything will be just tickety-boo today.
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
