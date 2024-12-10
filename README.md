@@ -1,1 +1,2 @@
-You are only young once, but you can stay immature indefinitely.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
