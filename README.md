@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
