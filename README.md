@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+Fine day to work off excess energy.  Steal something heavy.
