@@ -1,1 +1,1 @@
-Be different: conform.
+You will be divorced within a year.
