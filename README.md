@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
