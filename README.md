@@ -1,2 +1,4 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
