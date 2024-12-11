@@ -1,3 +1,1 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
-A:	The Royal Canadian Mounted Police.
-Q:	What was the greatest achievement in taxidermy?
+You two ought to be more careful--your love could drag on for years and years.
