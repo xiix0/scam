@@ -1,2 +1,3 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
+A:	The Royal Canadian Mounted Police.
+Q:	What was the greatest achievement in taxidermy?
