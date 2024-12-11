@@ -1,1 +1,2 @@
-Today is the first day of the rest of the mess.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
