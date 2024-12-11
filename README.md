@@ -1,1 +1,1 @@
-You will get what you deserve.
+Good day for a change of scene.  Repaper the bedroom wall.
