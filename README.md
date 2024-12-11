@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
