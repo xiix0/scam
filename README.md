@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+That secret you've been guarding, isn't.
