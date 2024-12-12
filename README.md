@@ -1,2 +1,2 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
