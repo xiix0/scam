@@ -1,1 +1,2 @@
-Do nothing unless you must, and when you must act -- hesitate.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
