@@ -1,2 +1,1 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+You can create your own opportunities this week.  Blackmail a senior executive.
