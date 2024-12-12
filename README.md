@@ -1,1 +1,2 @@
-You have the power to influence all with whom you come in contact.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
