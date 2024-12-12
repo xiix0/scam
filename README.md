@@ -1,2 +1,2 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
