@@ -1,1 +1,2 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
