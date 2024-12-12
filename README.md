@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+You're a card which will have to be dealt with.
