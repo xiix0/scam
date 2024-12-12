@@ -1,1 +1,1 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+Try the Moo Shu Pork.  It is especially good today.
