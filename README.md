@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
