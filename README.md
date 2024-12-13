@@ -1,1 +1,2 @@
-Your love life will be... interesting.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
