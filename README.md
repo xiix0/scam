@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+Avert misunderstanding by calm, poise, and balance.
