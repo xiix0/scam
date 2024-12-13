@@ -1,2 +1,1 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+You'd like to do it instantaneously, but that's too slow.
