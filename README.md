@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Today is the first day of the rest of your life.
