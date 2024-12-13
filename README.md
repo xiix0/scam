@@ -1,2 +1,1 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+Love is in the offing.  Be affectionate to one who adores you.
