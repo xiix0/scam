@@ -1,2 +1,3 @@
-Q:	How many Harvard MBA's does it take to screw in a light bulb?
-A:	Just one.  He grasps it firmly and the universe revolves around him.
+Q:	Why do the police always travel in threes?
+A:	One to do the reading, one to do the writing, and the other keeps
+	an eye on the two intellectuals.
