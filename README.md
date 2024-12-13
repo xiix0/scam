@@ -1,2 +1,1 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+You will be run over by a beer truck.
