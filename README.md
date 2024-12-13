@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+Your lucky color has faded.
