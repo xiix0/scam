@@ -1,1 +1,2 @@
-There is a fly on your nose.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
