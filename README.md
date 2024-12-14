@@ -1,5 +1,3 @@
-"I wonder", he said to himself, "what's in a book while it's closed.  Oh, I
-know it's full of letters printed on paper, but all the same, something must
-be happening, because as soon as I open it, there's a whole story with people
-I don't know yet and all kinds of adventures and battles."
-		-- Bastian B. Bux
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
