@@ -1,1 +1,2 @@
-Tuesday is the Wednesday of the rest of your life.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
