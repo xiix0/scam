@@ -1,1 +1,2 @@
-Your sister swims out to meet troop ships.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
