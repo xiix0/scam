@@ -1,1 +1,1 @@
-There is a fly on your nose.
+You will gain money by an illegal action.
