@@ -1,3 +1,8 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+To be or not to be.
+		-- Shakespeare
+To do is to be.
+		-- Nietzsche
+To be is to do.
+		-- Sartre
+Do be do be do.
+		-- Sinatra
