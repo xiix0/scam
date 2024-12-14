@@ -1,2 +1,1 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+Good day to deal with people in high places; particularly lonely stewardesses.
