@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+Don't get to bragging.
