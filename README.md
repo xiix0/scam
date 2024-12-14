@@ -1,1 +1,2 @@
-Are you making all this up as you go along?
+Something's rotten in the state of Denmark.
+		-- Shakespeare
