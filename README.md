@@ -1,2 +1,2 @@
-Always the dullness of the fool is the whetstone of the wits.
-		-- William Shakespeare, "As You Like It"
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
