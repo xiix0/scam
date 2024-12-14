@@ -1,3 +1,1 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+You're almost as happy as you think you are.
