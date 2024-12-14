@@ -1,2 +1,3 @@
-You're growing out of some of your problems, but there are others that
-you're growing into.
+Writing is easy; all you do is sit staring at the blank sheet of paper until
+drops of blood form on your forehead.
+		-- Gene Fowler
