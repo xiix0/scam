@@ -1,3 +1,2 @@
-Hain't we got all the fools in town on our side?  And hain't that a big
-enough majority in any town?
-		-- Mark Twain, "Huckleberry Finn"
+Q:	What do you have when you have a lawyer buried up to his neck in sand?
+A:	Not enough sand.
