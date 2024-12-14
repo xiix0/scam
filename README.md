@@ -1,2 +1,2 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
