@@ -1,2 +1,5 @@
-Q:	What's the difference between a Mac and an Etch-a-Sketch?
-A:	You don't have to shake the Mac to clear the screen.
+Q:	Why is Poland just like the United States?
+A:	In the United States you can't buy anything for zlotys and in
+	Poland you can't either, while in the U.S. you can get whatever
+	you want for dollars, just as you can in Poland.
+		-- being told in Poland, 1987
