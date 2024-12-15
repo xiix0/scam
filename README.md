@@ -1,1 +1,3 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
