@@ -1,1 +1,2 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
