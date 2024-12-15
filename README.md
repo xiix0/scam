@@ -1,2 +1,2 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
