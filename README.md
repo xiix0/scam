@@ -1,1 +1,2 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
