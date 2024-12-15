@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+An avocado-tone refrigerator would look good on your resume.
