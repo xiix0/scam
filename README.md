@@ -1,3 +1,3 @@
-Don't go around saying the world owes you a living.  The world owes you
-nothing.  It was here first.
+A banker is a fellow who lends you his umbrella when the sun is shining
+and wants it back the minute it begins to rain.
 		-- Mark Twain
