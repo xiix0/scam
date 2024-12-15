@@ -1,2 +1,2 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
