@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+That secret you've been guarding, isn't.
