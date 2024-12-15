@@ -1,2 +1,2 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
