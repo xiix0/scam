@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+You are only young once, but you can stay immature indefinitely.
