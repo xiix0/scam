@@ -1,1 +1,4 @@
-You work very hard.  Don't try to think as well.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
