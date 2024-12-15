@@ -1,2 +1,1 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+You work very hard.  Don't try to think as well.
