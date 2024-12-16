@@ -1,1 +1,1 @@
-You will be successful in love.
+Courage is your greatest present need.
