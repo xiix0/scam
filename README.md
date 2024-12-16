@@ -1,1 +1,2 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
