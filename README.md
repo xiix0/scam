@@ -1,2 +1,2 @@
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
