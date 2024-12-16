@@ -1,2 +1,1 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+A tall, dark stranger will have more fun than you.
