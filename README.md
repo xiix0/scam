@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+People are beginning to notice you.  Try dressing before you leave the house.
