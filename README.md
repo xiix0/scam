@@ -1,2 +1,2 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
