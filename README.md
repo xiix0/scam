@@ -1,1 +1,2 @@
-Stay away from hurricanes for a while.
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
