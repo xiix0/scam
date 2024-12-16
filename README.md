@@ -1,2 +1,1 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+You're at the end of the road again.
