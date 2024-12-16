@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
