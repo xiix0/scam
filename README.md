@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+All generalizations are false, including this one.
+		-- Mark Twain
