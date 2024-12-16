@@ -1,2 +1,2 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
