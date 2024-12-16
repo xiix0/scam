@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+Think twice before speaking, but don't say "think think click click".
