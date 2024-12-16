@@ -1,2 +1,2 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
