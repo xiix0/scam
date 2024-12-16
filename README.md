@@ -1,2 +1,3 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
