@@ -1,2 +1,2 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
