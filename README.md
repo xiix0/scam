@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
