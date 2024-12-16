@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+Good day to let down old friends who need help.
