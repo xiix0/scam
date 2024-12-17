@@ -1,2 +1,1 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
