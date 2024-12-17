@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+Try to get all of your posthumous medals in advance.
