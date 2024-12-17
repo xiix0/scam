@@ -1,1 +1,2 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
