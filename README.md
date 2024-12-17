@@ -1,2 +1,1 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+You too can wear a nose mitten.
