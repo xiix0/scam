@@ -1,3 +1,5 @@
-Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
-as intelligent as ever.
-		-- Samuel Beckett, "Endgame"
+I got a hint of things to come when I overheard my boss lamenting, 'The
+books are done and we still don't have an author! I must sign someone
+today!
+		-- Tamim Ansary, "Edutopia Magazine, Issue 2, November 2004"
+		   on the topic of school textbooks
