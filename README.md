@@ -1,2 +1,2 @@
-Extreme fear can neither fight nor fly.
-		-- William Shakespeare, "The Rape of Lucrece"
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
