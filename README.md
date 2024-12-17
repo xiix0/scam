@@ -1,2 +1,1 @@
-The naked truth of it is, I have no shirt.
-		-- William Shakespeare, "Love's Labour's Lost"
+Don't let your mind wander -- it's too little to be let out alone.
