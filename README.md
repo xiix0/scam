@@ -1,2 +1,4 @@
-There is always one thing to remember: writers are always selling somebody out.
-		-- Joan Didion, "Slouching Towards Bethlehem"
+The holy passion of Friendship is of so sweet and steady and loyal and
+enduring a nature that it will last through a whole lifetime, if not asked to
+lend money.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
