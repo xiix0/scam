@@ -1,2 +1,1 @@
-When angry, count four; when very angry, swear.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Increased knowledge will help you now.  Have mate's phone bugged.
