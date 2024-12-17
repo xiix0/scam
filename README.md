@@ -1,2 +1,2 @@
-When in doubt, tell the truth.
+Familiarity breeds contempt -- and children.
 		-- Mark Twain
