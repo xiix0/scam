@@ -1,1 +1,2 @@
-You are deeply attached to your friends and acquaintances.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
