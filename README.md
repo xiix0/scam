@@ -1,1 +1,2 @@
-Today is what happened to yesterday.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
