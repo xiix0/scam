@@ -1,2 +1,2 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
