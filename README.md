@@ -1,2 +1,1 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
