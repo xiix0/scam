@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+Let me put it this way: today is going to be a learning experience.
