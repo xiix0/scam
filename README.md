@@ -1,1 +1,2 @@
-Be cautious in your daily affairs.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
