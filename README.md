@@ -1,1 +1,1 @@
-An exotic journey in downtown Newark is in your future.
+So this is it.  We're going to die.
