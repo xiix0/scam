@@ -1,1 +1,1 @@
-Your present plans will be successful.
+Never give an inch!
