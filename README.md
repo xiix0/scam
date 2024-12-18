@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+Afternoon very favorable for romance.  Try a single person for a change.
