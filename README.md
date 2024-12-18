@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+You will live to see your grandchildren.
