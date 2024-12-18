@@ -1,2 +1,2 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
