@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
