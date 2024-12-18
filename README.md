@@ -1,2 +1,2 @@
-There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
