@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+You have a strong desire for a home and your family interests come first.
