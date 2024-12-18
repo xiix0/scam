@@ -1,2 +1,2 @@
-Alas, how love can trifle with itself!
-		-- William Shakespeare, "The Two Gentlemen of Verona"
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
