@@ -1,1 +1,2 @@
-You don't become a failure until you're satisfied with being one.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
