@@ -1,2 +1,2 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
