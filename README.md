@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
