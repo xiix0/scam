@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+Don't look back, the lemmings are gaining on you.
