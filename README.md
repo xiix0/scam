@@ -1,1 +1,1 @@
-You work very hard.  Don't try to think as well.
+Your depth of comprehension may tend to make you lax in worldly ways.
