@@ -1,1 +1,2 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
