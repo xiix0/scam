@@ -1,1 +1,1 @@
-You are capable of planning your future.
+You work very hard.  Don't try to think as well.
