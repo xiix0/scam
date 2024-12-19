@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
