@@ -1,3 +1,3 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	You won't find a lawyer who can change a light bulb.  Now, if
-	you're looking for a lawyer to screw a light bulb...
+Q:	What do you call a principal female opera singer whose high C
+	is lower than those of other principal female opera singers?
+A:	A deep C diva.
