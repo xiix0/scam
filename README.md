@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+You will be advanced socially, without any special effort on your part.
