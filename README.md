@@ -1,2 +1,2 @@
-Q:	What do agnostic, insomniac dyslexics do at night?
-A:	Stay awake and wonder if there's a dog.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
