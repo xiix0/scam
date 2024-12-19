@@ -1,2 +1,1 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+You are so boring that when I see you my feet go to sleep.
