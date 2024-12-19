@@ -1,2 +1,2 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
