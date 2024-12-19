@@ -1,2 +1,1 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+You single-handedly fought your way into this hopeless mess.
