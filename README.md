@@ -1,5 +1,2 @@
-Knock, knock!
-	Who's there?
-Sam and Janet.
-	Sam and Janet who?
-Sam and Janet Evening...
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
