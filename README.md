@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
+The surest protection against temptation is cowardice.
 		-- Mark Twain
