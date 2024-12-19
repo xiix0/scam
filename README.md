@@ -1,1 +1,2 @@
-Be security conscious -- National defense is at stake.
+You tread upon my patience.
+		-- William Shakespeare, "Henry IV"
