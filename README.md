@@ -1,1 +1,2 @@
-You are so boring that when I see you my feet go to sleep.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
