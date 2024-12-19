@@ -1,1 +1,2 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
