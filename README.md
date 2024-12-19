@@ -1,3 +1,2 @@
-Q:	What do you call a principal female opera singer whose high C
-	is lower than those of other principal female opera singers?
-A:	A deep C diva.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
