@@ -1,1 +1,2 @@
-You single-handedly fought your way into this hopeless mess.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
