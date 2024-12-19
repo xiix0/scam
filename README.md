@@ -1,1 +1,3 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
