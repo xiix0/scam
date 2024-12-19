@@ -1,1 +1,2 @@
-Truth will out this morning.  (Which may really mess things up.)
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
