@@ -1,1 +1,1 @@
-You have a strong desire for a home and your family interests come first.
+Truth will out this morning.  (Which may really mess things up.)
