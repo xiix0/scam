@@ -1,2 +1,2 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
