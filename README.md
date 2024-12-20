@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+You have a deep interest in all that is artistic.
