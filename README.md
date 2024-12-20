@@ -1,1 +1,1 @@
-Your business will assume vast proportions.
+You will soon forget this.
