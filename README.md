@@ -1,1 +1,1 @@
-Is this really happening?
+You will always have good luck in your personal affairs.
