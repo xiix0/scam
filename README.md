@@ -1,1 +1,3 @@
-Don't look now, but the man in the moon is laughing at you.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
