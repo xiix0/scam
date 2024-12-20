@@ -1,2 +1,2 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
