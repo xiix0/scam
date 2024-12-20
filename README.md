@@ -1,2 +1,2 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
