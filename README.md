@@ -1,1 +1,1 @@
-Don't relax!  It's only your tension that's holding you together.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
