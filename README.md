@@ -1,1 +1,2 @@
-Your own qualities will help prevent your advancement in the world.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
