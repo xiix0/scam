@@ -1,2 +1,5 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+October 12, the Discovery.
+
+It was wonderful to find America, but it would have been more wonderful to miss
+it.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
