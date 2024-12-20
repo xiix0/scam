@@ -1,2 +1,1 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Your own qualities will help prevent your advancement in the world.
