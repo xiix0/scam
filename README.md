@@ -1,1 +1,2 @@
-You work very hard.  Don't try to think as well.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
