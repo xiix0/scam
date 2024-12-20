@@ -1,2 +1,1 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
