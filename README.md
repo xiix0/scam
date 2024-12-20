@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You work very hard.  Don't try to think as well.
