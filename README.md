@@ -1,2 +1,1 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+You are fighting for survival in your own sweet and gentle way.
