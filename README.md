@@ -1,1 +1,3 @@
-You plan things that you do not even attempt because of your extreme caution.
+Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
+A:	Easy.  It's because they can't figure out how to get the little
+	bottles into the typewriter.
