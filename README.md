@@ -1,1 +1,1 @@
-Love is in the offing.  Be affectionate to one who adores you.
+Afternoon very favorable for romance.  Try a single person for a change.
