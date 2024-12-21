@@ -1,1 +1,1 @@
-You never know how many friends you have until you rent a house on the beach.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
