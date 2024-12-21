@@ -1,1 +1,2 @@
-All the troubles you have will pass away very quickly.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
