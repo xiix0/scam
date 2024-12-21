@@ -1,2 +1,1 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Hope that the day after you die is a nice day.
