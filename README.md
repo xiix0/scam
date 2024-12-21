@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+You will be singled out for promotion in your work.
