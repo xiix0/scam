@@ -1,7 +1,3 @@
-Sheriff Chameleotoptor sighed with an air of weary sadness, and then
-turned to Doppelgutt and said 'The Senator must really have been on a
-bender this time -- he left a party in Cleveland, Ohio, at 11:30 last
-night, and they found his car this morning in the smokestack of a British
-aircraft carrier in the Formosa Straits.'
-		-- Grand Panjandrum's Special Award, 1985 Bulwer-Lytton
-		   bad fiction contest.
+A hundred years from now it is very likely that [of Twain's works] "The
+Jumping Frog" alone will be remembered.
+		-- Harry Thurston Peck (Editor of "The Bookman"), January 1901.
