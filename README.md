@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+You plan things that you do not even attempt because of your extreme caution.
