@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+Excellent day for putting Slinkies on an escalator.
