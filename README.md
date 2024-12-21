@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+You prefer the company of the opposite sex, but are well liked by your own.
