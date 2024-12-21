@@ -1,1 +1,2 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
