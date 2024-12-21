@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+You own a dog, but you can only feed a cat.
