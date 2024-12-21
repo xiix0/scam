@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
