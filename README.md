@@ -1,1 +1,1 @@
-You will have a long and boring life.
+You've been leading a dog's life.  Stay off the furniture.
