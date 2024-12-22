@@ -1,4 +1,2 @@
-In India, "cold weather" is merely a conventional phrase and has come into
-use through the necessity of having some way to distinguish between weather
-which will melt a brass door-knob and weather which will only make it mushy.
-		-- Mark Twain
+Q:	How many supply-siders does it take to change a light bulb?
+A:	None.  The darkness will cause the light bulb to change by itself.
