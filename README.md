@@ -1,1 +1,1 @@
-Many pages make a thick book.
+If you can read this, you're too close.
