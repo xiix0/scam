@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
