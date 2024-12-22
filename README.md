@@ -1,1 +1,2 @@
-If you can read this, you're too close.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
