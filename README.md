@@ -1,2 +1,3 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
+are not the person involved.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
