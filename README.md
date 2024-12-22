@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+You learn to write as if to someone else because NEXT YEAR YOU WILL BE
+"SOMEONE ELSE."
