@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
