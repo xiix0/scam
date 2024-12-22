@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+You can create your own opportunities this week.  Blackmail a senior executive.
