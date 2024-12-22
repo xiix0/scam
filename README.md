@@ -1,3 +1,3 @@
-A banker is a fellow who lends you his umbrella when the sun is shining
-and wants it back the minute it begins to rain.
+Reader, suppose you were an idiot.  And suppose you were a member of
+Congress.  But I repeat myself.
 		-- Mark Twain
