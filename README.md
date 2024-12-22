@@ -1,3 +1,2 @@
-Reader, suppose you were an idiot.  And suppose you were a member of
-Congress.  But I repeat myself.
-		-- Mark Twain
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
