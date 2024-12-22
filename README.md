@@ -1,2 +1,5 @@
-Q:	How many supply-siders does it take to change a light bulb?
-A:	None.  The darkness will cause the light bulb to change by itself.
+Q:	Where's the Lone Ranger take his garbage?
+A:	To the dump, to the dump, to the dump dump dump!
+
+Q:	What's the Pink Panther say when he steps on an ant hill?
+A:	Dead ant, dead ant, dead ant dead ant dead ant...
