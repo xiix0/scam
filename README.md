@@ -1,3 +1,2 @@
-Consider well the proportions of things.  It is better to be a young June-bug
-than an old bird of paradise.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
