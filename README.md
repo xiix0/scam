@@ -1,1 +1,2 @@
-You will be married within a year, and divorced within two.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
