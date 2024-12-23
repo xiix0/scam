@@ -1,2 +1,1 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+Give your very best today.  Heaven knows it's little enough.
