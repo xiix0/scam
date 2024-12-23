@@ -1,2 +1,1 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+This will be a memorable month -- no matter how hard you try to forget it.
