@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of good news soon.
+Beware of a tall blond man with one black shoe.
