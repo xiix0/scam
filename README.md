@@ -1,5 +1,4 @@
-We know all about the habits of the ant, we know all about the habits of the
-bee, but we know nothing at all about the habits of the oyster.  It seems
-almost certain that we have been choosing the wrong time for studying the
-oyster.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	Why don't Scotsmen ever have coffee the way they like it?
+A:	Well, they like it with two lumps of sugar.  If they drink
+	it at home, they only take one, and if they drink it while
+	visiting, they always take three.
