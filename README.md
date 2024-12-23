@@ -1,2 +1,1 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+Truth will out this morning.  (Which may really mess things up.)
