@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+If your life was a horse, you'd have to shoot it.
