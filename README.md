@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+Good day to let down old friends who need help.
