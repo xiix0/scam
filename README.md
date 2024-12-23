@@ -1,1 +1,2 @@
-Artistic ventures highlighted.  Rob a museum.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
