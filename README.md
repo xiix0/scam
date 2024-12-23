@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+You will hear good news from one you thought unfriendly to you.
