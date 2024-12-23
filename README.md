@@ -1,3 +1,2 @@
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
-		-- Mark Twain
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
