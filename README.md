@@ -1,1 +1,1 @@
-You enjoy the company of other people.
+You feel a whole lot more like you do now than you did when you used to.
