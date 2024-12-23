@@ -1,3 +1,2 @@
-Q:	How many psychiatrists does it take to change a light bulb?
-A:	Only one, but it takes a long time, and the light bulb has
-	to really want to change.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
