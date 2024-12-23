@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+Someone whom you reject today, will reject you tomorrow.
