@@ -1,1 +1,3 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
