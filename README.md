@@ -1,2 +1,2 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
