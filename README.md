@@ -1,3 +1,2 @@
-Q:	How many Zen masters does it take to screw in a light bulb?
-A:	None.  The Universe spins the bulb, and the Zen master stays out
-	of the way.
+Few things are harder to put up with than the annoyance of a good example.
+		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
