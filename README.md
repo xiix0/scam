@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
