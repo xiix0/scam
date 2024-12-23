@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+You have taken yourself too seriously.
