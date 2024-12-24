@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+You'd like to do it instantaneously, but that's too slow.
