@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Avert misunderstanding by calm, poise, and balance.
