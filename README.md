@@ -1,1 +1,1 @@
-You'd like to do it instantaneously, but that's too slow.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
