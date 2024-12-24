@@ -1,2 +1,1 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+Living your life is a task so difficult, it has never been attempted before.
