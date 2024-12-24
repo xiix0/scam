@@ -1,1 +1,2 @@
-You will feel hungry again in another hour.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
