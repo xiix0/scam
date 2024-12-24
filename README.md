@@ -1,3 +1,2 @@
-Soap and education are not as sudden as a massacre, but they are more
-deadly in the long run.
-		-- Mark Twain
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
