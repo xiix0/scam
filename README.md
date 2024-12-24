@@ -1,1 +1,2 @@
-You have a strong appeal for members of the opposite sex.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
