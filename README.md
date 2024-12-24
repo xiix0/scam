@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+A day for firm decisions!!!!!  Or is it?
