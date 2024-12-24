@@ -1,1 +1,2 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+He is now rising from affluence to poverty.
+		-- Mark Twain
