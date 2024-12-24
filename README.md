@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+Chicken Little only has to be right once.
