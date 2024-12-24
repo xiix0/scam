@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+You will feel hungry again in another hour.
