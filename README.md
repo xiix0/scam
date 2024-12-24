@@ -1,1 +1,1 @@
-You will have a long and unpleasant discussion with your supervisor.
+You will not be elected to public office this year.
