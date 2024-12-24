@@ -1,1 +1,1 @@
-You look tired.
+Your ignorance cramps my conversation.
