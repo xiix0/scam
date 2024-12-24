@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+You will be recognized and honored as a community leader.
