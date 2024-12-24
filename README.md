@@ -1,1 +1,2 @@
-It's all in the mind, ya know.
+A is for Apple.
+		-- Hester Pryne
