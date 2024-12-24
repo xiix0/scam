@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+Your temporary financial embarrassment will be relieved in a surprising manner.
