@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
