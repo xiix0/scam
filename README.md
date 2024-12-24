@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+Executive ability is prominent in your make-up.
