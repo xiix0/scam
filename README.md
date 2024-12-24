@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+You have the power to influence all with whom you come in contact.
