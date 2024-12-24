@@ -1,1 +1,2 @@
-You'll be sorry...
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
