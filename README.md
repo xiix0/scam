@@ -1,1 +1,2 @@
-You will visit the Dung Pits of Glive soon.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
