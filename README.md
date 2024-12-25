@@ -1,2 +1,3 @@
-Q:	What's the difference betweeen USL and the Graf Zeppelin?
-A:	The Graf Zeppelin represented cutting edge technology for its time.
+Reader, suppose you were an idiot.  And suppose you were a member of
+Congress.  But I repeat myself.
+		-- Mark Twain
