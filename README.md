@@ -1,1 +1,1 @@
-Are you a turtle?
+Generosity and perfection are your everlasting goals.
