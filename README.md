@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+You need more time; and you probably always will.
