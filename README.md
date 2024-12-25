@@ -1,2 +1,2 @@
-This night methinks is but the daylight sick.
-		-- William Shakespeare, "The Merchant of Venice"
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
