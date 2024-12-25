@@ -1,1 +1,3 @@
-Give your very best today.  Heaven knows it's little enough.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
