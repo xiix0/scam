@@ -1,1 +1,1 @@
-You love peace.
+Make a wish, it might come true.
