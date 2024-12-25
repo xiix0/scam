@@ -1,1 +1,1 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Your business will assume vast proportions.
