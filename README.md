@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+Today is the tomorrow you worried about yesterday.
