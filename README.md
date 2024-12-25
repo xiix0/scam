@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
