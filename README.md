@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+You teach best what you most need to learn.
