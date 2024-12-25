@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+Beware of a tall blond man with one black shoe.
