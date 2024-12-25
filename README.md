@@ -1,1 +1,1 @@
-Just to have it is enough.
+Life is to you a dashing and bold adventure.
