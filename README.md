@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+You're not my type.  For that matter, you're not even my species!!!
