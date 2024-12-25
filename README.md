@@ -1,2 +1,2 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
