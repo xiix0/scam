@@ -1,1 +1,2 @@
-Artistic ventures highlighted.  Rob a museum.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
