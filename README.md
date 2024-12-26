@@ -1,1 +1,2 @@
-Never give an inch!
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
