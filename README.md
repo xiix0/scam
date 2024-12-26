@@ -1,4 +1,4 @@
-"I understand this is your first dead client," Sabian was saying.  The
-absurdity of the statement made me want to laugh but they don't call me
-Deadpan Allie and lie.
-		-- Pat Cadigan, "Mindplayers"
+In Marseilles they make half the toilet soap we consume in America, but
+the Marseillaise only have a vague theoretical idea of its use, which they
+have obtained from books of travel.
+		-- Mark Twain
