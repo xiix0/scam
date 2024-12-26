@@ -1,1 +1,1 @@
-You have literary talent that you should take pains to develop.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
