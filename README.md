@@ -1,2 +1,1 @@
-Always the dullness of the fool is the whetstone of the wits.
-		-- William Shakespeare, "As You Like It"
+You are a fluke of the universe; you have no right to be here.
