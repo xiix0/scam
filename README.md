@@ -1,1 +1,2 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
