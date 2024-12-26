@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
