@@ -1,2 +1,3 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
