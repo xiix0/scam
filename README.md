@@ -1,2 +1,1 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+This will be a memorable month -- no matter how hard you try to forget it.
