@@ -1,3 +1,2 @@
-Questionable day.
-
-Ask somebody something.
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
