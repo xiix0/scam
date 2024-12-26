@@ -1,2 +1,2 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
