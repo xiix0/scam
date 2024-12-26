@@ -1,5 +1,3 @@
-Q:	What do monsters eat?
-A:	Things.
+Questionable day.
 
-Q:	What do monsters drink?
-A:	Coke.  (Because Things go better with Coke.)
+Ask somebody something.
