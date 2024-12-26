@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+You have literary talent that you should take pains to develop.
