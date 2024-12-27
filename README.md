@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
