@@ -1,3 +1,2 @@
-Have a place for everything and keep the thing somewhere else; this is not
-advice, it is merely custom.
-		-- Mark Twain
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
