@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+Don't look now, but there is a multi-legged creature on your shoulder.
