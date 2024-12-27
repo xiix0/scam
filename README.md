@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+There is a fly on your nose.
