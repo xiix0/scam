@@ -1,3 +1,3 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #19
-A:	To be or not to be.
-Q:	What is the square root of 4b^2?
+It is often the case that the man who can't tell a lie thinks he is the best
+judge of one.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
