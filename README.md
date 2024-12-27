@@ -1,1 +1,2 @@
-You love your home and want it to be beautiful.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
