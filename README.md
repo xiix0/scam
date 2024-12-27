@@ -1,1 +1,1 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+You teach best what you most need to learn.
