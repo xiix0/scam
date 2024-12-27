@@ -1,2 +1,1 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+You will reach the highest possible point in your business or profession.
