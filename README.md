@@ -1,8 +1,2 @@
-To be or not to be.
-		-- Shakespeare
-To do is to be.
-		-- Nietzsche
-To be is to do.
-		-- Sartre
-Do be do be do.
-		-- Sinatra
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
