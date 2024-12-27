@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
