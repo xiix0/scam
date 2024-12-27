@@ -1,3 +1,3 @@
-It is often the case that the man who can't tell a lie thinks he is the best
-judge of one.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+A hundred years from now it is very likely that [of Twain's works] "The
+Jumping Frog" alone will be remembered.
+		-- Harry Thurston Peck (Editor of "The Bookman"), January 1901.
