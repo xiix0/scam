@@ -1,2 +1,2 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
