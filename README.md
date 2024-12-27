@@ -1,3 +1,3 @@
-Q:	Why do the police always travel in threes?
-A:	One to do the reading, one to do the writing, and the other keeps
-	an eye on the two intellectuals.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
+		-- Mark Twain
