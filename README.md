@@ -1,28 +1,14 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	Whereas the party of the first part, also known as "Lawyer", and the
-party of the second part, also known as "Light Bulb", do hereby and forthwith
-agree to a transaction wherein the party of the second part shall be removed
-from the current position as a result of failure to perform previously agreed
-upon duties, i.e., the lighting, elucidation, and otherwise illumination of
-the area ranging from the front (north) door, through the entryway, terminating
-at an area just inside the primary living area, demarcated by the beginning of
-the carpet, any spillover illumination being at the option of the party of the
-second part and not required by the aforementioned agreement between the
-parties.
-	The aforementioned removal transaction shall include, but not be
-limited to, the following.  The party of the first part shall, with or without
-elevation at his option, by means of a chair, stepstool, ladder or any other
-means of elevation, grasp the party of the second part and rotate the party
-of the second part in a counter-clockwise direction, this point being tendered
-non-negotiable.  Upon reaching a point where the party of the second part
-becomes fully detached from the receptacle, the party of the first part shall
-have the option of disposing of the party of the second part in a manner
-consistent with all relevant and applicable local, state and federal statutes.
-Once separation and disposal have been achieved, the party of the first part
-shall have the option of beginning installation.  Aforesaid installation shall
-occur in a manner consistent with the reverse of the procedures described in
-step one of this self-same document, being careful to note that the rotation
-should occur in a clockwise direction, this point also being non-negotiable.
-The above described steps may be performed, at the option of the party of the
-first part, by any or all agents authorized by him, the objective being to
-produce the most possible revenue for the Partnership.
+You see, I consider that a man's brain originally is like a little empty
+attic, and you have to stock it with such furniture as you choose.  A fool
+takes in all the lumber of every sort he comes across, so that the knowledge
+which might be useful to him gets crowded out, or at best is jumbled up with
+a lot of other things, so that he has difficulty in laying his hands upon it.
+Now the skilful workman is very careful indeed as to what he takes into his
+brain-attic.  He will have nothing but the tools which may help him in doing
+his work, but of these he has a large assortment, and all in the most perfect
+order.  It is a mistake to think that that little room has elastic walls and
+can distend to any extent.  Depend upon it there comes a time when for every
+addition of knowledge you forget something that you knew before.  It is of
+the highest importance, therefore, not to have useless facts elbowing out
+the useful ones.
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
