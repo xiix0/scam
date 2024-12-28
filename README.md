@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+You will be given a post of trust and responsibility.
