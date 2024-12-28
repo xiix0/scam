@@ -1,1 +1,2 @@
-You will be given a post of trust and responsibility.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
