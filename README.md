@@ -1,1 +1,1 @@
-Don't you feel more like you do now than you did when you came in?
+You have a deep appreciation of the arts and music.
