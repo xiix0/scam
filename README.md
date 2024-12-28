@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+You will not be elected to public office this year.
