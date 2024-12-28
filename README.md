@@ -1,4 +1,3 @@
-Swerve me?  The path to my fixed purpose is laid with iron rails,
-whereon my soul is grooved to run.  Over unsounded gorges, through
-the rifled hearts of mountains, under torrents' beds, unerringly I rush!
-		-- Captain Ahab, "Moby Dick"
+Hain't we got all the fools in town on our side?  And hain't that a big
+enough majority in any town?
+		-- Mark Twain, "Huckleberry Finn"
