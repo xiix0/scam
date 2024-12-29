@@ -1,1 +1,1 @@
-It may or may not be worthwhile, but it still has to be done.
+Tomorrow will be cancelled due to lack of interest.
