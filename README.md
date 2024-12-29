@@ -1,1 +1,1 @@
-You will never know hunger.
+You single-handedly fought your way into this hopeless mess.
