@@ -1,2 +1,2 @@
-What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, "The League of Frightened Men"
+Too much is just enough.
+		-- Mark Twain, on whiskey
