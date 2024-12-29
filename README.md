@@ -1,1 +1,1 @@
-Your present plans will be successful.
+You are taking yourself far too seriously.
