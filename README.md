@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+Your aims are high, and you are capable of much.
