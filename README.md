@@ -1,1 +1,2 @@
-You will receive a legacy which will place you above want.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
