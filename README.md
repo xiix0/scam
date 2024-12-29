@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+You will obey or molten silver will be poured into your ears.
