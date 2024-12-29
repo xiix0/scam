@@ -1,1 +1,1 @@
-You've been leading a dog's life.  Stay off the furniture.
+Courage is your greatest present need.
