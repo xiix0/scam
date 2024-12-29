@@ -1,1 +1,2 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
