@@ -1,3 +1,3 @@
-Reader, suppose you were an idiot.  And suppose you were a member of
-Congress.  But I repeat myself.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
 		-- Mark Twain
