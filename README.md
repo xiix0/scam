@@ -1,1 +1,2 @@
-You have a strong appeal for members of your own sex.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
