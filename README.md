@@ -1,2 +1,3 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
+A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
+Q:	Who were the Democratic presidential candidates?
