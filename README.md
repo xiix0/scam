@@ -1,2 +1,2 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
