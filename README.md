@@ -1,2 +1,3 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+In the Spring, I have counted 136 different kinds of weather inside of
+24 hours.
+		-- Mark Twain, on New England weather
