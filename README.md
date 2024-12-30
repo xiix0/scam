@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+Your aims are high, and you are capable of much.
