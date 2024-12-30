@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+You have a strong appeal for members of your own sex.
