@@ -1,1 +1,1 @@
-You will be married within a year.
+You have a deep interest in all that is artistic.
