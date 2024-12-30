@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+Of course you have a purpose -- to find a purpose.
