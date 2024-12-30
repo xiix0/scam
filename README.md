@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+You're at the end of the road again.
