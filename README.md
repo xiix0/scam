@@ -1,1 +1,2 @@
-Best of all is never to have been born.  Second best is to die soon.
+You tread upon my patience.
+		-- William Shakespeare, "Henry IV"
