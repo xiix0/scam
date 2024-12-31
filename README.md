@@ -1,2 +1,2 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
