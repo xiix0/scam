@@ -1,1 +1,3 @@
-Someone whom you reject today, will reject you tomorrow.
+Someone is speaking well of you.
+
+How unusual!
