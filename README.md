@@ -1,2 +1,2 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
