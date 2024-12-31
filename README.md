@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Be different: conform.
