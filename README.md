@@ -1,1 +1,1 @@
-You will be divorced within a year.
+Never look up when dragons fly overhead.
