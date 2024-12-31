@@ -1,1 +1,1 @@
-Chicken Little was right.
+Cold hands, no gloves.
