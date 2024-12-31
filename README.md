@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Tomorrow will be cancelled due to lack of interest.
