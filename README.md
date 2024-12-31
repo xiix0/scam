@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
