@@ -1,2 +1,2 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
