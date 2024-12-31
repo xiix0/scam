@@ -1,1 +1,1 @@
-You definitely intend to start living sometime soon.
+You will be awarded a medal for disregarding safety in saving someone.
