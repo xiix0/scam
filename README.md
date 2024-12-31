@@ -1,1 +1,2 @@
-Hope that the day after you die is a nice day.
+No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
+		-- Sherlock Holmes
