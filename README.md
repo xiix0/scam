@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+Make a wish, it might come true.
