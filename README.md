@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
