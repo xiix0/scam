@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+You will experience a strong urge to do good; but it will pass.
