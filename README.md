@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You will be recognized and honored as a community leader.
