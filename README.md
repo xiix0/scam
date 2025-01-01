@@ -1,2 +1,1 @@
-You have a reputation for being thoroughly reliable and trustworthy.
-A pity that it's totally undeserved.
+Ships are safe in harbor, but they were never meant to stay there.
