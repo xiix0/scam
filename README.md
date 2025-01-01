@@ -1,3 +1,3 @@
-In the Spring, I have counted 136 different kinds of weather inside of
-24 hours.
-		-- Mark Twain, on New England weather
+Noise proves nothing.  Often a hen who has merely laid an egg cackles
+as if she laid an asteroid.
+		-- Mark Twain
