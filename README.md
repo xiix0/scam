@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+You will always have good luck in your personal affairs.
