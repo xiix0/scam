@@ -1,3 +1,1 @@
-Noise proves nothing.  Often a hen who has merely laid an egg cackles
-as if she laid an asteroid.
-		-- Mark Twain
+You will be a winner today.  Pick a fight with a four-year-old.
