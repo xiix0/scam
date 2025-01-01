@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
