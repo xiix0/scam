@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
