@@ -1,1 +1,1 @@
-Are you a turtle?
+You will be given a post of trust and responsibility.
