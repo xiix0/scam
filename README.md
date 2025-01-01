@@ -1,2 +1,3 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
