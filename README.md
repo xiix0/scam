@@ -1,1 +1,2 @@
-All the troubles you have will pass away very quickly.
+The Public is merely a multiplied "me."
+		-- Mark Twain
