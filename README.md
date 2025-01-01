@@ -1,2 +1,3 @@
-As to the Adjective: when in doubt, strike it out.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Your manuscript is both good and original, but the part that is good is not
+original and the part that is original is not good.
+		-- Samuel Johnson
