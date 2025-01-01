@@ -1,1 +1,5 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Knucklehead:	"Knock, knock"
+Pee Wee:	"Who's there?"
+Knucklehead:	"Little ol' lady."
+Pee Wee:	"Liddle ol' lady who?"
+Knucklehead:	"I didn't know you could yodel"
