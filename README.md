@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+You display the wonderful traits of charm and courtesy.
