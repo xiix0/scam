@@ -1,1 +1,1 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+You prefer the company of the opposite sex, but are well liked by your own.
