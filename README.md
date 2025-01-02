@@ -1,1 +1,1 @@
-There was a phone call for you.
+Try to get all of your posthumous medals in advance.
