@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+Write yourself a threatening letter and pen a defiant reply.
