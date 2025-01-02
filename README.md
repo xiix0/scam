@@ -1,1 +1,3 @@
-Be careful!  UGLY strikes 9 out of 10!
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
