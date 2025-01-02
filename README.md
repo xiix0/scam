@@ -1,1 +1,2 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
