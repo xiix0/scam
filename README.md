@@ -1,1 +1,2 @@
-You have Egyptian flu: you're going to be a mummy.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
