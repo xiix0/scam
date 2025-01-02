@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+You're not my type.  For that matter, you're not even my species!!!
