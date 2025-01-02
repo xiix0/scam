@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+A vivid and creative mind characterizes you.
