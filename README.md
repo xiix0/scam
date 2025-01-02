@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+You will reach the highest possible point in your business or profession.
