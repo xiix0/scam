@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+All the troubles you have will pass away very quickly.
