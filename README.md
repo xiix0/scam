@@ -1,1 +1,4 @@
-You're not my type.  For that matter, you're not even my species!!!
+The holy passion of Friendship is of so sweet and steady and loyal and
+enduring a nature that it will last through a whole lifetime, if not asked to
+lend money.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
