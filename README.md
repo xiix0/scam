@@ -1,2 +1,1 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Your temporary financial embarrassment will be relieved in a surprising manner.
