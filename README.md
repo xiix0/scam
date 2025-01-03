@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+After your lover has gone you will still have PEANUT BUTTER!
