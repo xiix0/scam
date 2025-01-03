@@ -1,3 +1,3 @@
-The mind is its own place, and in itself
-Can make a Heav'n of Hell, a Hell of Heav'n.
-		-- John Milton
+Q:	How does a hacker fix a function which
+	doesn't work for all of the elements in its domain?
+A:	He changes the domain.
