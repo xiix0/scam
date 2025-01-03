@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
