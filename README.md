@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+You will wish you hadn't.
