@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+A day for firm decisions!!!!!  Or is it?
