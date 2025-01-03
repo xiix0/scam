@@ -1,2 +1,3 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
