@@ -1,1 +1,2 @@
-A day for firm decisions!!!!!  Or is it?
+"... all the modern inconveniences ..."
+		-- Mark Twain
