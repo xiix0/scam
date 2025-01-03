@@ -1,1 +1,2 @@
-You don't become a failure until you're satisfied with being one.
+"Life, loathe it or ignore it, you can't like it."
+		-- Marvin, "Hitchhiker's Guide to the Galaxy"
