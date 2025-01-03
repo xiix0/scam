@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+You will experience a strong urge to do good; but it will pass.
