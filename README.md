@@ -1,2 +1,2 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+Your goose is cooked.
+(Your current chick is burned up too!)
