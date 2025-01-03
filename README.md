@@ -1,2 +1,1 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+The time is right to make new friends.
