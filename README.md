@@ -1,2 +1,6 @@
-Q:	How many college football players does it take to screw in a light bulb?
-A:	Only one, but he gets three credits for it.
+The countdown had stalled at 'T' minus 69 seconds when Desiree, the first
+female ape to go up in space, winked at me slyly and pouted her thick,
+rubbery lips unmistakably -- the first of many such advances during what
+would prove to be the longest, and most memorable, space voyage of my
+career.
+		-- Winning sentence, 1985 Bulwer-Lytton bad fiction contest.
