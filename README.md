@@ -1,2 +1,2 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
