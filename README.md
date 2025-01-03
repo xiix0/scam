@@ -1,2 +1,2 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+Q:	Are we not men?
+A:	We are Vaxen.
