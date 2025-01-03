@@ -1,3 +1,2 @@
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
-Some think it is the voice of God.
-		-- Mark Twain
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
