@@ -1,1 +1,1 @@
-You are as I am with You.
+You will inherit some money or a small piece of land.
