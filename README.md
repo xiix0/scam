@@ -1,1 +1,1 @@
-You will get what you deserve.
+Love is in the offing.  Be affectionate to one who adores you.
