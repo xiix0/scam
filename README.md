@@ -1,2 +1,2 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
