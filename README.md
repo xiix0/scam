@@ -1,1 +1,1 @@
-Accent on helpful side of your nature.  Drain the moat.
+So this is it.  We're going to die.
