@@ -1,2 +1,1 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+Don't let your mind wander -- it's too little to be let out alone.
