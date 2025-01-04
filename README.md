@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+You will get what you deserve.
