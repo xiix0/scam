@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+Your own qualities will help prevent your advancement in the world.
