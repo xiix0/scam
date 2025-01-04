@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+Your boss climbed the corporate ladder, wrong by wrong.
