@@ -1,1 +1,2 @@
-You have the power to influence all with whom you come in contact.
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
