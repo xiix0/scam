@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+Change your thoughts and you change your world.
