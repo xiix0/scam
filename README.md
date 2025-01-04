@@ -1,1 +1,2 @@
-You will visit the Dung Pits of Glive soon.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
