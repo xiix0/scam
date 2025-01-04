@@ -1,3 +1,6 @@
-Hain't we got all the fools in town on our side?  And hain't that a big
-enough majority in any town?
-		-- Mark Twain, "Huckleberry Finn"
+The bay-trees in our country are all wither'd
+And meteors fright the fixed stars of heaven;
+The pale-faced moon looks bloody on the earth
+And lean-look'd prophets whisper fearful change.
+These signs forerun the death or fall of kings.
+		-- Wm. Shakespeare, "Richard II"
