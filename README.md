@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
