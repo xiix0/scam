@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
