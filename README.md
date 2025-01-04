@@ -1,1 +1,2 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
