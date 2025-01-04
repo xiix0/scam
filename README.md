@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+Live in a world of your own, but always welcome visitors.
