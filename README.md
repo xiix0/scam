@@ -1,5 +1,5 @@
-Q:	How do you catch a unique rabbit?
-A:	Unique up on it!
+Q:	What do you call a blind pre-historic animal?
+A:	Diyathinkhesaurus.
 
-Q:	How do you catch a tame rabbit?
-A:	The tame way!
+Q:	What do you call a blind pre-historic animal with a dog?
+A:	Diyathinkhesaurus Rex.
