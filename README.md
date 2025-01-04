@@ -1,1 +1,2 @@
-It's all in the mind, ya know.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
