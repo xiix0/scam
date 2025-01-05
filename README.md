@@ -1,1 +1,1 @@
-Never reveal your best argument.
+Don't read any sky-writing for the next two weeks.
