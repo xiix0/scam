@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Afternoon very favorable for romance.  Try a single person for a change.
