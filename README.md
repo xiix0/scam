@@ -1,1 +1,1 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+You will obey or molten silver will be poured into your ears.
