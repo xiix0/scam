@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+Just because the message may never be received does not mean it is
+not worth sending.
