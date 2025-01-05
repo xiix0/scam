@@ -1,1 +1,2 @@
-You will be recognized and honored as a community leader.
+All generalizations are false, including this one.
+		-- Mark Twain
