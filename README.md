@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
