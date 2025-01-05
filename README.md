@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Don't hate yourself in the morning -- sleep till noon.
