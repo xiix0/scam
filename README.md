@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+Someone whom you reject today, will reject you tomorrow.
