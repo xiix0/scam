@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
