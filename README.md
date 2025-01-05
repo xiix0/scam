@@ -1,1 +1,2 @@
-You never hesitate to tackle the most difficult problems.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
