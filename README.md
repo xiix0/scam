@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+You will be reincarnated as a toad; and you will be much happier.
