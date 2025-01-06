@@ -1,5 +1,6 @@
-Q:	What do you call a blind pre-historic animal?
-A:	Diyathinkhesaurus.
-
-Q:	What do you call a blind pre-historic animal with a dog?
-A:	Diyathinkhesaurus Rex.
+The true Southern watermelon is a boon apart, and not to be mentioned with
+commoner things.  It is chief of the world's luxuries, king by the grace of God
+over all the fruits of the earth.  When one has tasted it, he knows what the
+angels eat.  It was not a Southern watermelon that Eve took; we know it because
+she repented.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
