@@ -1,4 +1,11 @@
-Persons attempting to find a motive in this narrative will be prosecuted;
-persons attempting to find a moral in it will be banished; persons attempting
-to find a plot in it will be shot.  By Order of the Author
-		-- Mark Twain, "The Adventures of Huckleberry Finn"
+Q:	How many hardware engineers does it take to change a light bulb?
+A:	None.  We'll fix it in software.
+
+Q:	How many system programmers does it take to change a light bulb?
+A:	None.  The application can work around it.
+
+Q:	How many software engineers does it take to change a light bulb?
+A:	None.  We'll document it in the manual.
+
+Q:	How many tech writers does it take to change a light bulb?
+A:	None.  The user can figure it out.
