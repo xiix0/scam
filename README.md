@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+You will not be elected to public office this year.
