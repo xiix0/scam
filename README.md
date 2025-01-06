@@ -1,2 +1,5 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+Q:	What do you call a blind pre-historic animal?
+A:	Diyathinkhesaurus.
+
+Q:	What do you call a blind pre-historic animal with a dog?
+A:	Diyathinkhesaurus Rex.
