@@ -1,1 +1,2 @@
-Snow Day -- stay home.
+A is for Apple.
+		-- Hester Pryne
