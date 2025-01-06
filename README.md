@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+You're being followed.  Cut out the hanky-panky for a few days.
