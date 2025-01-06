@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
