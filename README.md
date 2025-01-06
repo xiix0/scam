@@ -1,3 +1,2 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
