@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
