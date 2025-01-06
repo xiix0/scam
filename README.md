@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+You will live a long, healthy, happy life and make bags of money.
