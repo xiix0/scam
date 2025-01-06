@@ -1,1 +1,1 @@
-You have many friends and very few living enemies.
+You have literary talent that you should take pains to develop.
