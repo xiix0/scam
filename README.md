@@ -1,1 +1,2 @@
-You have literary talent that you should take pains to develop.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
