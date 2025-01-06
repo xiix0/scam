@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Your object is to save the world, while still leading a pleasant life.
