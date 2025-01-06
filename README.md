@@ -1,2 +1,1 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+This life is yours.  Some of it was given to you; the rest, you made yourself.
