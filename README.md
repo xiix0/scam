@@ -1,2 +1,2 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
