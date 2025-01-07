@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+You have an unusual equipment for success.  Be sure to use it properly.
