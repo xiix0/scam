@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+Future looks spotty.  You will spill soup in late evening.
