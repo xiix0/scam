@@ -1,2 +1,2 @@
-Repartee is something we think of twenty-four hours too late.
+I have never let my schooling interfere with my education.
 		-- Mark Twain
