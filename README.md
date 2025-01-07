@@ -1,5 +1,3 @@
-Q:	What do you call a blind pre-historic animal?
-A:	Diyathinkhesaurus.
-
-Q:	What do you call a blind pre-historic animal with a dog?
-A:	Diyathinkhesaurus Rex.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
