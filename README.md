@@ -1,1 +1,1 @@
-You will attract cultured and artistic people to your home.
+Don't look now, but the man in the moon is laughing at you.
