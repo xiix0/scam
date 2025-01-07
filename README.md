@@ -1,2 +1,2 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
