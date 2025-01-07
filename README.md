@@ -1,2 +1,1 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+You will be advanced socially, without any special effort on your part.
