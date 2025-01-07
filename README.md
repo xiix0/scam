@@ -1,2 +1,3 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+Its name is Public Opinion.  It is held in reverence.  It settles everything.
+Some think it is the voice of God.
+		-- Mark Twain
