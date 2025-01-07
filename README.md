@@ -1,2 +1,1 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+You attempt things that you do not even plan because of your extreme stupidity.
