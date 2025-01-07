@@ -1,1 +1,1 @@
-You are standing on my toes.
+You are capable of planning your future.
