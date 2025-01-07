@@ -1,2 +1,2 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
