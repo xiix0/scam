@@ -1,2 +1,2 @@
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
