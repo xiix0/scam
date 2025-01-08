@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+Never commit yourself!  Let someone else commit you.
