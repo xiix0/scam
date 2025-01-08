@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+You will be singled out for promotion in your work.
