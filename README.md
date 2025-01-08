@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+Your depth of comprehension may tend to make you lax in worldly ways.
