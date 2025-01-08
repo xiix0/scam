@@ -1,1 +1,3 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
