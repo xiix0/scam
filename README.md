@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+Best of all is never to have been born.  Second best is to die soon.
