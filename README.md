@@ -1,1 +1,2 @@
-So you're back... about time...
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
