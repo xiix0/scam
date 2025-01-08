@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+You will be run over by a beer truck.
