@@ -1,1 +1,1 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+Cheer Up!  Things are getting worse at a slower rate.
