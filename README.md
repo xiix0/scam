@@ -1,1 +1,2 @@
-In the stairway of life, you'd best take the elevator.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
