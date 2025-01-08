@@ -1,1 +1,2 @@
-Don't get stuck in a closet -- wear yourself out.
+I fell asleep reading a dull book, and I dreamt that I was reading on,
+so I woke up from sheer boredom.
