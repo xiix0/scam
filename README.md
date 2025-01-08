@@ -1,2 +1,1 @@
-I fell asleep reading a dull book, and I dreamt that I was reading on,
-so I woke up from sheer boredom.
+In the stairway of life, you'd best take the elevator.
