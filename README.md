@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+Excellent day to have a rotten day.
