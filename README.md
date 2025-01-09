@@ -1,5 +1,3 @@
-Q:	Where's the Lone Ranger take his garbage?
-A:	To the dump, to the dump, to the dump dump dump!
-
-Q:	What's the Pink Panther say when he steps on an ant hill?
-A:	Dead ant, dead ant, dead ant dead ant dead ant...
+Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
+A:	Easy.  It's because they can't figure out how to get the little
+	bottles into the typewriter.
