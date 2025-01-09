@@ -1,1 +1,1 @@
-Blow it out your ear.
+You work very hard.  Don't try to think as well.
