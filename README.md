@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+Your sister swims out to meet troop ships.
