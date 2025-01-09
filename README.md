@@ -1,2 +1,1 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+You are fairminded, just and loving.
