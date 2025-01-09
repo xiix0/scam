@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+It was all so different before everything changed.
