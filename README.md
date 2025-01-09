@@ -1,1 +1,1 @@
-Advancement in position.
+You will probably marry after a very brief courtship.
