@@ -1,1 +1,1 @@
-You plan things that you do not even attempt because of your extreme caution.
+You are fighting for survival in your own sweet and gentle way.
