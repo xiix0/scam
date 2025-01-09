@@ -1,1 +1,2 @@
-You will triumph over your enemy.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
