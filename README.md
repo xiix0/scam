@@ -1,1 +1,2 @@
-It was all so different before everything changed.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
