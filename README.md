@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+Future looks spotty.  You will spill soup in late evening.
