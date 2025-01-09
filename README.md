@@ -1,2 +1,1 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+You will meet an important person who will help you advance professionally.
