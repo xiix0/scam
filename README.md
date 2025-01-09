@@ -1,1 +1,1 @@
-What happened last night can happen again.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
