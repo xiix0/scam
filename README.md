@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
