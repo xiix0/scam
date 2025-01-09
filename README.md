@@ -1,3 +1,1 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+Are you ever going to do the dishes?  Or will you change your major to biology?
