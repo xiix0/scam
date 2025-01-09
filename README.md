@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Change your thoughts and you change your world.
