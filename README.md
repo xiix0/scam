@@ -1,1 +1,2 @@
-Future looks spotty.  You will spill soup in late evening.
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
