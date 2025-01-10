@@ -1,3 +1,1 @@
-Q:	What do you call a principal female opera singer whose high C
-	is lower than those of other principal female opera singers?
-A:	A deep C diva.
+Don't relax!  It's only your tension that's holding you together.
