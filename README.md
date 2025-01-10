@@ -1,1 +1,1 @@
-You will have a long and boring life.
+You will be successful in love.
