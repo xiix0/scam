@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
