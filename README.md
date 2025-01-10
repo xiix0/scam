@@ -1,1 +1,3 @@
-You will be married within a year, and divorced within two.
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
