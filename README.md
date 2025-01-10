@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+Expect the worst, it's the least you can do.
