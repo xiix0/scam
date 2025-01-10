@@ -1,1 +1,1 @@
-Your lucky color has faded.
+Never commit yourself!  Let someone else commit you.
