@@ -1,2 +1,3 @@
-He that breaks a thing to find out what it is has left the path of wisdom.
-		-- J.R.R. Tolkien
+I don't know half of you half as well as I should like; and I like less
+than half of you half as well as you deserve.
+		-- J. R. R. Tolkien
