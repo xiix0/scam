@@ -1,2 +1,3 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+Q:	Why is Christmas just like a day at the office?
+A:	You do all of the work and the fat guy in the suit
+	gets all the credit.
