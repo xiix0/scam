@@ -1,1 +1,2 @@
-You will be awarded some great honor.
+The Public is merely a multiplied "me."
+		-- Mark Twain
