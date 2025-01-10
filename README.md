@@ -1,2 +1,1 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
