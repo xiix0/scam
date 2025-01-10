@@ -1,2 +1,2 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
