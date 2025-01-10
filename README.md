@@ -1,3 +1,3 @@
-In a museum in Havana, there are two skulls of Christopher Columbus,
-"one when he was a boy and one when he was a man."
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
 		-- Mark Twain
