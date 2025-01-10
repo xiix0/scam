@@ -1,3 +1,4 @@
-In the Spring, I have counted 136 different kinds of weather inside of
-24 hours.
-		-- Mark Twain, on New England weather
+"I understand this is your first dead client," Sabian was saying.  The
+absurdity of the statement made me want to laugh but they don't call me
+Deadpan Allie and lie.
+		-- Pat Cadigan, "Mindplayers"
