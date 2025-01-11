@@ -1,1 +1,2 @@
-Don't get stuck in a closet -- wear yourself out.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
