@@ -1,1 +1,2 @@
-Your reasoning powers are good, and you are a fairly good planner.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
