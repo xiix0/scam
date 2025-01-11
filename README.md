@@ -1,5 +1,3 @@
-Q:	How many surrealists does it take to change a light bulb?
-A:	Two, one to hold the giraffe, and the other to fill the bathtub
-	with brightly colored machine tools.
-
-	[Surrealist jokes just aren't my cup of fur.  Ed.]
+Q:	How many lawyers does it take to change a light bulb?
+A:	You won't find a lawyer who can change a light bulb.  Now, if
+	you're looking for a lawyer to screw a light bulb...
