@@ -1,1 +1,1 @@
-There was a phone call for you.
+You possess a mind not merely twisted, but actually sprained.
