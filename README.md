@@ -1,1 +1,2 @@
-Fine day to work off excess energy.  Steal something heavy.
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
