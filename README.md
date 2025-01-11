@@ -1,1 +1,1 @@
-A day for firm decisions!!!!!  Or is it?
+Live in a world of your own, but always welcome visitors.
