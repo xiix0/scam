@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+Your reasoning powers are good, and you are a fairly good planner.
