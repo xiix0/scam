@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
