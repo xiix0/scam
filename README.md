@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+This will be a memorable month -- no matter how hard you try to forget it.
