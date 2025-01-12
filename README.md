@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Your love life will be happy and harmonious.
