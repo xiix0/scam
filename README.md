@@ -1,2 +1,2 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
