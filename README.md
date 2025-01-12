@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+Your sister swims out to meet troop ships.
