@@ -1,1 +1,2 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
