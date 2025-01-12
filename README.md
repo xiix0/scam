@@ -1,1 +1,2 @@
-You will have domestic happiness and faithful friends.
+What I tell you three times is true.
+		-- Lewis Carroll
