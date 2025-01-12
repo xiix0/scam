@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
