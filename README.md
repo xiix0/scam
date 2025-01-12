@@ -1,1 +1,2 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
