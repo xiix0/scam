@@ -1,1 +1,2 @@
-You have a will that can be influenced by all with whom you come in contact.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
