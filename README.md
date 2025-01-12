@@ -1,2 +1,1 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+You're not my type.  For that matter, you're not even my species!!!
