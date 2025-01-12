@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+Give your very best today.  Heaven knows it's little enough.
