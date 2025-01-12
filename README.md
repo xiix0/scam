@@ -1,1 +1,1 @@
-Give your very best today.  Heaven knows it's little enough.
+You will soon meet a person who will play an important role in your life.
