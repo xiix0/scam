@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+Don't look now, but the man in the moon is laughing at you.
