@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+You own a dog, but you can only feed a cat.
