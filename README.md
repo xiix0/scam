@@ -1,1 +1,2 @@
-Today is the last day of your life so far.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
