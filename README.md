@@ -1,1 +1,3 @@
-You will obey or molten silver will be poured into your ears.
+Q:	Why do people who live near Niagara Falls have flat foreheads?
+A:	Because every morning they wake up thinking "What *is* that noise?
+	Oh, right, *of course*!
