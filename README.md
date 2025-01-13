@@ -1,1 +1,2 @@
-You will be married within a year, and divorced within two.
+A is for Apple.
+		-- Hester Pryne
