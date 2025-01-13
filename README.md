@@ -1,1 +1,2 @@
-Today is what happened to yesterday.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
