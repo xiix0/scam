@@ -1,3 +1,3 @@
-Grief can take care of itself; but to get the full value of a joy you must
-have somebody to divide it with.
+There is an old time toast which is golden for its beauty.
+"When you ascend the hill of prosperity may you not meet a friend."
 		-- Mark Twain
