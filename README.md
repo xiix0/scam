@@ -1,2 +1,2 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
