@@ -1,2 +1,2 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
