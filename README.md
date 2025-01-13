@@ -1,2 +1,1 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+You will be married within a year, and divorced within two.
