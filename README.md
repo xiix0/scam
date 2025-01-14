@@ -1,1 +1,1 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
