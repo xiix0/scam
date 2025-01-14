@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+There is a 20% chance of tomorrow.
