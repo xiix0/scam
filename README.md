@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+You will be advanced socially, without any special effort on your part.
