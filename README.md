@@ -1,2 +1,2 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
