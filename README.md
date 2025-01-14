@@ -1,2 +1,2 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
