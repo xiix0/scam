@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+You look like a million dollars.  All green and wrinkled.
