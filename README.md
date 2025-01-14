@@ -1,1 +1,1 @@
-Think twice before speaking, but don't say "think think click click".
+You'll never be the man your mother was!
