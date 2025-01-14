@@ -1,3 +1,2 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
