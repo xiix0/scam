@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+There was a phone call for you.
