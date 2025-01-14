@@ -1,1 +1,2 @@
-Don't you wish you had more energy... or less ambition?
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
