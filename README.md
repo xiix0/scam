@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+This will be a memorable month -- no matter how hard you try to forget it.
