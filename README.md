@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Think twice before speaking, but don't say "think think click click".
