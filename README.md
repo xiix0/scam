@@ -1,1 +1,2 @@
-You'll never be the man your mother was!
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
