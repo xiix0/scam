@@ -1,2 +1,2 @@
-What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, "The League of Frightened Men"
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
