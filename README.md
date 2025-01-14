@@ -1,1 +1,4 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+The holy passion of Friendship is of so sweet and steady and loyal and
+enduring a nature that it will last through a whole lifetime, if not asked to
+lend money.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
