@@ -1,2 +1,3 @@
-No group of professionals meets except to conspire against the public at large.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
 		-- Mark Twain
