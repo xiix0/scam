@@ -1,1 +1,1 @@
-You are always busy.
+You may get an opportunity for advancement today.  Watch it!
