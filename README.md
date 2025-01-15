@@ -1,1 +1,2 @@
-You plan things that you do not even attempt because of your extreme caution.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
