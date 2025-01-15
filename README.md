@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+A tall, dark stranger will have more fun than you.
