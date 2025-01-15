@@ -1,1 +1,2 @@
-You will have a long and unpleasant discussion with your supervisor.
+Too much is just enough.
+		-- Mark Twain, on whiskey
