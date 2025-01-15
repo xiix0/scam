@@ -1,1 +1,1 @@
-Don't read everything you believe.
+Excellent day to have a rotten day.
