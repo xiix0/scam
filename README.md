@@ -1,1 +1,1 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+Expect a letter from a friend who will ask a favor of you.
