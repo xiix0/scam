@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+You will have a long and unpleasant discussion with your supervisor.
