@@ -1,1 +1,2 @@
-Excellent day to have a rotten day.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
