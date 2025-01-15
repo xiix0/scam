@@ -1,1 +1,2 @@
-You too can wear a nose mitten.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
