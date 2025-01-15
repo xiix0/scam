@@ -1,2 +1,2 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
