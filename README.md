@@ -1,1 +1,2 @@
-An avocado-tone refrigerator would look good on your resume.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
