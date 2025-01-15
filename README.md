@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+Beware of a tall black man with one blond shoe.
