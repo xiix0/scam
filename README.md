@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+You will visit the Dung Pits of Glive soon.
