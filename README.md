@@ -1,1 +1,3 @@
-You plan things that you do not even attempt because of your extreme caution.
+Q:	How does a hacker fix a function which
+	doesn't work for all of the elements in its domain?
+A:	He changes the domain.
