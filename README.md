@@ -1,2 +1,1 @@
-Try to relax and enjoy the crisis.
-		-- Ashleigh Brilliant
+Executive ability is prominent in your make-up.
