@@ -1,2 +1,2 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
