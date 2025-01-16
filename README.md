@@ -1,5 +1,6 @@
-Q:	Why is Poland just like the United States?
-A:	In the United States you can't buy anything for zlotys and in
-	Poland you can't either, while in the U.S. you can get whatever
-	you want for dollars, just as you can in Poland.
-		-- being told in Poland, 1987
+The lovely woman-child Kaa was mercilessly chained to the cruel post of
+the warrior-chief Beast, with his barbarian tribe now stacking wood at
+her nubile feet, when the strong clear voice of the poetic and heroic
+Handsomas roared, 'Flick your Bic, crisp that chick, and you'll feel my
+steel through your last meal!'
+		-- Winning sentence, 1984 Bulwer-Lytton bad fiction contest.
