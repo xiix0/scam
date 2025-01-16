@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
