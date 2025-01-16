@@ -1,2 +1,1 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+You will experience a strong urge to do good; but it will pass.
