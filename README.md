@@ -1,3 +1,3 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
 		-- Mark Twain
