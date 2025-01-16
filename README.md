@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+There is a 20% chance of tomorrow.
