@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
