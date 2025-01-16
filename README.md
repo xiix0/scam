@@ -1,1 +1,1 @@
-You have literary talent that you should take pains to develop.
+There is a 20% chance of tomorrow.
