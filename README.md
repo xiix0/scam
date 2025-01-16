@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+You need more time; and you probably always will.
