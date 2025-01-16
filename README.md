@@ -1,2 +1,3 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	One.  Only it's his light bulb when he's done.
+ROMEO:		Courage, man; the hurt cannot be much.
+MERCUTIO:	No, 'tis not so deep as a well, nor so wide
+			as a church-door; but 'tis enough, 'twill serve.
