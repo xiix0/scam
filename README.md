@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
