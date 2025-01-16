@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+Chicken Little only has to be right once.
