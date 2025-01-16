@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+Good day to let down old friends who need help.
