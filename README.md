@@ -1,3 +1,2 @@
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
-		-- Mark Twain
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
