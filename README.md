@@ -1,2 +1,2 @@
-Q:	What's tiny and yellow and very, very, dangerous?
-A:	A canary with the super-user password.
+Just because the message may never be received does not mean it is
+not worth sending.
