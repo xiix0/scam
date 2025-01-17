@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+A vivid and creative mind characterizes you.
