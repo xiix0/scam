@@ -1,1 +1,2 @@
-You will always get the greatest recognition for the job you least like.
+Too much is just enough.
+		-- Mark Twain, on whiskey
