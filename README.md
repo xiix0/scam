@@ -1,1 +1,4 @@
-In the stairway of life, you'd best take the elevator.
+O, it is excellent
+To have a giant's strength; but it is tyrannous
+To use it like a giant.
+		-- Shakespeare, "Measure for Measure", II, 2
