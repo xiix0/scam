@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+Someone is speaking well of you.
