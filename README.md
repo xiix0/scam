@@ -1,3 +1,3 @@
-You never have to change anything you got up in the middle of the night
-to write.
-		-- Saul Bellow
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
