@@ -1,2 +1,2 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
