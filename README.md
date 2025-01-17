@@ -1,2 +1,1 @@
-The first thing we do, let's kill all the lawyers.
-		-- Wm. Shakespeare, "Henry VI", Part IV
+It may or may not be worthwhile, but it still has to be done.
