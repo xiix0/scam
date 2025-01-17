@@ -1,1 +1,2 @@
-You work very hard.  Don't try to think as well.
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
