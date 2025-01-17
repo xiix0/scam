@@ -1,1 +1,2 @@
-Be careful!  Is it classified?
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
