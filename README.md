@@ -1,1 +1,2 @@
-It may or may not be worthwhile, but it still has to be done.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
