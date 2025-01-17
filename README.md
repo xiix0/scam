@@ -1,2 +1,1 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+You are so boring that when I see you my feet go to sleep.
