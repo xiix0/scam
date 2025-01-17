@@ -1,1 +1,2 @@
-You have a will that can be influenced by all with whom you come in contact.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
