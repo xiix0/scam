@@ -1,6 +1,5 @@
-Q:	How do you shoot a blue elephant?
-A:	With a blue-elephant gun.
-
-Q:	How do you shoot a pink elephant?
-A:	Twist its trunk until it turns blue, then shoot it with
-	a blue-elephant gun.
+Q:	How does the Polish Constitution differ from the American?
+A:	Under the Polish Constitution citizens are guaranteed freedom of
+	speech, but under the United States constitution they are
+	guaranteed freedom after speech.
+		-- being told in Poland, 1987
