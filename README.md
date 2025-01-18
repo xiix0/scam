@@ -1,2 +1,2 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
