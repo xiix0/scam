@@ -1,2 +1,2 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
