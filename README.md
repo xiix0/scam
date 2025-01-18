@@ -1,3 +1,1 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+Someone whom you reject today, will reject you tomorrow.
