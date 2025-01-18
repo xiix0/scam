@@ -1,1 +1,2 @@
-You're currently going through a difficult transition period called "Life."
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
