@@ -1,2 +1,1 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+You have been selected for a secret mission.
