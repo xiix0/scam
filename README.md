@@ -1,2 +1,2 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
