@@ -1,1 +1,2 @@
-You're ugly and your mother dresses you funny.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
