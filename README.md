@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+Don't you wish you had more energy... or less ambition?
