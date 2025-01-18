@@ -1,2 +1,1 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+An avocado-tone refrigerator would look good on your resume.
