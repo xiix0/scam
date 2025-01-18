@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
