@@ -1,2 +1,2 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
