@@ -1,1 +1,2 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
