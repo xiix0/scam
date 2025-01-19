@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+A tall, dark stranger will have more fun than you.
