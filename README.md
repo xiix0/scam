@@ -1,1 +1,2 @@
-You will be the last person to buy a Chrysler.
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
