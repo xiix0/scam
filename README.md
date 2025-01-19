@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+Beware of a tall blond man with one black shoe.
