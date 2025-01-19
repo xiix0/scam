@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+Your love life will be happy and harmonious.
