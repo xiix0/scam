@@ -1,2 +1,1 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+You will not be elected to public office this year.
