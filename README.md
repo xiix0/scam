@@ -1,1 +1,2 @@
-You'll be called to a post requiring ability in handling groups of people.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
