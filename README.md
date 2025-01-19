@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+You have an unusual equipment for success.  Be sure to use it properly.
