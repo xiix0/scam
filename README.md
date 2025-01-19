@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
