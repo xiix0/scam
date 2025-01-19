@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+You will be honored for contributing your time and skill to a worthy cause.
