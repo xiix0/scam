@@ -1,1 +1,2 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
