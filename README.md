@@ -1,3 +1,2 @@
-Q:	What do you call the money you pay to the government when
-	you ride into the country on the back of an elephant?
-A:	A howdah duty.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
