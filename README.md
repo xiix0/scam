@@ -1,1 +1,3 @@
-You will be honored for contributing your time and skill to a worthy cause.
+It is by the fortune of God that, in this country, we have three benefits:
+freedom of speech, freedom of thought, and the wisdom never to use either.
+		-- Mark Twain
