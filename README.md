@@ -1,2 +1,1 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+You love your home and want it to be beautiful.
