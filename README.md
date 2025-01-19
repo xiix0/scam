@@ -1,2 +1,1 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+What happened last night can happen again.
