@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+You own a dog, but you can only feed a cat.
