@@ -1,3 +1,1 @@
-Noise proves nothing.  Often a hen who has merely laid an egg cackles
-as if she laid an asteroid.
-		-- Mark Twain
+Increased knowledge will help you now.  Have mate's phone bugged.
