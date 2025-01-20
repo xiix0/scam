@@ -1,1 +1,1 @@
-Accent on helpful side of your nature.  Drain the moat.
+Don't you feel more like you do now than you did when you came in?
