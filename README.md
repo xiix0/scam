@@ -1,1 +1,2 @@
-You are deeply attached to your friends and acquaintances.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
