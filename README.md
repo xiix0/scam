@@ -1,2 +1,1 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+Your aims are high, and you are capable of much.
