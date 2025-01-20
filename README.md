@@ -1,2 +1,2 @@
-Man is the only animal that blushes -- or needs to.
+I have never let my schooling interfere with my education.
 		-- Mark Twain
