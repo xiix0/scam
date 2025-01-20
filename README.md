@@ -1,2 +1,2 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
