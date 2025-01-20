@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
