@@ -1,1 +1,2 @@
-It's all in the mind, ya know.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
