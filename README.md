@@ -1,2 +1,1 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Let me put it this way: today is going to be a learning experience.
