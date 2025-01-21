@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+Cheer Up!  Things are getting worse at a slower rate.
