@@ -1,1 +1,3 @@
-Expect the worst, it's the least you can do.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
