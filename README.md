@@ -1,2 +1,2 @@
-There is a great discovery still to be made in Literature: that of
-paying literary men by the quantity they do NOT write.
+The first thing we do, let's kill all the lawyers.
+		-- Wm. Shakespeare, "Henry VI", Part IV
