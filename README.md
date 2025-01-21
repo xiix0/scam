@@ -1,2 +1,2 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
