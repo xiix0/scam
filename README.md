@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+You have a will that can be influenced by all with whom you come in contact.
