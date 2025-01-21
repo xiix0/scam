@@ -1,1 +1,2 @@
-You will be surprised by a loud noise.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
