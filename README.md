@@ -1,1 +1,2 @@
-Truth will out this morning.  (Which may really mess things up.)
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
