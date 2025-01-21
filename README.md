@@ -1,1 +1,2 @@
-You have a will that can be influenced by all with whom you come in contact.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
