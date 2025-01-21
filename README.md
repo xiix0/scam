@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+Perfect day for scrubbing the floor and other exciting things.
