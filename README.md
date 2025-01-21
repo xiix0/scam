@@ -1,2 +1,2 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
