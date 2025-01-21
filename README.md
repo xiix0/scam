@@ -1,2 +1,2 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+The Public is merely a multiplied "me."
+		-- Mark Twain
