@@ -1,2 +1,1 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+You're at the end of the road again.
