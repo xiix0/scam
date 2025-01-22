@@ -1,5 +1,7 @@
-I will honour Christmas in my heart, and try to keep it all the year.  I
-will live in the Past, the Present, and the Future.  The Spirits of all
-Three shall strive within me.  I will not shut out the lessons that they
-teach.  Oh, tell me that I may sponge away the writing on this stone!
-		-- Charles Dickens
+Awash with unfocused desire, Everett twisted the lobe of his one remaining
+ear and felt the presence of somebody else behind him, which caused terror
+to push through his nervous system like a flash flood roaring down the
+mid-fork of the Feather River before the completion of the Oroville Dam
+in 1959.
+		-- Grand Panjandrum's Special Award, 1984 Bulwer-Lytton
+		   bad fiction contest.
