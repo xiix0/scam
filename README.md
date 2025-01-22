@@ -1,2 +1,1 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+Are you ever going to do the dishes?  Or will you change your major to biology?
