@@ -1,2 +1,2 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
