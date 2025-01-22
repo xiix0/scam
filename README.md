@@ -1,2 +1,2 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
