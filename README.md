@@ -1,1 +1,2 @@
-Make a wish, it might come true.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
