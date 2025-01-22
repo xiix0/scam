@@ -1,2 +1,2 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
