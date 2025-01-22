@@ -1,2 +1,2 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
