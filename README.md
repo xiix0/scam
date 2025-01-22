@@ -1,1 +1,2 @@
-Never commit yourself!  Let someone else commit you.
+Too much is just enough.
+		-- Mark Twain, on whiskey
