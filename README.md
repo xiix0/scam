@@ -1,1 +1,2 @@
-Don't look now, but the man in the moon is laughing at you.
+Too much is just enough.
+		-- Mark Twain, on whiskey
