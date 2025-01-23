@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+You will be imprisoned for contributing your time and skill to a bank robbery.
