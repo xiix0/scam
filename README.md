@@ -1,1 +1,1 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Change your thoughts and you change your world.
