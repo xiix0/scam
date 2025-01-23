@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+You are dishonest, but never to the point of hurting a friend.
