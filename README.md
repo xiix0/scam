@@ -1,6 +1,5 @@
-The camel died quite suddenly on the second day, and Selena fretted
-sullenly and, buffing her already impeccable nails -- not for the first
-time since the journey begain -- pondered snidely if this would dissolve
-into a vignette of minor inconveniences like all the other holidays spent
-with Basil.
-		-- Winning sentence, 1983 Bulwer-Lytton bad fiction contest.
+Q:	Why is Poland just like the United States?
+A:	In the United States you can't buy anything for zlotys and in
+	Poland you can't either, while in the U.S. you can get whatever
+	you want for dollars, just as you can in Poland.
+		-- being told in Poland, 1987
