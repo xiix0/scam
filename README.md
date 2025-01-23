@@ -1,2 +1,1 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+Go to a movie tonight.  Darkness becomes you.
