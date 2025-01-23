@@ -1,1 +1,2 @@
-You are dishonest, but never to the point of hurting a friend.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
