@@ -1,3 +1,3 @@
-When I reflect upon the number of disagreeable people who I know who have gone
-to a better world, I am moved to lead a different life.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many Oregonians does it take to screw in a light bulb?
+A:	Three.  One to screw in the light bulb and two to fend off all those
+	Californians trying to share the experience.
