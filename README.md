@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
