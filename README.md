@@ -1,1 +1,1 @@
-Chicken Little was right.
+You get along very well with everyone except animals and people.
