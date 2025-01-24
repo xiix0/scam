@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
