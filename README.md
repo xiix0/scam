@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+You attempt things that you do not even plan because of your extreme stupidity.
