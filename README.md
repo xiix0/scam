@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+You can rent this space for only $5 a week.
