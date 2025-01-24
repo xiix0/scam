@@ -1,1 +1,1 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+You will meet an important person who will help you advance professionally.
