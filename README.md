@@ -1,2 +1,1 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+Of course you have a purpose -- to find a purpose.
