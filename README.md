@@ -1,2 +1,3 @@
-Q:	What's the difference between a duck and an elephant?
-A:	You can't get down off an elephant.
+It is often the case that the man who can't tell a lie thinks he is the best
+judge of one.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
