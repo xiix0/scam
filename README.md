@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+You're working under a slight handicap.  You happen to be human.
