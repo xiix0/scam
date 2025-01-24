@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+Make a wish, it might come true.
