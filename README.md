@@ -1,1 +1,1 @@
-You will be successful in love.
+You will overcome the attacks of jealous associates.
