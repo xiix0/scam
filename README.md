@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Good day for overcoming obstacles.  Try a steeplechase.
