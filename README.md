@@ -1,3 +1,2 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
