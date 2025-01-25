@@ -1,1 +1,2 @@
-If your life was a horse, you'd have to shoot it.
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
