@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+You seek to shield those you love and you like the role of the provider.
