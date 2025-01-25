@@ -1,2 +1,2 @@
-He that breaks a thing to find out what it is has left the path of wisdom.
-		-- J.R.R. Tolkien
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
