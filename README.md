@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+You are fighting for survival in your own sweet and gentle way.
