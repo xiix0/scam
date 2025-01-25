@@ -1,1 +1,2 @@
-You will gain money by a fattening action.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
