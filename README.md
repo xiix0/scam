@@ -1,2 +1,3 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+Q:	How does a hacker fix a function which
+	doesn't work for all of the elements in its domain?
+A:	He changes the domain.
