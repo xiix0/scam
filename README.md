@@ -1,2 +1,1 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+Beauty and harmony are as necessary to you as the very breath of life.
