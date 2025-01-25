@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+Your talents will be recognized and suitably rewarded.
