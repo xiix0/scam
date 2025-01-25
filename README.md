@@ -1,2 +1,2 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
