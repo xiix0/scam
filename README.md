@@ -1,1 +1,2 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
