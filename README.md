@@ -1,2 +1,2 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
