@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
