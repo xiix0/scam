@@ -1,1 +1,1 @@
-Don't get to bragging.
+You will remember something that you should not have forgotten.
