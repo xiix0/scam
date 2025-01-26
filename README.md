@@ -1,3 +1,2 @@
-Soap and education are not as sudden as a massacre, but they are more
-deadly in the long run.
+Wagner's music is better than it sounds.
 		-- Mark Twain
