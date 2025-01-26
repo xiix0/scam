@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Many changes of mind and mood; do not hesitate too long.
