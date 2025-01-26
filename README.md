@@ -1,2 +1,2 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
