@@ -1,1 +1,3 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
