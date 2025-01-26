@@ -1,3 +1,2 @@
-Let us endeavor so to live that when we come to die even the undertaker will be
-sorry.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	What do Winnie the Pooh and John the Baptist have in common?
+A:	The same middle name.
