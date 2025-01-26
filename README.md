@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+You will be run over by a beer truck.
