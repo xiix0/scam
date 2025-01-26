@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+You too can wear a nose mitten.
