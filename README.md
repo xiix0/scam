@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+You have an unusual equipment for success.  Be sure to use it properly.
