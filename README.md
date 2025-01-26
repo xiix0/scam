@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+Go to a movie tonight.  Darkness becomes you.
