@@ -1,1 +1,3 @@
-Go to a movie tonight.  Darkness becomes you.
+Its name is Public Opinion.  It is held in reverence.  It settles everything.
+Some think it is the voice of God.
+		-- Mark Twain
