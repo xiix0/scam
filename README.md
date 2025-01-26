@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+Your heart is pure, and your mind clear, and your soul devout.
