@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+You own a dog, but you can only feed a cat.
