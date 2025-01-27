@@ -1,1 +1,1 @@
-You will contract a rare disease.
+You have had a long-term stimulation relative to business.
