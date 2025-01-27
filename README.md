@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+You prefer the company of the opposite sex, but are well liked by your own.
