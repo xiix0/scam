@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+Your business will assume vast proportions.
