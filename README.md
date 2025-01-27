@@ -1,1 +1,1 @@
-Everything that you know is wrong, but you can be straightened out.
+Q:	How do you keep a moron in suspense?
