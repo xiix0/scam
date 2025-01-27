@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Excellent day for putting Slinkies on an escalator.
