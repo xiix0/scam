@@ -1,2 +1,2 @@
-No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
-		-- Sherlock Holmes
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
