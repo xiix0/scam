@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
