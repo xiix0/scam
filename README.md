@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+Don't look back, the lemmings are gaining on you.
