@@ -1,2 +1,1 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+Everything that you know is wrong, but you can be straightened out.
