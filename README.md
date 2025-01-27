@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
