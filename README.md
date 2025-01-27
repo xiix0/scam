@@ -1,2 +1,2 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
