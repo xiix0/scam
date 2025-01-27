@@ -1,1 +1,1 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+Tonight's the night: Sleep in a eucalyptus tree.
