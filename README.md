@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Break into jail and claim police brutality.
