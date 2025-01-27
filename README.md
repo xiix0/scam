@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Someone whom you reject today, will reject you tomorrow.
