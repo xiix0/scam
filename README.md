@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
+Harp not on that string.
 		-- William Shakespeare, "Henry VI"
