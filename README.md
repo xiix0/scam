@@ -1,2 +1,2 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
