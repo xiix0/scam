@@ -1,1 +1,3 @@
-You will receive a legacy which will place you above want.
+You may my glories and my state dispose,
+But not my griefs; still am I king of those.
+		-- William Shakespeare, "Richard II"
