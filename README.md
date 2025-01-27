@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
