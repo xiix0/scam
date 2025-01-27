@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+Time to be aggressive.  Go after a tattooed Virgo.
