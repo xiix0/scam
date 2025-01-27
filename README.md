@@ -1,1 +1,2 @@
-You are only young once, but you can stay immature indefinitely.
+No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
+		-- Sherlock Holmes
