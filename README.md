@@ -1,1 +1,2 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
