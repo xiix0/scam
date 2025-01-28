@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
