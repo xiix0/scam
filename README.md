@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+You are confused; but this is your normal state.
