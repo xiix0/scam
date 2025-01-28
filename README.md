@@ -1,2 +1,2 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
