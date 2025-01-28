@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+So this is it.  We're going to die.
