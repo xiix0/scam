@@ -1,1 +1,1 @@
-Your reasoning powers are good, and you are a fairly good planner.
+Your life would be very empty if you had nothing to regret.
