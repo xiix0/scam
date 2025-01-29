@@ -1,2 +1,2 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
