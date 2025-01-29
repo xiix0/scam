@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
+The surest protection against temptation is cowardice.
 		-- Mark Twain
