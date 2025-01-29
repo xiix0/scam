@@ -1,2 +1,1 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
-		-- Mark Twain
+Don't look now, but there is a multi-legged creature on your shoulder.
