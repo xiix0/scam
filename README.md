@@ -1,2 +1,3 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
