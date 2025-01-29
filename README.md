@@ -1,1 +1,1 @@
-You have a strong appeal for members of your own sex.
+You get along very well with everyone except animals and people.
