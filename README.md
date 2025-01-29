@@ -1,1 +1,2 @@
-Domestic happiness and faithful friends.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
