@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+Tuesday After Lunch is the cosmic time of the week.
