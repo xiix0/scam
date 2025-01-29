@@ -1,1 +1,1 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+Your own qualities will help prevent your advancement in the world.
