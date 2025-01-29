@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
