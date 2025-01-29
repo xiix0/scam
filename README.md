@@ -1,1 +1,1 @@
-You get along very well with everyone except animals and people.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
