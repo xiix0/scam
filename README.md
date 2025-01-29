@@ -1,1 +1,2 @@
-Go to a movie tonight.  Darkness becomes you.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
