@@ -1,2 +1,1 @@
-English literature's performing flea.
-		-- Sean O'Casey on P. G. Wodehouse
+A tall, dark stranger will have more fun than you.
