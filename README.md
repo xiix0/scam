@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+Domestic happiness and faithful friends.
