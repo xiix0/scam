@@ -1,1 +1,1 @@
-You fill a much-needed gap.
+Time to be aggressive.  Go after a tattooed Virgo.
