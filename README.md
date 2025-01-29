@@ -1,2 +1,3 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
