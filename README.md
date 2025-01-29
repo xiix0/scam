@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+Go to a movie tonight.  Darkness becomes you.
