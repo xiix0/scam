@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+Q:	What's the difference between Bell Labs and the Boy Scouts of America?
+A:	The Boy Scouts have adult supervision.
