@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Give your very best today.  Heaven knows it's little enough.
