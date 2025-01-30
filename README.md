@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
