@@ -1,2 +1,3 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+Perilous to all of us are the devices of an art deeper than we ourselves
+possess.
+		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
