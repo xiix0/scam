@@ -1,2 +1,1 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+Alimony and bribes will engage a large share of your wealth.
