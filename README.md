@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+Good day for a change of scene.  Repaper the bedroom wall.
