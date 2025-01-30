@@ -1,3 +1,2 @@
-There is an old time toast which is golden for its beauty.
-"When you ascend the hill of prosperity may you not meet a friend."
-		-- Mark Twain
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
