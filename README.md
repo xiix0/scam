@@ -1,3 +1,2 @@
-My only love sprung from my only hate!
-Too early seen unknown, and known too late!
-		-- William Shakespeare, "Romeo and Juliet"
+Q:	How many Marxists does it take to screw in a light bulb?
+A:	None:  The light bulb contains the seeds of its own revolution.
