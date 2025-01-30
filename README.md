@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+Snow Day -- stay home.
