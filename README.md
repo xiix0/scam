@@ -1,2 +1,2 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
