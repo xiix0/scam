@@ -1,2 +1,1 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+You will visit the Dung Pits of Glive soon.
