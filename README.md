@@ -1,2 +1,1 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+Your mode of life will be changed for the better because of good news soon.
