@@ -1,1 +1,2 @@
-You will live to see your grandchildren.
+Wagner's music is better than it sounds.
+		-- Mark Twain
