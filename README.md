@@ -1,3 +1,3 @@
-The human race is a race of cowards; and I am not only marching in that
-procession but carrying a banner.
-		-- Mark Twain
+My only love sprung from my only hate!
+Too early seen unknown, and known too late!
+		-- William Shakespeare, "Romeo and Juliet"
