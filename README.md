@@ -1,1 +1,2 @@
-A few hours grace before the madness begins again.
+Q:	What's the difference betweeen USL and the Graf Zeppelin?
+A:	The Graf Zeppelin represented cutting edge technology for its time.
