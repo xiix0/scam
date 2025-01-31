@@ -1,1 +1,3 @@
-It may or may not be worthwhile, but it still has to be done.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
