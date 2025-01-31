@@ -1,2 +1,2 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
