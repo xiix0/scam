@@ -1,1 +1,2 @@
-Day of inquiry.  You will be subpoenaed.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
