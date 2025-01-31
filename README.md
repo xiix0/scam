@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+Your life would be very empty if you had nothing to regret.
