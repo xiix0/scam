@@ -1,2 +1,1 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+Don't you wish you had more energy... or less ambition?
