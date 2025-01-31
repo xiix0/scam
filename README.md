@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+Don't read any sky-writing for the next two weeks.
