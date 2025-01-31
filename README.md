@@ -1,1 +1,2 @@
-You two ought to be more careful--your love could drag on for years and years.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
