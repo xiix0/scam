@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+Your society will be sought by people of taste and refinement.
