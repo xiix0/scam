@@ -1,2 +1,1 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+Good day to deal with people in high places; particularly lonely stewardesses.
