@@ -1,1 +1,2 @@
-Tomorrow will be cancelled due to lack of interest.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
