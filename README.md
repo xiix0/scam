@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You will give someone a piece of your mind, which you can ill afford.
