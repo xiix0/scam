@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+You're a card which will have to be dealt with.
