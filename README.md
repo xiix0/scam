@@ -1,2 +1,3 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
