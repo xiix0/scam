@@ -1,1 +1,2 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
