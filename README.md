@@ -1,1 +1,2 @@
-You will be reincarnated as a toad; and you will be much happier.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
