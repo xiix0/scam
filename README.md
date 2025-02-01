@@ -1,1 +1,2 @@
-Your aims are high, and you are capable of much.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
