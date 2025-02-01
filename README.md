@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
