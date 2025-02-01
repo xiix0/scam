@@ -1,2 +1,2 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
