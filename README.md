@@ -1,1 +1,3 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
+		-- Mark Twain
