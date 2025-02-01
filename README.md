@@ -1,2 +1,3 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
