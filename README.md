@@ -1,1 +1,1 @@
-You could live a better life, if you had a better mind and a better body.
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
