@@ -1,2 +1,2 @@
-Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
-A:	Trustworthy.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
