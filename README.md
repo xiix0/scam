@@ -1,2 +1,2 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
