@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+You are only young once, but you can stay immature indefinitely.
