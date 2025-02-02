@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
