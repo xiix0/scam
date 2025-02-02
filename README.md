@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+You will be successful in love.
