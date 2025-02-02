@@ -1,1 +1,2 @@
-Do something unusual today.  Pay a bill.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
