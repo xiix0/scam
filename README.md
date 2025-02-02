@@ -1,1 +1,2 @@
-If you can read this, you're too close.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
