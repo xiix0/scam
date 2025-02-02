@@ -1,2 +1,3 @@
-What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
