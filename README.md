@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
