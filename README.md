@@ -1,2 +1,5 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+Q:	Why do ducks have big flat feet?
+A:	To stamp out forest fires.
+
+Q:	Why do elephants have big flat feet?
+A:	To stamp out flaming ducks.
