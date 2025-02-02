@@ -1,1 +1,1 @@
-You will be run over by a bus.
+Do something unusual today.  Pay a bill.
