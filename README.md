@@ -1,1 +1,2 @@
-You have the power to influence all with whom you come in contact.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
