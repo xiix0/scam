@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Big book, big bore.
+		-- Callimachus
