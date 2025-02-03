@@ -1,1 +1,2 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
