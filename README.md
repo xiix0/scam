@@ -1,2 +1,2 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
