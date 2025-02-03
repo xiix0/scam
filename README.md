@@ -1,2 +1,2 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
