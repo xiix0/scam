@@ -1,2 +1,1 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+People are beginning to notice you.  Try dressing before you leave the house.
