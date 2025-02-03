@@ -1,2 +1,2 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
