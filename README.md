@@ -1,2 +1,2 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
