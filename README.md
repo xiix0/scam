@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+In the stairway of life, you'd best take the elevator.
