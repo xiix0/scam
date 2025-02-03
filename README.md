@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+Change your thoughts and you change your world.
