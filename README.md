@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+You'll be called to a post requiring ability in handling groups of people.
