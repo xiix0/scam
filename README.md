@@ -1,1 +1,2 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
