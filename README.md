@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+You will have domestic happiness and faithful friends.
