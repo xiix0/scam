@@ -1,1 +1,1 @@
-What happened last night can happen again.
+Chicken Little was right.
