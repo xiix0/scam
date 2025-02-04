@@ -1,1 +1,1 @@
-You are sick, twisted and perverted.  I like that in a person.
+You work very hard.  Don't try to think as well.
