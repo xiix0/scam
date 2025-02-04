@@ -1,1 +1,2 @@
-Look afar and see the end from the beginning.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
