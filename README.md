@@ -1,1 +1,2 @@
-You are the only person to ever get this message.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
