@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+Q:	What do Winnie the Pooh and John the Baptist have in common?
+A:	The same middle name.
