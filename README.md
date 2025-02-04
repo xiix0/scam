@@ -1,2 +1,5 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+Q:	What do you call a blind pre-historic animal?
+A:	Diyathinkhesaurus.
+
+Q:	What do you call a blind pre-historic animal with a dog?
+A:	Diyathinkhesaurus Rex.
