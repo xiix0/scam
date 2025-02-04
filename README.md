@@ -1,2 +1,1 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+Don't look now, but there is a multi-legged creature on your shoulder.
