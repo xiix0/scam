@@ -1,3 +1,2 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
