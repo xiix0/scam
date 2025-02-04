@@ -1,2 +1,2 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
