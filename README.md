@@ -1,1 +1,2 @@
-You will be traveling and coming into a fortune.
+"... all the modern inconveniences ..."
+		-- Mark Twain
