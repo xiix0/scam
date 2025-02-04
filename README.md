@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+Don't read any sky-writing for the next two weeks.
