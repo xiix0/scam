@@ -1,2 +1,1 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
-		-- Mark Twain
+You are the only person to ever get this message.
