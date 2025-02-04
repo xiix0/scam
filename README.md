@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
