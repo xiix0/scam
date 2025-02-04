@@ -1,1 +1,2 @@
-There was a phone call for you.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
