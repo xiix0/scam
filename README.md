@@ -1,1 +1,2 @@
-You will be audited by the Internal Revenue Service.
+I'll burn my books.
+		-- Christopher Marlowe
