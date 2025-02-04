@@ -1,2 +1,1 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+You have an ambitious nature and may make a name for yourself.
