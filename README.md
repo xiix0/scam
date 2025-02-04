@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+What happened last night can happen again.
