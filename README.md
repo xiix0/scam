@@ -1,2 +1,3 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
