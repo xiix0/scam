@@ -1,2 +1,2 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+Q:	What do you have when you have a lawyer buried up to his neck in sand?
+A:	Not enough sand.
