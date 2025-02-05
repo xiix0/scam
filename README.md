@@ -1,3 +1,2 @@
-If one cannot enjoy reading a book over and over again, there is no use
-in reading it at all.
-		-- Oscar Wilde
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
