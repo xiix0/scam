@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+Don't Worry, Be Happy.
+		-- Meher Baba
