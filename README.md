@@ -1,3 +1,2 @@
-In the Spring, I have counted 136 different kinds of weather inside of
-24 hours.
-		-- Mark Twain, on New England weather
+Q:	What do you have when you have a lawyer buried up to his neck in sand?
+A:	Not enough sand.
