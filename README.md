@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+You are a very redundant person, that's what kind of person you are.
