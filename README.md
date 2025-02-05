@@ -1,1 +1,3 @@
-You have literary talent that you should take pains to develop.
+In the Spring, I have counted 136 different kinds of weather inside of
+24 hours.
+		-- Mark Twain, on New England weather
