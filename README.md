@@ -1,1 +1,2 @@
-Courage is your greatest present need.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
