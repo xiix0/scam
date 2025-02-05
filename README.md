@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+Life is to you a dashing and bold adventure.
