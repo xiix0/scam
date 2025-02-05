@@ -1,6 +1,4 @@
-A morgue is a morgue is a morgue.  They can paint the walls with aggressively
-cheerful primary colors and splashy bold graphics, but it's still a holding
-place for the dead until they can be parted out to organ banks.  Not that I
-would have cared normally but my viewpoint was skewed.  The relentless
-pleasance of the room I sat in seemed only grotesque.
-		-- Pat Cadigan, "Mindplayers"
+Behold, the fool saith, "Put not all thine eggs in the one basket"--which is
+but a manner of saying, "Scatter your money and your attention;" but the wise
+man saith, "Put all your eggs in the one basket and--WATCH THAT BASKET."
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
