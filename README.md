@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+You have literary talent that you should take pains to develop.
