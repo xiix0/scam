@@ -1,1 +1,1 @@
-You are a fluke of the universe; you have no right to be here.
+Be security conscious -- National defense is at stake.
