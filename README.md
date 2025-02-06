@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+Try to have as good a life as you can under the circumstances.
