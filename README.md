@@ -1,1 +1,1 @@
-You are capable of planning your future.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
