@@ -1,1 +1,2 @@
-Your own qualities will help prevent your advancement in the world.
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
