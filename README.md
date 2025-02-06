@@ -1,5 +1,6 @@
-	"You have heard me speak of Professor Moriarty?"
-	"The famous scientific criminal, as famous among crooks as --"
-	"My blushes, Watson," Holmes murmured, in a deprecating voice.
-	"I was about to say 'as he is unknown to the public.'"
-		-- A. Conan Doyle, "The Valley of Fear"
+Q:	What did Tarzan say when he saw the elephants coming over the hill?
+A:	"The elephants are coming over the hill."
+
+Q:	What did he say when saw them coming over the hill wearing
+		sunglasses?
+A:	Nothing, for he didn't recognize them.
