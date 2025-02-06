@@ -1,1 +1,2 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+Conscience doth make cowards of us all.
+		-- Shakespeare
