@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+Do something unusual today.  Pay a bill.
