@@ -1,1 +1,1 @@
-Break into jail and claim police brutality.
+Tuesday After Lunch is the cosmic time of the week.
