@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+You will be run over by a bus.
