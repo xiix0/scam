@@ -1,2 +1,2 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+The Public is merely a multiplied "me."
+		-- Mark Twain
