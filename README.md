@@ -1,1 +1,2 @@
-Do something unusual today.  Pay a bill.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
