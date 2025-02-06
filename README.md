@@ -1,2 +1,2 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
