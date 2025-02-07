@@ -1,1 +1,2 @@
-Today is the first day of the rest of your life.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
