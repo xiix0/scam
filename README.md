@@ -1,2 +1,2 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
