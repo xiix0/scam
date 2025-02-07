@@ -1,1 +1,2 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
