@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
