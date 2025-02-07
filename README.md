@@ -1,2 +1,3 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
+		-- Mark Twain
