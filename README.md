@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+Don't you wish you had more energy... or less ambition?
