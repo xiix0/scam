@@ -1,2 +1,2 @@
-There is always one thing to remember: writers are always selling somebody out.
-		-- Joan Didion, "Slouching Towards Bethlehem"
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
