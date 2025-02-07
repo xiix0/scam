@@ -1,2 +1,1 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+Living your life is a task so difficult, it has never been attempted before.
