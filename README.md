@@ -1,5 +1,2 @@
-Q:	Why did the chicken cross the road?
-A:	To see his friend Gregory peck.
-
-Q:	Why did the chicken cross the playground?
-A:	To get to the other slide.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
