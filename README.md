@@ -1,1 +1,2 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
