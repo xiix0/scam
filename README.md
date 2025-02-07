@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+You will feel hungry again in another hour.
