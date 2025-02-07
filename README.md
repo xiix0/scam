@@ -1,2 +1,2 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+You will pay for your sins.  If you have already paid, please disregard
+this message.
