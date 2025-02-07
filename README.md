@@ -1,3 +1,2 @@
-Reader, suppose you were an idiot.  And suppose you were a member of
-Congress.  But I repeat myself.
-		-- Mark Twain
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
