@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+Keep emotionally active.  Cater to your favorite neurosis.
