@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+Tomorrow will be cancelled due to lack of interest.
