@@ -1,5 +1,1 @@
-Q:	How do you catch a unique rabbit?
-A:	Unique up on it!
-
-Q:	How do you catch a tame rabbit?
-A:	The tame way!
+You prefer the company of the opposite sex, but are well liked by your own.
