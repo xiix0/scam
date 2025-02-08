@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You will soon meet a person who will play an important role in your life.
