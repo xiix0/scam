@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Q:	How do you keep a moron in suspense?
