@@ -1,1 +1,2 @@
-You will gain money by an illegal action.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
