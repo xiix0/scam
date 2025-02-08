@@ -1,1 +1,2 @@
-You definitely intend to start living sometime soon.
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
