@@ -1,1 +1,2 @@
-Don't get stuck in a closet -- wear yourself out.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
