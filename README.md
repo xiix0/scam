@@ -1,2 +1,2 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
