@@ -1,2 +1,2 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
