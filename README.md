@@ -1,1 +1,1 @@
-You will attract cultured and artistic people to your home.
+Excellent day to have a rotten day.
