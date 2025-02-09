@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+You will be given a post of trust and responsibility.
