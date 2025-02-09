@@ -1,1 +1,2 @@
-Your boyfriend takes chocolate from strangers.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
