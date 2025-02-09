@@ -1,1 +1,2 @@
-You will attract cultured and artistic people to your home.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
