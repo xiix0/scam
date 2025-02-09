@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Today is the tomorrow you worried about yesterday.
