@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+Everything will be just tickety-boo today.
