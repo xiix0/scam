@@ -1,2 +1,3 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Q:	Why does Washington have the most lawyers per capita and
+	New Jersey the most toxic waste dumps?
+A:	God gave New Jersey first choice.
