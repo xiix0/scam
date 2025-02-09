@@ -1,2 +1,3 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+Have a place for everything and keep the thing somewhere else; this is not
+advice, it is merely custom.
+		-- Mark Twain
