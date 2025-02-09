@@ -1,2 +1,2 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
