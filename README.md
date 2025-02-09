@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+You teach best what you most need to learn.
