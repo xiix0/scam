@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
