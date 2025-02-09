@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+Courage is your greatest present need.
