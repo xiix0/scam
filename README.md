@@ -1,1 +1,1 @@
-You will be recognized and honored as a community leader.
+You will be run over by a bus.
