@@ -1,2 +1,2 @@
-Q:	What's tiny and yellow and very, very, dangerous?
-A:	A canary with the super-user password.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
