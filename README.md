@@ -1,3 +1,1 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+Things will be bright in P.M.  A cop will shine a light in your face.
