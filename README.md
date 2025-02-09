@@ -1,3 +1,2 @@
-Q:	What do you call a principal female opera singer whose high C
-	is lower than those of other principal female opera singers?
-A:	A deep C diva.
+Q:	What do you have when you have a lawyer buried up to his neck in sand?
+A:	Not enough sand.
