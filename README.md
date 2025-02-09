@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+Try to value useful qualities in one who loves you.
