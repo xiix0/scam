@@ -1,1 +1,3 @@
-Abandon the search for Truth; settle for a good fantasy.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
