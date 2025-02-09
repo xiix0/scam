@@ -1,2 +1,2 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
