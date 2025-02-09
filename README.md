@@ -1,2 +1,3 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
