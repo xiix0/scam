@@ -1,1 +1,1 @@
-Be careful!  Is it classified?
+Don't look now, but the man in the moon is laughing at you.
