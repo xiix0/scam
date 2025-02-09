@@ -1,1 +1,1 @@
-Do not overtax your powers.
+You will be recognized and honored as a community leader.
