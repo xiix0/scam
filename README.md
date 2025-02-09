@@ -1,2 +1,3 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+All say, "How hard it is that we have to die"--a strange complaint to come from
+the mouths of people who have had to live.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
