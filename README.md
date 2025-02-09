@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+Your society will be sought by people of taste and refinement.
