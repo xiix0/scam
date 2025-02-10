@@ -1,1 +1,2 @@
-Fine day to work off excess energy.  Steal something heavy.
+Too much is just enough.
+		-- Mark Twain, on whiskey
