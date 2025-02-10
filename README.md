@@ -1,1 +1,1 @@
-You dialed 5483.
+You will give someone a piece of your mind, which you can ill afford.
