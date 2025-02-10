@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+You never know how many friends you have until you rent a house on the beach.
