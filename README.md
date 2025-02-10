@@ -1,2 +1,2 @@
-If you tell the truth you don't have to remember anything.
-		-- Mark Twain
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
