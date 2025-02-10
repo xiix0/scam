@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+You have many friends and very few living enemies.
