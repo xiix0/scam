@@ -1,2 +1,2 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
