@@ -1,1 +1,2 @@
-You will gain money by a fattening action.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
