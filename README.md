@@ -1,2 +1,1 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+There is a 20% chance of tomorrow.
