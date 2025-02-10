@@ -1,1 +1,2 @@
-Caution: breathing may be hazardous to your health.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
