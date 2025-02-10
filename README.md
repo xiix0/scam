@@ -1,1 +1,1 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+Caution: breathing may be hazardous to your health.
