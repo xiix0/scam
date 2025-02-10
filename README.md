@@ -1,2 +1,2 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+Don't Worry, Be Happy.
+		-- Meher Baba
