@@ -1,1 +1,2 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
