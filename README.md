@@ -1,1 +1,1 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+You have an unusual equipment for success.  Be sure to use it properly.
