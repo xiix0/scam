@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
