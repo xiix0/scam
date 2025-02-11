@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
