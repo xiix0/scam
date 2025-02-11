@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+You have a strong appeal for members of your own sex.
