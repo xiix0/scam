@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
