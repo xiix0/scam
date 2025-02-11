@@ -1,2 +1,2 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+"Life, loathe it or ignore it, you can't like it."
+		-- Marvin, "Hitchhiker's Guide to the Galaxy"
