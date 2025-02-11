@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+You have Egyptian flu: you're going to be a mummy.
