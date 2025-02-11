@@ -1,1 +1,2 @@
-Caution: Keep out of reach of children.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
