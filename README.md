@@ -1,2 +1,2 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+Something's rotten in the state of Denmark.
+		-- Shakespeare
