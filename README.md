@@ -1,1 +1,2 @@
-You will receive a legacy which will place you above want.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
