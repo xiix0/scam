@@ -1,1 +1,2 @@
-Be security conscious -- National defense is at stake.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
