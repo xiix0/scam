@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+You display the wonderful traits of charm and courtesy.
