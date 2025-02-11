@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+You will receive a legacy which will place you above want.
