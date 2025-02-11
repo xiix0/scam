@@ -1,2 +1,2 @@
-"Life, loathe it or ignore it, you can't like it."
-		-- Marvin, "Hitchhiker's Guide to the Galaxy"
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
