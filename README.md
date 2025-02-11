@@ -1,1 +1,1 @@
-Your present plans will be successful.
+Today is the last day of your life so far.
