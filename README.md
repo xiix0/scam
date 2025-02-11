@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+You are fairminded, just and loving.
