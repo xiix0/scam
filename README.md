@@ -1,2 +1,2 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
