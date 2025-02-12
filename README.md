@@ -1,3 +1,1 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+You seek to shield those you love and you like the role of the provider.
