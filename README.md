@@ -1,5 +1,3 @@
-Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
-sword wielding purple fish glued to Harley-Davidson motorcycles.
-
-Oh, and have a nice day!
-		-- Bryce Nesbitt '84
+One of the most striking differences between a cat and a lie is that a cat has
+only nine lives.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
