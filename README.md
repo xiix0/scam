@@ -1,5 +1,1 @@
-Knock, knock!
-	Who's there?
-Sam and Janet.
-	Sam and Janet who?
-Sam and Janet Evening...
+You are so boring that when I see you my feet go to sleep.
