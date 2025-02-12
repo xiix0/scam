@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+Tuesday is the Wednesday of the rest of your life.
