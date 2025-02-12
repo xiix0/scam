@@ -1,1 +1,2 @@
-Tuesday is the Wednesday of the rest of your life.
+You'll wish that you had done some of the hard things when they were easier
+to do.
