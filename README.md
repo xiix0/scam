@@ -1,2 +1,3 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
