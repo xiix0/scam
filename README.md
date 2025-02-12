@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+Conscience doth make cowards of us all.
+		-- Shakespeare
