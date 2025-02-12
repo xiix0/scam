@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of new developments.
+A visit to a strange place will bring fresh work.
