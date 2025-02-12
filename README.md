@@ -1,2 +1,2 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+I have never let my schooling interfere with my education.
+		-- Mark Twain
