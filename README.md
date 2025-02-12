@@ -1,3 +1,3 @@
-Grief can take care of itself; but to get the full value of a joy you must
-have somebody to divide it with.
-		-- Mark Twain
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
+A:	The Royal Canadian Mounted Police.
+Q:	What was the greatest achievement in taxidermy?
