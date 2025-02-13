@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+You work very hard.  Don't try to think as well.
