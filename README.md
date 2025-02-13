@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+You like to form new friendships and make new acquaintances.
