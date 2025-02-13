@@ -1,3 +1,2 @@
-Q:	What do you call the scratches that you get when a female
-	sheep bites you?
-A:	Ewe nicks.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
