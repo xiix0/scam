@@ -1,1 +1,2 @@
-You don't become a failure until you're satisfied with being one.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
