@@ -1,3 +1,2 @@
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
-Some think it is the voice of God.
-		-- Mark Twain
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
