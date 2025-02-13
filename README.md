@@ -1,1 +1,3 @@
-You will be advanced socially, without any special effort on your part.
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
