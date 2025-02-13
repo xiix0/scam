@@ -1,1 +1,2 @@
-You are dishonest, but never to the point of hurting a friend.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
