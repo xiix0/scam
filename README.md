@@ -1,5 +1,6 @@
-Q:	How many existentialists does it take to screw in a light bulb?
-A:	Two.  One to screw it in and one to observe how the light bulb
-	itself symbolizes a single incandescent beacon of subjective
-	reality in a netherworld of endless absurdity reaching out toward a
-	maudlin cosmos of nothingness.
+The bay-trees in our country are all wither'd
+And meteors fright the fixed stars of heaven;
+The pale-faced moon looks bloody on the earth
+And lean-look'd prophets whisper fearful change.
+These signs forerun the death or fall of kings.
+		-- Wm. Shakespeare, "Richard II"
