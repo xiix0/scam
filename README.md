@@ -1,2 +1,1 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+You don't become a failure until you're satisfied with being one.
