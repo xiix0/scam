@@ -1,3 +1,5 @@
-This is the first age that's paid much attention to the future, which is a
-little ironic since we may not have one.
-		-- Arthur Clarke
+The notes blatted skyward as they rose over the Canada geese, feathered
+rumps mooning the day, webbed appendages frantically pedaling unseen
+bicycles in their search for sustenance, driven by cruel Nature's maxim,
+'Ya wanna eat, ya gotta work,' and at last I knew Pittsburgh.
+		-- Winning sentence, 1987 Bulwer-Lytton bad fiction contest.
