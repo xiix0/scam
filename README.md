@@ -1,2 +1,3 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+Its name is Public Opinion.  It is held in reverence.  It settles everything.
+Some think it is the voice of God.
+		-- Mark Twain
