@@ -1,1 +1,2 @@
-You can rent this space for only $5 a week.
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
