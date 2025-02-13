@@ -1,1 +1,2 @@
-You have a strong desire for a home and your family interests come first.
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
