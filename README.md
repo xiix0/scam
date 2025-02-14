@@ -1,1 +1,1 @@
-You now have Asian Flu.
+You will contract a rare disease.
