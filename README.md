@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+Tomorrow will be cancelled due to lack of interest.
