@@ -1,1 +1,2 @@
-Domestic happiness and faithful friends.
+I'll burn my books.
+		-- Christopher Marlowe
