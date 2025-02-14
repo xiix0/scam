@@ -1,1 +1,2 @@
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
