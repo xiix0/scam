@@ -1,2 +1,1 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+You don't become a failure until you're satisfied with being one.
