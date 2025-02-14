@@ -1,1 +1,2 @@
-Beware of Bigfoot!
+I'll burn my books.
+		-- Christopher Marlowe
