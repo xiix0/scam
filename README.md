@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+You now have Asian Flu.
