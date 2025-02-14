@@ -1,2 +1,1 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+Excellent time to become a missing person.
