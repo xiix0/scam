@@ -1,1 +1,1 @@
-You will contract a rare disease.
+Communicate!  It can't make things any worse.
