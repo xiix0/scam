@@ -1,2 +1,2 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+You're growing out of some of your problems, but there are others that
+you're growing into.
