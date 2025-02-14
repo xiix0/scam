@@ -1,1 +1,2 @@
-You will inherit millions of dollars.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
