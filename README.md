@@ -1,1 +1,2 @@
-Try to value useful qualities in one who loves you.
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
