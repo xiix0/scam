@@ -1,2 +1,3 @@
-You're growing out of some of your problems, but there are others that
-you're growing into.
+Consider well the proportions of things.  It is better to be a young June-bug
+than an old bird of paradise.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
