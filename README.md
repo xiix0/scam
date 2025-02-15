@@ -1,3 +1,2 @@
-The only way to keep your health is to eat what you don't want, drink what
-you don't like, and do what you'd rather not.
+Be careful of reading health books, you might die of a misprint.
 		-- Mark Twain
