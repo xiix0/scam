@@ -1,1 +1,1 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Don't you feel more like you do now than you did when you came in?
