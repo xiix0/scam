@@ -1,1 +1,1 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Think twice before speaking, but don't say "think think click click".
