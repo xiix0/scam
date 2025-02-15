@@ -1,2 +1,2 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
