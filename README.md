@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+Change your thoughts and you change your world.
