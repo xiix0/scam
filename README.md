@@ -1,1 +1,1 @@
-Are you a turtle?
+An avocado-tone refrigerator would look good on your resume.
