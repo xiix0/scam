@@ -1,3 +1,2 @@
-In the Spring, I have counted 136 different kinds of weather inside of
-24 hours.
-		-- Mark Twain, on New England weather
+Q:	How many IBM 370's does it take to execute a job?
+A:	Four, three to hold it down, and one to rip its head off.
