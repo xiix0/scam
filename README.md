@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
