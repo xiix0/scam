@@ -1,2 +1,3 @@
-Q:	What's the difference between a duck and an elephant?
-A:	You can't get down off an elephant.
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
