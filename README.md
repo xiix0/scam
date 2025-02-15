@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
