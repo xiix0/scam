@@ -1,2 +1,2 @@
-Be careful of reading health books, you might die of a misprint.
+It usually takes more than three weeks to prepare a good impromptu speech.
 		-- Mark Twain
