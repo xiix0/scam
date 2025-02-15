@@ -1,2 +1,3 @@
-A is for Apple.
-		-- Hester Pryne
+Questionable day.
+
+Ask somebody something.
