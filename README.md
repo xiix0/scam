@@ -1,1 +1,1 @@
-You will have long and healthy life.
+Another good night not to sleep in a eucalyptus tree.
