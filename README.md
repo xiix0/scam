@@ -1,2 +1,2 @@
-The first thing we do, let's kill all the lawyers.
-		-- Wm. Shakespeare, "Henry VI", Part IV
+Q:	Do you know what the death rate around here is?
+A:	One per person.
