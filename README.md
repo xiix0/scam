@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
