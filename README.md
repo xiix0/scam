@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+Never look up when dragons fly overhead.
