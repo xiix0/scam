@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+Let me put it this way: today is going to be a learning experience.
