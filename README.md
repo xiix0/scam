@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+You are fighting for survival in your own sweet and gentle way.
