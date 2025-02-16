@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+You have an unusual understanding of the problems of human relationships.
