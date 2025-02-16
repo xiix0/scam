@@ -1,2 +1,1 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+Best of all is never to have been born.  Second best is to die soon.
