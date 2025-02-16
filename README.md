@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+So this is it.  We're going to die.
