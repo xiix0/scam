@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
