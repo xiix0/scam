@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+Your lucky number has been disconnected.
