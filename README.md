@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+You will remember something that you should not have forgotten.
