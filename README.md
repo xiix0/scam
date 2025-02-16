@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+You will be held hostage by a radical group.
