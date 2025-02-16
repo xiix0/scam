@@ -1,1 +1,1 @@
-You should go home.
+Your lover will never wish to leave you.
