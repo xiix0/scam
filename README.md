@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+If your life was a horse, you'd have to shoot it.
