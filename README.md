@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+You are number 6!  Who is number one?
