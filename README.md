@@ -1,5 +1,3 @@
-The notes blatted skyward as they rose over the Canada geese, feathered
-rumps mooning the day, webbed appendages frantically pedaling unseen
-bicycles in their search for sustenance, driven by cruel Nature's maxim,
-'Ya wanna eat, ya gotta work,' and at last I knew Pittsburgh.
-		-- Winning sentence, 1987 Bulwer-Lytton bad fiction contest.
+Your manuscript is both good and original, but the part that is good is not
+original and the part that is original is not good.
+		-- Samuel Johnson
