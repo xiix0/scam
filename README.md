@@ -1,2 +1,3 @@
-Q:	How many supply-siders does it take to change a light bulb?
-A:	None.  The darkness will cause the light bulb to change by itself.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
