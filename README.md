@@ -1,2 +1,4 @@
-Q:	Why do mountain climbers rope themselves together?
-A:	To prevent the sensible ones from going home.
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
