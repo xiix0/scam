@@ -1,2 +1,1 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+It may or may not be worthwhile, but it still has to be done.
