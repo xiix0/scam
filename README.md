@@ -1,1 +1,3 @@
-You attempt things that you do not even plan because of your extreme stupidity.
+Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
+are not the person involved.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
