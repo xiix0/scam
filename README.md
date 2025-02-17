@@ -1,1 +1,2 @@
-Beware the one behind you.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
