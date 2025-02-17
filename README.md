@@ -1,1 +1,1 @@
-Advancement in position.
+You have been selected for a secret mission.
