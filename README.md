@@ -1,1 +1,2 @@
-You will be winged by an anti-aircraft battery.
+Q:	Are we not men?
+A:	We are Vaxen.
