@@ -1,2 +1,2 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
