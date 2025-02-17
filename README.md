@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
