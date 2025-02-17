@@ -1,1 +1,1 @@
-You will gain money by an illegal action.
+You will probably marry after a very brief courtship.
