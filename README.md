@@ -1,1 +1,2 @@
-Love is in the offing.  Be affectionate to one who adores you.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
