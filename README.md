@@ -1,1 +1,2 @@
-You look like a million dollars.  All green and wrinkled.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
