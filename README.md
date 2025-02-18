@@ -1,2 +1,2 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
-		-- Mark Twain
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
