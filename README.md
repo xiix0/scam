@@ -1,1 +1,1 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Let me put it this way: today is going to be a learning experience.
