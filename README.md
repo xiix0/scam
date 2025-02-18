@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+Your object is to save the world, while still leading a pleasant life.
