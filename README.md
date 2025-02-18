@@ -1,1 +1,3 @@
-If you stand on your head, you will get footprints in your hair.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
+A:	The Halls of Montezuma and the Shores of Tripoli.
+Q:	Name two families whose kids won't join the Marines.
