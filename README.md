@@ -1,1 +1,2 @@
-Your object is to save the world, while still leading a pleasant life.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
