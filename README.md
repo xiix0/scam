@@ -1,1 +1,3 @@
-Your business will go through a period of considerable expansion.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
