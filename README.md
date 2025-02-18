@@ -1,2 +1,2 @@
-Be careful of reading health books, you might die of a misprint.
+All generalizations are false, including this one.
 		-- Mark Twain
