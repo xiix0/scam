@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+Perfect day for scrubbing the floor and other exciting things.
