@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
