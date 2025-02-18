@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+If you stand on your head, you will get footprints in your hair.
