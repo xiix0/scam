@@ -1,2 +1,1 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+Expect the worst, it's the least you can do.
