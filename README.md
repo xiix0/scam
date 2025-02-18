@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Love is in the offing.  Be affectionate to one who adores you.
