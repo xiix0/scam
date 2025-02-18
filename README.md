@@ -1,2 +1,2 @@
-What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
