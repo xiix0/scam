@@ -1,1 +1,3 @@
-Your mode of life will be changed for the better because of new developments.
+You may my glories and my state dispose,
+But not my griefs; still am I king of those.
+		-- William Shakespeare, "Richard II"
