@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+If you sow your wild oats, hope for a crop failure.
