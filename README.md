@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+You two ought to be more careful--your love could drag on for years and years.
