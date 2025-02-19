@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
