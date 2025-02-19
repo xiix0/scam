@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+When in doubt, tell the truth.
+		-- Mark Twain
