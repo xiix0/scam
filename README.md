@@ -1,1 +1,1 @@
-You two ought to be more careful--your love could drag on for years and years.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
