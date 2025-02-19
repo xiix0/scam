@@ -1,1 +1,2 @@
-Keep it short for pithy sake.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
