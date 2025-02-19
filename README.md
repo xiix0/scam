@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+That secret you've been guarding, isn't.
