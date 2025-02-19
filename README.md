@@ -1,1 +1,1 @@
-In the stairway of life, you'd best take the elevator.
+Ships are safe in harbor, but they were never meant to stay there.
