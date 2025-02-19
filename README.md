@@ -1,2 +1,1 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+Your object is to save the world, while still leading a pleasant life.
