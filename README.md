@@ -1,1 +1,1 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Tomorrow will be cancelled due to lack of interest.
