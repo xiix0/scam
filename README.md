@@ -1,1 +1,2 @@
-You will step on the night soil of many countries.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
