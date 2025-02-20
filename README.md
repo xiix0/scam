@@ -1,2 +1,3 @@
-The first thing we do, let's kill all the lawyers.
-		-- Wm. Shakespeare, "Henry VI", Part IV
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
