@@ -1,1 +1,2 @@
-Good news from afar can bring you a welcome visitor.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
