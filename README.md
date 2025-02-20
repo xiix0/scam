@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+A day for firm decisions!!!!!  Or is it?
