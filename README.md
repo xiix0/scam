@@ -1,2 +1,5 @@
-Always the dullness of the fool is the whetstone of the wits.
-		-- William Shakespeare, "As You Like It"
+Q:	How many surrealists does it take to change a light bulb?
+A:	Two, one to hold the giraffe, and the other to fill the bathtub
+	with brightly colored machine tools.
+
+	[Surrealist jokes just aren't my cup of fur.  Ed.]
