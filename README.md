@@ -1,1 +1,2 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
