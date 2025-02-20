@@ -1,1 +1,2 @@
-Beware of a tall black man with one blond shoe.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
