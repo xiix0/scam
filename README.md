@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
