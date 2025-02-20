@@ -1,1 +1,2 @@
-You will contract a rare disease.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
