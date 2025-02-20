@@ -1,2 +1,3 @@
-Q:	Why do firemen wear red suspenders?
-A:	To conform with departmental regulations concerning uniform dress.
+Noise proves nothing.  Often a hen who has merely laid an egg cackles
+as if she laid an asteroid.
+		-- Mark Twain
