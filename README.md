@@ -1,1 +1,1 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Truth will out this morning.  (Which may really mess things up.)
