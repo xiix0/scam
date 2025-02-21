@@ -1,1 +1,2 @@
-You will receive a legacy which will place you above want.
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
