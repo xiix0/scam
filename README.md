@@ -1,1 +1,1 @@
-You have no real enemies.
+You need more time; and you probably always will.
