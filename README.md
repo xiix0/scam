@@ -1,1 +1,2 @@
-You will give someone a piece of your mind, which you can ill afford.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
