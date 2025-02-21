@@ -1,3 +1,2 @@
-You may my glories and my state dispose,
-But not my griefs; still am I king of those.
-		-- William Shakespeare, "Richard II"
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
