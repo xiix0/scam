@@ -1,3 +1,3 @@
-In a museum in Havana, there are two skulls of Christopher Columbus,
-"one when he was a boy and one when he was a man."
-		-- Mark Twain
+Q:	How many bureaucrats does it take to screw in a light bulb?
+A:	Two.  One to assure everyone that everything possible is being
+	done while the other screws the bulb into the water faucet.
