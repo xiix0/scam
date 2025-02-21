@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+You'll feel much better once you've given up hope.
