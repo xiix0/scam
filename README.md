@@ -1,1 +1,2 @@
-Beware the one behind you.
+Conscience doth make cowards of us all.
+		-- Shakespeare
