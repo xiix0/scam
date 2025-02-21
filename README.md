@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+You're not my type.  For that matter, you're not even my species!!!
