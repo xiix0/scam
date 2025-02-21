@@ -1,1 +1,1 @@
-Don't feed the bats tonight.
+You recoil from the crude; you tend naturally toward the exquisite.
