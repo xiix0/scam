@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+You will live a long, healthy, happy life and make bags of money.
