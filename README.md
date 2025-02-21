@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
