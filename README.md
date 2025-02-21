@@ -1,2 +1,2 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+Q:	What is purple and commutes?
+A:	An Abelian grape.
