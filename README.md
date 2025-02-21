@@ -1,2 +1,1 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+You will give someone a piece of your mind, which you can ill afford.
