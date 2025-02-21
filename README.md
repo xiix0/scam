@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+You will reach the highest possible point in your business or profession.
