@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
-A:	Dr. Livingston I. Presume.
-Q:	What's Dr. Presume's full name?
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
