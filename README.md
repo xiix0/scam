@@ -1,2 +1,2 @@
-Kindness is a language which the deaf can hear and the blind can read.
+Always do right.  This will gratify some people and astonish the rest.
 		-- Mark Twain
