@@ -1,1 +1,1 @@
-You are capable of planning your future.
+Generosity and perfection are your everlasting goals.
