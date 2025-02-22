@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+It's lucky you're going so slowly, because you're going in the wrong direction.
