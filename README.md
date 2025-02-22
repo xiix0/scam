@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
