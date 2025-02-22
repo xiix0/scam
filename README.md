@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Live in a world of your own, but always welcome visitors.
