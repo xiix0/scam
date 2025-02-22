@@ -1,2 +1,1 @@
-"... all the modern inconveniences ..."
-		-- Mark Twain
+You are magnetic in your bearing.
