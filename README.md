@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+Communicate!  It can't make things any worse.
