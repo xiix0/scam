@@ -1,7 +1,5 @@
-Sheriff Chameleotoptor sighed with an air of weary sadness, and then
-turned to Doppelgutt and said 'The Senator must really have been on a
-bender this time -- he left a party in Cleveland, Ohio, at 11:30 last
-night, and they found his car this morning in the smokestack of a British
-aircraft carrier in the Formosa Straits.'
-		-- Grand Panjandrum's Special Award, 1985 Bulwer-Lytton
-		   bad fiction contest.
+When I was younger, I could remember anything, whether it had happened
+or not; but my faculties are decaying now and soon I shall be so I
+cannot remember any but the things that never happened.  It is sad to
+go to pieces like this but we all have to do it.
+		-- Mark Twain
