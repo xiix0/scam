@@ -1,1 +1,2 @@
-Day of inquiry.  You will be subpoenaed.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
