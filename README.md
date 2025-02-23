@@ -1,1 +1,2 @@
-Everything that you know is wrong, but you can be straightened out.
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
