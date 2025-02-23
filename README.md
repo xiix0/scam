@@ -1,1 +1,2 @@
-The time is right to make new friends.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
