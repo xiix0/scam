@@ -1,2 +1,1 @@
-English literature's performing flea.
-		-- Sean O'Casey on P. G. Wodehouse
+Your business will go through a period of considerable expansion.
