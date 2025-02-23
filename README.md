@@ -1,1 +1,2 @@
-You could live a better life, if you had a better mind and a better body.
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
