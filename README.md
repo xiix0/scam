@@ -1,14 +1,7 @@
-Gone With The Wind LITE(tm)
-	-- by Margaret Mitchell
-
-	A woman only likes men she can't have and the South gets trashed.
-
-Gift of the Magi LITE(tm)
-	-- by O. Henry
-
-	A husband and wife forget to register their gift preferences.
-
-The Old Man and the Sea LITE(tm)
-	-- by Ernest Hemingway
-
-	An old man goes fishing, but doesn't have much luck.
+Awash with unfocused desire, Everett twisted the lobe of his one remaining
+ear and felt the presence of somebody else behind him, which caused terror
+to push through his nervous system like a flash flood roaring down the
+mid-fork of the Feather River before the completion of the Oroville Dam
+in 1959.
+		-- Grand Panjandrum's Special Award, 1984 Bulwer-Lytton
+		   bad fiction contest.
