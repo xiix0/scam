@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
