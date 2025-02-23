@@ -1,2 +1,2 @@
-Q:	How did you get into artificial intelligence?
-A:	Seemed logical -- I didn't have any real intelligence.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
