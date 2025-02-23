@@ -1,1 +1,1 @@
-Your business will assume vast proportions.
+The time is right to make new friends.
