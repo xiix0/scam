@@ -1,2 +1,2 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+Q:	What's the difference between a duck and an elephant?
+A:	You can't get down off an elephant.
