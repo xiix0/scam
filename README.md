@@ -1,2 +1,2 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
