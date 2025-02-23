@@ -1,1 +1,2 @@
-You will be recognized and honored as a community leader.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
