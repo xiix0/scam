@@ -1,1 +1,1 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+Do nothing unless you must, and when you must act -- hesitate.
