@@ -1,2 +1,1 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
