@@ -1,2 +1,2 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
