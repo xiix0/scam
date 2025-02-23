@@ -1,2 +1,1 @@
-He that is giddy thinks the world turns round.
-		-- William Shakespeare, "The Taming of the Shrew"
+You will obey or molten silver will be poured into your ears.
