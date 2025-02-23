@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+You have literary talent that you should take pains to develop.
