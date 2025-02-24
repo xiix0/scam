@@ -1,2 +1,2 @@
-Extreme fear can neither fight nor fly.
-		-- William Shakespeare, "The Rape of Lucrece"
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
