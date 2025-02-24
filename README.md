@@ -1,2 +1,1 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+You don't become a failure until you're satisfied with being one.
