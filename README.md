@@ -1,1 +1,1 @@
-Your present plans will be successful.
+You will be the victim of a bizarre joke.
