@@ -1,1 +1,2 @@
-Long life is in store for you.
+All generalizations are false, including this one.
+		-- Mark Twain
