@@ -1,1 +1,2 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+The first thing we do, let's kill all the lawyers.
+		-- Wm. Shakespeare, "Henry VI", Part IV
