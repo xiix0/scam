@@ -1,2 +1,1 @@
-Fine day for friends.
-So-so day for you.
+You will forget that you ever knew me.
