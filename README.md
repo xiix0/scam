@@ -1,1 +1,2 @@
-You will be the last person to buy a Chrysler.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
