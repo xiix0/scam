@@ -1,2 +1,3 @@
-If you tell the truth you don't have to remember anything.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
 		-- Mark Twain
