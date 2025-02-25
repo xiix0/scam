@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Be careful!  UGLY strikes 9 out of 10!
