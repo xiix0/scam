@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+You may be recognized soon.  Hide.
