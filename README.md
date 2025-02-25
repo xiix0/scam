@@ -1,3 +1,2 @@
-Q:	How many bureaucrats does it take to screw in a light bulb?
-A:	Two.  One to assure everyone that everything possible is being
-	done while the other screws the bulb into the water faucet.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
