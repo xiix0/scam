@@ -1,2 +1,1 @@
-Alas, how love can trifle with itself!
-		-- William Shakespeare, "The Two Gentlemen of Verona"
+Tuesday After Lunch is the cosmic time of the week.
