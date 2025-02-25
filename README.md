@@ -1,2 +1,2 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+If you tell the truth you don't have to remember anything.
+		-- Mark Twain
