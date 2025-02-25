@@ -1,1 +1,2 @@
-Your fly might be open (but don't check it just now).
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
