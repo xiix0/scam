@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
