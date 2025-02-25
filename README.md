@@ -1,2 +1,1 @@
-Kiss me, Kate, we will be married o' Sunday.
-		-- William Shakespeare, "The Taming of the Shrew"
+You'll be called to a post requiring ability in handling groups of people.
