@@ -1,1 +1,2 @@
-Your lover will never wish to leave you.
+Conscience doth make cowards of us all.
+		-- Shakespeare
