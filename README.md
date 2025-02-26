@@ -1,2 +1,2 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
