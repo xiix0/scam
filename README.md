@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
