@@ -1,2 +1,2 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
