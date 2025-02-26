@@ -1,1 +1,1 @@
-Try to have as good a life as you can under the circumstances.
+You will be recognized and honored as a community leader.
