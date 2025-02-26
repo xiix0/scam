@@ -1,1 +1,2 @@
-You don't become a failure until you're satisfied with being one.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
