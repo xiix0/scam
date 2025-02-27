@@ -1,1 +1,2 @@
-You will become rich and famous unless you don't.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
