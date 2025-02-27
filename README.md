@@ -1,1 +1,3 @@
-You're currently going through a difficult transition period called "Life."
+It is by the fortune of God that, in this country, we have three benefits:
+freedom of speech, freedom of thought, and the wisdom never to use either.
+		-- Mark Twain
