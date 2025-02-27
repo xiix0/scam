@@ -1,1 +1,3 @@
-You have literary talent that you should take pains to develop.
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
