@@ -1,1 +1,1 @@
-Beware of a tall black man with one blond shoe.
+Your own qualities will help prevent your advancement in the world.
