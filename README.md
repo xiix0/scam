@@ -1,1 +1,1 @@
-Is that really YOU that is reading this?
+If you stand on your head, you will get footprints in your hair.
