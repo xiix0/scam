@@ -1,1 +1,2 @@
-You have a truly strong individuality.
+The Public is merely a multiplied "me."
+		-- Mark Twain
