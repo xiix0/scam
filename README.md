@@ -1,3 +1,2 @@
-Zounds!  I was never so bethumped with words
-since I first called my brother's father dad.
-		-- William Shakespeare, "Kind John"
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
