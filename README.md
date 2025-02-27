@@ -1,1 +1,1 @@
-You'll never be the man your mother was!
+Your heart is pure, and your mind clear, and your soul devout.
