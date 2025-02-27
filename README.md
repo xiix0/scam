@@ -1,2 +1,2 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
