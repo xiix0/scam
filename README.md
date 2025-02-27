@@ -1,1 +1,5 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Q:	How does the Polish Constitution differ from the American?
+A:	Under the Polish Constitution citizens are guaranteed freedom of
+	speech, but under the United States constitution they are
+	guaranteed freedom after speech.
+		-- being told in Poland, 1987
