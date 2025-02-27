@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+Too much is just enough.
+		-- Mark Twain, on whiskey
