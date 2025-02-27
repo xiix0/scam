@@ -1,1 +1,2 @@
-You will be audited by the Internal Revenue Service.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
