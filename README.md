@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+You will obey or molten silver will be poured into your ears.
