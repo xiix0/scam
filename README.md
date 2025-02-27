@@ -1,1 +1,2 @@
-Best of all is never to have been born.  Second best is to die soon.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
