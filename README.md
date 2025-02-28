@@ -1,2 +1,1 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+Don't relax!  It's only your tension that's holding you together.
