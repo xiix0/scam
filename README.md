@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
