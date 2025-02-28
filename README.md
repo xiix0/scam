@@ -1,1 +1,2 @@
-You are a fluke of the universe; you have no right to be here.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
