@@ -1,1 +1,1 @@
-Condense soup, not books!
+Do something unusual today.  Pay a bill.
