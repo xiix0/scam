@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+You will win success in whatever calling you adopt.
