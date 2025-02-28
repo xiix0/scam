@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+You don't become a failure until you're satisfied with being one.
