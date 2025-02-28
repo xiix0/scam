@@ -1,1 +1,2 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
