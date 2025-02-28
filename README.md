@@ -1,2 +1,1 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+Future looks spotty.  You will spill soup in late evening.
