@@ -1,1 +1,1 @@
-Future looks spotty.  You will spill soup in late evening.
+Don't you wish you had more energy... or less ambition?
