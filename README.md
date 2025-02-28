@@ -1,1 +1,1 @@
-You enjoy the company of other people.
+You can create your own opportunities this week.  Blackmail a senior executive.
