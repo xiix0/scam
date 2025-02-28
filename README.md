@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+You have Egyptian flu: you're going to be a mummy.
