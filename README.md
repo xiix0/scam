@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Good day to deal with people in high places; particularly lonely stewardesses.
