@@ -1,1 +1,3 @@
-An exotic journey in downtown Newark is in your future.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
