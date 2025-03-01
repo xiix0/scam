@@ -1,1 +1,2 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
