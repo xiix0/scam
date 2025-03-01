@@ -1,2 +1,1 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+You will always get the greatest recognition for the job you least like.
