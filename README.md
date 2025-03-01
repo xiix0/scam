@@ -1,1 +1,2 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
