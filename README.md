@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+You will be recognized and honored as a community leader.
