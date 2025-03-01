@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Do not sleep in a eucalyptus tree tonight.
