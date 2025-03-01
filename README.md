@@ -1,1 +1,2 @@
-You will contract a rare disease.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
