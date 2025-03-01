@@ -1,1 +1,2 @@
-You will visit the Dung Pits of Glive soon.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
