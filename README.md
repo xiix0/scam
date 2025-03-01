@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
