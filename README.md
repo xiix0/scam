@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+You will give someone a piece of your mind, which you can ill afford.
