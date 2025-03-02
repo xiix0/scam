@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+You will always get the greatest recognition for the job you least like.
