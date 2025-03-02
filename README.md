@@ -1,2 +1,2 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
