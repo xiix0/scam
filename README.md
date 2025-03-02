@@ -1,1 +1,2 @@
-You dialed 5483.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
