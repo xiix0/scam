@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+What happened last night can happen again.
