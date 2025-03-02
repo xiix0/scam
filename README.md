@@ -1,2 +1,1 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+Someone whom you reject today, will reject you tomorrow.
