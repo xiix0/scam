@@ -1,1 +1,1 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+Your life would be very empty if you had nothing to regret.
