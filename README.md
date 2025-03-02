@@ -1,2 +1,3 @@
-Q:	What do you get when you cross a mobster with an international standard?
-A:	You get someone who makes you an offer that you can't understand!
+When I reflect upon the number of disagreeable people who I know who have gone
+to a better world, I am moved to lead a different life.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
