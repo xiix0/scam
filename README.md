@@ -1,1 +1,2 @@
-Of course you have a purpose -- to find a purpose.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
