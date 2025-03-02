@@ -1,3 +1,2 @@
-In the Spring, I have counted 136 different kinds of weather inside of
-24 hours.
-		-- Mark Twain, on New England weather
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
