@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
