@@ -1,1 +1,2 @@
-Q:	How do you keep a moron in suspense?
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
