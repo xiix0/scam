@@ -1,1 +1,2 @@
-You will be the last person to buy a Chrysler.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
