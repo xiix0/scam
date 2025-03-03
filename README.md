@@ -1,2 +1,1 @@
-	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
+Try to get all of your posthumous medals in advance.
