@@ -1,3 +1,2 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
