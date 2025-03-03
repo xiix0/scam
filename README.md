@@ -1,3 +1,3 @@
-If one cannot enjoy reading a book over and over again, there is no use
-in reading it at all.
-		-- Oscar Wilde
+It were not best that we should all think alike; it is difference of opinion
+that makes horse-races.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
