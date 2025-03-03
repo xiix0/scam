@@ -1,2 +1,2 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+Q:	Do you know what the death rate around here is?
+A:	One per person.
