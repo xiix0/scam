@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
