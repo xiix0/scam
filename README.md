@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+You will be the last person to buy a Chrysler.
