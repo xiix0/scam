@@ -1,2 +1,3 @@
-	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
