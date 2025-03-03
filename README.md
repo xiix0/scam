@@ -1,1 +1,2 @@
-Your true value depends entirely on what you are compared with.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
