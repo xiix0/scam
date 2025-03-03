@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+Your nature demands love and your happiness depends on it.
