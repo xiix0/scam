@@ -1,3 +1,3 @@
-Reader, suppose you were an idiot.  And suppose you were a member of
-Congress.  But I repeat myself.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
 		-- Mark Twain
