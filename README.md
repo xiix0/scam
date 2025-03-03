@@ -1,3 +1,2 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
