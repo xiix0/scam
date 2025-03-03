@@ -1,1 +1,3 @@
-Your mode of life will be changed for the better because of new developments.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
