@@ -1,6 +1,4 @@
-Even the clearest and most perfect circumstantial evidence is likely to be at
-fault, after all, and therefore ought to be received with great caution.  Take
-the case of any pencil, sharpened by any woman; if you have witnesses, you will
-find she did it with a knife; but if you take simply the aspect of the pencil,
-you will say that she did it with her teeth.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	Why don't Scotsmen ever have coffee the way they like it?
+A:	Well, they like it with two lumps of sugar.  If they drink
+	it at home, they only take one, and if they drink it while
+	visiting, they always take three.
