@@ -1,2 +1,2 @@
-Q:	What is the difference between Texas and yogurt?
-A:	Yogurt has culture.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
