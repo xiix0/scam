@@ -1,2 +1,1 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+Look afar and see the end from the beginning.
