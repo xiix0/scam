@@ -1,3 +1,2 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
