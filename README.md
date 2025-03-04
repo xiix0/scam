@@ -1,3 +1,2 @@
-Someone is speaking well of you.
-
-How unusual!
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
