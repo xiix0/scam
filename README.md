@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Your life would be very empty if you had nothing to regret.
