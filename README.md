@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+"... all the modern inconveniences ..."
+		-- Mark Twain
