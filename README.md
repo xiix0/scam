@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+You like to form new friendships and make new acquaintances.
