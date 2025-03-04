@@ -1,1 +1,2 @@
-Look afar and see the end from the beginning.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
