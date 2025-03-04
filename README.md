@@ -1,1 +1,3 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
