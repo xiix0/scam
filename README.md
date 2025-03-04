@@ -1,1 +1,2 @@
-You're currently going through a difficult transition period called "Life."
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
