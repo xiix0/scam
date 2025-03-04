@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+A tall, dark stranger will have more fun than you.
