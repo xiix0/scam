@@ -1,2 +1,1 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+Be careful!  UGLY strikes 9 out of 10!
