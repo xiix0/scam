@@ -1,2 +1,1 @@
-When one burns one's bridges, what a very nice fire it makes.
-		-- Dylan Thomas
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
