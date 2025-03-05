@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
