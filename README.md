@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+You have an ambitious nature and may make a name for yourself.
