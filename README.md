@@ -1,2 +1,1 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+You will inherit millions of dollars.
