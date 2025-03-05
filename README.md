@@ -1,3 +1,1 @@
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
-Some think it is the voice of God.
-		-- Mark Twain
+You're not my type.  For that matter, you're not even my species!!!
