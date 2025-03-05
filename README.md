@@ -1,1 +1,2 @@
-Alimony and bribes will engage a large share of your wealth.
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
