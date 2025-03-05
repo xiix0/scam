@@ -1,2 +1,1 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+Don't look now, but there is a multi-legged creature on your shoulder.
