@@ -1,2 +1,1 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+Stay away from hurricanes for a while.
