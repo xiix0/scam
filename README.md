@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+You will become rich and famous unless you don't.
