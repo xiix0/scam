@@ -1,1 +1,2 @@
-A few hours grace before the madness begins again.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
