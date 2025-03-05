@@ -1,2 +1,2 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
