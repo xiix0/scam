@@ -1,1 +1,3 @@
-Your reasoning powers are good, and you are a fairly good planner.
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
