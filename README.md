@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
