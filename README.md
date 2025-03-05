@@ -1,2 +1,2 @@
-Q:	What is the difference between Texas and yogurt?
-A:	Yogurt has culture.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
