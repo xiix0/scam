@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
