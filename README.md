@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
