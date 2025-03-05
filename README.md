@@ -1,1 +1,1 @@
-Is that really YOU that is reading this?
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
