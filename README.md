@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+You have had a long-term stimulation relative to business.
