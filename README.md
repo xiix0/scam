@@ -1,2 +1,1 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
