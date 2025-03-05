@@ -1,2 +1,2 @@
-Extreme fear can neither fight nor fly.
-		-- William Shakespeare, "The Rape of Lucrece"
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
