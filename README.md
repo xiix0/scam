@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+You definitely intend to start living sometime soon.
