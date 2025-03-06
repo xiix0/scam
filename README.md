@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+An avocado-tone refrigerator would look good on your resume.
