@@ -1,1 +1,2 @@
-There will be big changes for you but you will be happy.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
