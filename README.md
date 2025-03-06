@@ -1,1 +1,3 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+Q:	Why do the police always travel in threes?
+A:	One to do the reading, one to do the writing, and the other keeps
+	an eye on the two intellectuals.
