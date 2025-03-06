@@ -1,2 +1,1 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+You will be awarded the Nobel Peace Prize... posthumously.
