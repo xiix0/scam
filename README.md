@@ -1,1 +1,3 @@
-Today is National Existential Ennui Awareness Day.
+Questionable day.
+
+Ask somebody something.
