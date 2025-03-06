@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
