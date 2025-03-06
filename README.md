@@ -1,2 +1,1 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
