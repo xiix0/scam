@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
