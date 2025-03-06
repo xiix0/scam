@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+You have an unusual understanding of the problems of human relationships.
