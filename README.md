@@ -1,1 +1,2 @@
-You will never know hunger.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
