@@ -1,1 +1,2 @@
-Of course you have a purpose -- to find a purpose.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
