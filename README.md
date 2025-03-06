@@ -1,1 +1,2 @@
-You will be recognized and honored as a community leader.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
