@@ -1,2 +1,2 @@
-The abuse of greatness is when it disjoins remorse from power.
-		-- William Shakespeare, "Julius Caesar"
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
