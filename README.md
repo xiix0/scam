@@ -1,1 +1,1 @@
-You have a strong appeal for members of your own sex.
+An exotic journey in downtown Newark is in your future.
