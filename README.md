@@ -1,3 +1,1 @@
-"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
-for you and me."
-		-- J. R. R. Tolkien
+You will always get the greatest recognition for the job you least like.
