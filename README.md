@@ -1,1 +1,3 @@
-You'll feel much better once you've given up hope.
+Why is it that we rejoice at a birth and grieve at a funeral?  It is because we
+are not the person involved.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
