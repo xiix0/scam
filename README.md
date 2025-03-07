@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
