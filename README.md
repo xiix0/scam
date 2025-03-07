@@ -1,1 +1,1 @@
-You will be reincarnated as a toad; and you will be much happier.
+You can rent this space for only $5 a week.
