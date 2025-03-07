@@ -1,2 +1,2 @@
-There is a great discovery still to be made in Literature: that of
-paying literary men by the quantity they do NOT write.
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
