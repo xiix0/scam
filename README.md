@@ -1,2 +1,2 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
