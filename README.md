@@ -1,1 +1,2 @@
-Tomorrow will be cancelled due to lack of interest.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
