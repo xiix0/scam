@@ -1,1 +1,1 @@
-You're at the end of the road again.
+Ships are safe in harbor, but they were never meant to stay there.
