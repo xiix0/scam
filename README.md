@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+A few hours grace before the madness begins again.
