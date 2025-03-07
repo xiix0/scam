@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+Exercise caution in your daily affairs.
