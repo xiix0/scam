@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+Q:	How do you keep a moron in suspense?
