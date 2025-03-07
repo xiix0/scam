@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+You will reach the highest possible point in your business or profession.
