@@ -1,1 +1,2 @@
-You will be successful in love.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
