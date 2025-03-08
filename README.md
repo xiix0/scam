@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
