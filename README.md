@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+Snow Day -- stay home.
