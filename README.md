@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+You will live a long, healthy, happy life and make bags of money.
