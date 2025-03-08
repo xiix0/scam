@@ -1,1 +1,2 @@
-You will be surprised by a loud noise.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
