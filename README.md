@@ -1,1 +1,1 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+You will become rich and famous unless you don't.
