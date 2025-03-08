@@ -1,1 +1,2 @@
-Advancement in position.
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
