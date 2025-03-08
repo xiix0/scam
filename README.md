@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+Your depth of comprehension may tend to make you lax in worldly ways.
