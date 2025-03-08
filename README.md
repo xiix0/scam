@@ -1,2 +1,3 @@
-No group of professionals meets except to conspire against the public at large.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
 		-- Mark Twain
