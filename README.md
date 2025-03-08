@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
