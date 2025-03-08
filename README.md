@@ -1,2 +1,1 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+Don't read any sky-writing for the next two weeks.
