@@ -1,2 +1,1 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+A tall, dark stranger will have more fun than you.
