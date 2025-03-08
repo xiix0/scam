@@ -1,1 +1,2 @@
-Be careful!  UGLY strikes 9 out of 10!
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
