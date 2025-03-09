@@ -1,1 +1,3 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+Noise proves nothing.  Often a hen who has merely laid an egg cackles
+as if she laid an asteroid.
+		-- Mark Twain
