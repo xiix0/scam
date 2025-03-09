@@ -1,1 +1,2 @@
-Perfect day for scrubbing the floor and other exciting things.
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
