@@ -1,2 +1,3 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+It has long been an axiom of mine that the little things are infinitely
+the most important.
+		-- Sir Arthur Conan Doyle, "A Case of Identity"
