@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+Good news.  Ten weeks from Friday will be a pretty good day.
