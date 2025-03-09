@@ -1,1 +1,1 @@
-You have had a long-term stimulation relative to business.
+You will have long and healthy life.
