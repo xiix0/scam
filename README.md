@@ -1,1 +1,2 @@
-Never look up when dragons fly overhead.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
