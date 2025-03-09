@@ -1,1 +1,2 @@
-You'll feel much better once you've given up hope.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
