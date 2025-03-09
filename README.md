@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
