@@ -1,1 +1,1 @@
-You have many friends and very few living enemies.
+It may or may not be worthwhile, but it still has to be done.
