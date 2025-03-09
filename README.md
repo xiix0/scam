@@ -1,3 +1,3 @@
-It has long been an axiom of mine that the little things are infinitely
-the most important.
-		-- Sir Arthur Conan Doyle, "A Case of Identity"
+A classic is something that everyone wants to have read
+and nobody wants to read.
+		-- Mark Twain, "The Disappearance of Literature"
