@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
