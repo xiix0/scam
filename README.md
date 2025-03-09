@@ -1,1 +1,1 @@
-You have had a long-term stimulation relative to business.
+Your heart is pure, and your mind clear, and your soul devout.
