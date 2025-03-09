@@ -1,2 +1,1 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+You look like a million dollars.  All green and wrinkled.
