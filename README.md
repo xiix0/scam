@@ -1,1 +1,2 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
