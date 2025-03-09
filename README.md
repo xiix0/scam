@@ -1,1 +1,2 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
