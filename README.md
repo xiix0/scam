@@ -1,2 +1,2 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+Wagner's music is better than it sounds.
+		-- Mark Twain
