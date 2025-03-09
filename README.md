@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+Generosity and perfection are your everlasting goals.
