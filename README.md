@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+You're being followed.  Cut out the hanky-panky for a few days.
