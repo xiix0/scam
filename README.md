@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
