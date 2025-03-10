@@ -1,1 +1,2 @@
-You are capable of planning your future.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
