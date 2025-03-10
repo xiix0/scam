@@ -1,2 +1,2 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
