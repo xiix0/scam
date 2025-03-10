@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+Be cautious in your daily affairs.
