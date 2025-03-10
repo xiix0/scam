@@ -1,2 +1,2 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
