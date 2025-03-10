@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+You have a truly strong individuality.
