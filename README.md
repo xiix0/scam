@@ -1,2 +1,2 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
