@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+Someone whom you reject today, will reject you tomorrow.
