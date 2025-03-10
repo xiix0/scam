@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
