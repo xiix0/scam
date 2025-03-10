@@ -1,1 +1,1 @@
-You've been leading a dog's life.  Stay off the furniture.
+Your heart is pure, and your mind clear, and your soul devout.
