@@ -1,1 +1,2 @@
-It may or may not be worthwhile, but it still has to be done.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
