@@ -1,2 +1,2 @@
-Repartee is something we think of twenty-four hours too late.
-		-- Mark Twain
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
