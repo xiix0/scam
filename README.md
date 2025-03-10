@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+You will receive a legacy which will place you above want.
