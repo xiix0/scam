@@ -1,1 +1,2 @@
-Never commit yourself!  Let someone else commit you.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
