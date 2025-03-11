@@ -1,2 +1,1 @@
-Let me take you a button-hole lower.
-		-- William Shakespeare, "Love's Labour's Lost"
+Today is the first day of the rest of your life.
