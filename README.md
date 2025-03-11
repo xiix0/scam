@@ -1,1 +1,2 @@
-You are dishonest, but never to the point of hurting a friend.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
