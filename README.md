@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
