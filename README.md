@@ -1,1 +1,1 @@
-Give him an evasive answer.
+All the troubles you have will pass away very quickly.
