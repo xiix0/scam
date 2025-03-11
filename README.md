@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+Be security conscious -- National defense is at stake.
