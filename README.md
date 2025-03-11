@@ -1,2 +1,2 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
