@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+You can create your own opportunities this week.  Blackmail a senior executive.
