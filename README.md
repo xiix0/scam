@@ -1,1 +1,1 @@
-Be different: conform.
+Go to a movie tonight.  Darkness becomes you.
