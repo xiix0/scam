@@ -1,1 +1,2 @@
-You enjoy the company of other people.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
