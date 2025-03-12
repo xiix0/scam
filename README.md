@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
