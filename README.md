@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+Be careful!  UGLY strikes 9 out of 10!
