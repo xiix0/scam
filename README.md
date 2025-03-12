@@ -1,1 +1,1 @@
-You're currently going through a difficult transition period called "Life."
+You have a strong desire for a home and your family interests come first.
