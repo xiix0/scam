@@ -1,1 +1,1 @@
-Do not overtax your powers.
+Do not sleep in a eucalyptus tree tonight.
