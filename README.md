@@ -1,1 +1,1 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Reply hazy, ask again later.
