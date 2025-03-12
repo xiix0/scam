@@ -1,1 +1,2 @@
-Alimony and bribes will engage a large share of your wealth.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
