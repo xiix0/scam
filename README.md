@@ -1,1 +1,2 @@
-You will receive a legacy which will place you above want.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
