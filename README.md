@@ -1,5 +1,2 @@
-Knucklehead:	"Knock, knock"
-Pee Wee:	"Who's there?"
-Knucklehead:	"Little ol' lady."
-Pee Wee:	"Liddle ol' lady who?"
-Knucklehead:	"I didn't know you could yodel"
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
