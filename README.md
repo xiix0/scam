@@ -1,1 +1,2 @@
-Is this really happening?
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
