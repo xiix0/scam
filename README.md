@@ -1,2 +1,1 @@
-Q:	What is purple and conquered the world?
-A:	Alexander the Grape.
+You're definitely on their list.  The question to ask next is what list it is.
