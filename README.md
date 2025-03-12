@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
