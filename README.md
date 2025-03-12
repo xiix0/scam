@@ -1,2 +1,2 @@
-When angry, count four; when very angry, swear.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	Are we not men?
+A:	We are Vaxen.
