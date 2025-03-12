@@ -1,2 +1,1 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Everything that you know is wrong, but you can be straightened out.
