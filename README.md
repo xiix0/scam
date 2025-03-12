@@ -1,1 +1,1 @@
-You work very hard.  Don't try to think as well.
+You're a card which will have to be dealt with.
