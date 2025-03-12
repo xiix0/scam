@@ -1,1 +1,1 @@
-Do not overtax your powers.
+Try to value useful qualities in one who loves you.
