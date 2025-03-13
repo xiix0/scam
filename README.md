@@ -1,1 +1,1 @@
-You have literary talent that you should take pains to develop.
+A few hours grace before the madness begins again.
