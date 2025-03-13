@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+You will be called upon to help a friend in trouble.
