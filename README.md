@@ -1,3 +1,1 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+Day of inquiry.  You will be subpoenaed.
