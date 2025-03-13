@@ -1,1 +1,1 @@
-A few hours grace before the madness begins again.
+Do not overtax your powers.
