@@ -1,2 +1,1 @@
-You learn to write as if to someone else because NEXT YEAR YOU WILL BE
-"SOMEONE ELSE."
+You have literary talent that you should take pains to develop.
