@@ -1,1 +1,1 @@
-Avoid gunfire in the bathroom tonight.
+Chicken Little only has to be right once.
