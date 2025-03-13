@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+You may get an opportunity for advancement today.  Watch it!
