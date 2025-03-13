@@ -1,16 +1,28 @@
-The Bulwer-Lytton fiction contest is held ever year at San Jose State
-Univ.  by Professor Scott Rice.  It is held in memory of Edward George
-Earle Bulwer-Lytton (1803-1873), a rather prolific and popular (in his
-time) novelist.  He is best known today for having written "The Last
-Days of Pompeii."
-
-Whenever Snoopy starts typing his novel from the top of his doghouse,
-beginning "It was a dark and stormy night..." he is borrowing from Lord
-Bulwer-Lytton.  This was the line that opened his novel, "Paul Clifford,"
-written in 1830.  The full line reveals why it is so bad:
-
-	It was a dark and stormy night; the rain fell in torrents -- except
-	at occasional intervals, when it was checked by a violent gust of
-	wind which swept up the streets (for it is in London that our scene
-	lies), rattling along the housetops, and fiercely agitating the scanty
-	flame of the lamps that struggled against the darkness.
+Q:	How many lawyers does it take to change a light bulb?
+A:	Whereas the party of the first part, also known as "Lawyer", and the
+party of the second part, also known as "Light Bulb", do hereby and forthwith
+agree to a transaction wherein the party of the second part shall be removed
+from the current position as a result of failure to perform previously agreed
+upon duties, i.e., the lighting, elucidation, and otherwise illumination of
+the area ranging from the front (north) door, through the entryway, terminating
+at an area just inside the primary living area, demarcated by the beginning of
+the carpet, any spillover illumination being at the option of the party of the
+second part and not required by the aforementioned agreement between the
+parties.
+	The aforementioned removal transaction shall include, but not be
+limited to, the following.  The party of the first part shall, with or without
+elevation at his option, by means of a chair, stepstool, ladder or any other
+means of elevation, grasp the party of the second part and rotate the party
+of the second part in a counter-clockwise direction, this point being tendered
+non-negotiable.  Upon reaching a point where the party of the second part
+becomes fully detached from the receptacle, the party of the first part shall
+have the option of disposing of the party of the second part in a manner
+consistent with all relevant and applicable local, state and federal statutes.
+Once separation and disposal have been achieved, the party of the first part
+shall have the option of beginning installation.  Aforesaid installation shall
+occur in a manner consistent with the reverse of the procedures described in
+step one of this self-same document, being careful to note that the rotation
+should occur in a clockwise direction, this point also being non-negotiable.
+The above described steps may be performed, at the option of the party of the
+first part, by any or all agents authorized by him, the objective being to
+produce the most possible revenue for the Partnership.
