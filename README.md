@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+You have no real enemies.
