@@ -1,2 +1,3 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
