@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
