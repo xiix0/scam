@@ -1,1 +1,1 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+Your true value depends entirely on what you are compared with.
