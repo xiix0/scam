@@ -1,2 +1,2 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
