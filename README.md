@@ -1,2 +1,3 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+Anyone who has had a bull by the tail knows five or six more things
+than someone who hasn't.
+		-- Mark Twain
