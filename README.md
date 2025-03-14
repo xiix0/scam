@@ -1,1 +1,1 @@
-Chicken Little was right.
+You will engage in a profitable business activity.
