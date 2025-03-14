@@ -1,1 +1,2 @@
-You will be reincarnated as a toad; and you will be much happier.
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
