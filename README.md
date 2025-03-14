@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+Artistic ventures highlighted.  Rob a museum.
