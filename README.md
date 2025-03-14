@@ -1,1 +1,2 @@
-You will engage in a profitable business activity.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
