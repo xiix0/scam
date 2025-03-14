@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
