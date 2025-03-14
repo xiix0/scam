@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of new developments.
+Q:	How many IBM CPU's does it take to do a logical right shift?
+A:	33.  1 to hold the bits and 32 to push the register.
