@@ -1,2 +1,2 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
