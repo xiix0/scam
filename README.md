@@ -1,2 +1,1 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+Your temporary financial embarrassment will be relieved in a surprising manner.
