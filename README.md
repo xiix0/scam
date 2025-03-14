@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+You will be surprised by a loud noise.
