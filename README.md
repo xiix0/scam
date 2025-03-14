@@ -1,1 +1,3 @@
-Let me put it this way: today is going to be a learning experience.
+It were not best that we should all think alike; it is difference of opinion
+that makes horse-races.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
