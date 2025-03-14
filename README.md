@@ -1,1 +1,2 @@
-You will gain money by an immoral action.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
