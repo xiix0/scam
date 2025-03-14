@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+Beauty and harmony are as necessary to you as the very breath of life.
