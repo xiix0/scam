@@ -1,3 +1,2 @@
-Anyone who has had a bull by the tail knows five or six more things
-than someone who hasn't.
-		-- Mark Twain
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
