@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Your talents will be recognized and suitably rewarded.
