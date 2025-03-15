@@ -1,1 +1,3 @@
-Never be led astray onto the path of virtue.
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
