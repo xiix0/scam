@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+Perfect day for scrubbing the floor and other exciting things.
