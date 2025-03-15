@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+Your domestic life may be harmonious.
