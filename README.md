@@ -1,1 +1,1 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+You're not my type.  For that matter, you're not even my species!!!
