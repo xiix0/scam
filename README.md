@@ -1,1 +1,2 @@
-You will give someone a piece of your mind, which you can ill afford.
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
