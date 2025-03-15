@@ -1,1 +1,1 @@
-You are capable of planning your future.
+Domestic happiness and faithful friends.
