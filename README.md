@@ -1,1 +1,1 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+Your depth of comprehension may tend to make you lax in worldly ways.
