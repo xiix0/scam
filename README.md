@@ -1,2 +1,1 @@
-Q:	What's the difference between a duck and an elephant?
-A:	You can't get down off an elephant.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
