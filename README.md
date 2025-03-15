@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+Tomorrow, you can be anywhere.
