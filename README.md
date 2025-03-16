@@ -1,1 +1,1 @@
-Change your thoughts and you change your world.
+You will always have good luck in your personal affairs.
