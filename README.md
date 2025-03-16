@@ -1,1 +1,1 @@
-You have literary talent that you should take pains to develop.
+A visit to a fresh place will bring strange work.
