@@ -1,1 +1,1 @@
-Tuesday is the Wednesday of the rest of your life.
+You're definitely on their list.  The question to ask next is what list it is.
