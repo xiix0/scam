@@ -1,1 +1,1 @@
-Try to have as good a life as you can under the circumstances.
+Your boyfriend takes chocolate from strangers.
