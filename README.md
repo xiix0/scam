@@ -1,7 +1,8 @@
-I reverently believe that the maker who made us all  makes everything in New
-England, but the weather.  I don't know who makes that, but I think it must be
-raw apprentices in the weather-clerks factory who experiment and learn how, in
-New England, for board and clothes, and then are promoted to make weather for
-countries that require a good article, and will take their custom elsewhere
-if they don't get it.
-		-- Mark Twain
+Delores breezed along the surface of her life like a flat stone forever
+skipping along smooth water, rippling reality sporadically but oblivious
+to it consistently, until she finally lost momentum, sank, and due to an
+overdose of flouride as a child which caused her to suffer from chronic
+apathy, doomed herself to lie forever on the floor of her life as useless
+as an appendix and as lonely as a five-hundred pound barbell in a
+steroid-free fitness center.
+		-- Winning sentence, 1990 Bulwer-Lytton bad fiction contest.
