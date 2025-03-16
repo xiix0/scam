@@ -1,1 +1,2 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+You tread upon my patience.
+		-- William Shakespeare, "Henry IV"
