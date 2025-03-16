@@ -1,1 +1,1 @@
-You enjoy the company of other people.
+You single-handedly fought your way into this hopeless mess.
