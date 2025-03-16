@@ -1,1 +1,2 @@
-A visit to a fresh place will bring strange work.
+You tread upon my patience.
+		-- William Shakespeare, "Henry IV"
