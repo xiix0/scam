@@ -1,1 +1,2 @@
-You are not dead yet.  But watch for further reports.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
