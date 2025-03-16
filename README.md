@@ -1,1 +1,2 @@
-Your boyfriend takes chocolate from strangers.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
