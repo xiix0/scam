@@ -1,2 +1,1 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+You will hear good news from one you thought unfriendly to you.
