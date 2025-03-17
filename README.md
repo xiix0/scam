@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+You like to form new friendships and make new acquaintances.
