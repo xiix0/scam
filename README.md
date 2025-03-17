@@ -1,1 +1,2 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
