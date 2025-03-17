@@ -1,2 +1,1 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+You will obey or molten silver will be poured into your ears.
