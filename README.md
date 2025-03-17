@@ -1,1 +1,2 @@
-You will have good luck and overcome many hardships.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
