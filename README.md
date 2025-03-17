@@ -1,1 +1,2 @@
-Stay away from hurricanes for a while.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
