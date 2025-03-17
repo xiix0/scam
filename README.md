@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+You will be given a post of trust and responsibility.
