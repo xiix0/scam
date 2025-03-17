@@ -1,1 +1,2 @@
-You will be honored for contributing your time and skill to a worthy cause.
+You'll wish that you had done some of the hard things when they were easier
+to do.
