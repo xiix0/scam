@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
