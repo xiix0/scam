@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+You will be given a post of trust and responsibility.
