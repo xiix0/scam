@@ -1,2 +1,1 @@
-question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+Long life is in store for you.
