@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+Your fly might be open (but don't check it just now).
