@@ -1,2 +1,2 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
