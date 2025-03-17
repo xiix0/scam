@@ -1,1 +1,2 @@
-You will be given a post of trust and responsibility.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
