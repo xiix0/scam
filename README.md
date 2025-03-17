@@ -1,1 +1,1 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+Are you making all this up as you go along?
