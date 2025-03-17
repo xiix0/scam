@@ -1,1 +1,2 @@
-You like to form new friendships and make new acquaintances.
+Q:	Why don't lawyers go to the beach?
+A:	The cats keep trying to bury them.
