@@ -1,1 +1,2 @@
-Long life is in store for you.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
