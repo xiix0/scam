@@ -1,2 +1,2 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
