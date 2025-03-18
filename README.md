@@ -1,1 +1,2 @@
-Hope that the day after you die is a nice day.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
