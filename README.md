@@ -1,2 +1,3 @@
-Always do right.  This will gratify some people and astonish the rest.
+Anyone who has had a bull by the tail knows five or six more things
+than someone who hasn't.
 		-- Mark Twain
