@@ -1,2 +1,2 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
