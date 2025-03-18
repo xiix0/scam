@@ -1,1 +1,2 @@
-It's lucky you're going so slowly, because you're going in the wrong direction.
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
