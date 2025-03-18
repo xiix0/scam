@@ -1,1 +1,2 @@
-Never be led astray onto the path of virtue.
+"Life, loathe it or ignore it, you can't like it."
+		-- Marvin, "Hitchhiker's Guide to the Galaxy"
