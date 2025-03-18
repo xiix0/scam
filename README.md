@@ -1,1 +1,1 @@
-Break into jail and claim police brutality.
+You will be held hostage by a radical group.
