@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+Stay away from hurricanes for a while.
