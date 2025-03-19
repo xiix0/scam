@@ -1,2 +1,1 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Ships are safe in harbor, but they were never meant to stay there.
