@@ -1,3 +1,2 @@
-Hain't we got all the fools in town on our side?  And hain't that a big
-enough majority in any town?
-		-- Mark Twain, "Huckleberry Finn"
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
