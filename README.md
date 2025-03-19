@@ -1,1 +1,1 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+You have an ability to sense and know higher truth.
