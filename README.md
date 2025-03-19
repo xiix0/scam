@@ -1,2 +1,2 @@
-	A man was reading The Canterbury Tales one Saturday morning, when his
-wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
+I have never let my schooling interfere with my education.
+		-- Mark Twain
