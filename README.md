@@ -1,4 +1,1 @@
-AWAKE! FEAR! FIRE! FOES! AWAKE!
-	FEAR! FIRE! FOES!
-		AWAKE! AWAKE!
-		-- J. R. R. Tolkien
+Afternoon very favorable for romance.  Try a single person for a change.
