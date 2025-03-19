@@ -1,2 +1,4 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
