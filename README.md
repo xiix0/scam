@@ -1,1 +1,2 @@
-You are going to have a new love affair.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
