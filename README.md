@@ -1,3 +1,1 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+Another good night not to sleep in a eucalyptus tree.
