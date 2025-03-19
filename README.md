@@ -1,2 +1,2 @@
-He is now rising from affluence to poverty.
-		-- Mark Twain
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
