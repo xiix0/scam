@@ -1,1 +1,2 @@
-Look afar and see the end from the beginning.
+"... all the modern inconveniences ..."
+		-- Mark Twain
