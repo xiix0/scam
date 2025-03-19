@@ -1,2 +1,2 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
