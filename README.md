@@ -1,1 +1,1 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Don't you feel more like you do now than you did when you came in?
