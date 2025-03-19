@@ -1,1 +1,2 @@
-Perfect day for scrubbing the floor and other exciting things.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
