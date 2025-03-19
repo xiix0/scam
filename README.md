@@ -1,1 +1,1 @@
-You will be honored for contributing your time and skill to a worthy cause.
+You have Egyptian flu: you're going to be a mummy.
