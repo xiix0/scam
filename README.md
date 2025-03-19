@@ -1,1 +1,1 @@
-You have a strong appeal for members of your own sex.
+You now have Asian Flu.
