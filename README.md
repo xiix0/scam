@@ -1,1 +1,2 @@
-Don't you feel more like you do now than you did when you came in?
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
