@@ -1,1 +1,1 @@
-You are so boring that when I see you my feet go to sleep.
+You are deeply attached to your friends and acquaintances.
