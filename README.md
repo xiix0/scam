@@ -1,2 +1,2 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
