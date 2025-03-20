@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+Your domestic life may be harmonious.
