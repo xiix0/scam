@@ -1,1 +1,1 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+You are so boring that when I see you my feet go to sleep.
