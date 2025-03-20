@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+A few hours grace before the madness begins again.
