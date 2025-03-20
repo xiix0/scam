@@ -1,2 +1,1 @@
-You have a reputation for being thoroughly reliable and trustworthy.
-A pity that it's totally undeserved.
+Don't look now, but there is a multi-legged creature on your shoulder.
