@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
