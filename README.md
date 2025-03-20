@@ -1,3 +1,2 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
