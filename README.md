@@ -1,1 +1,3 @@
-Your aims are high, and you are capable of much.
+You may my glories and my state dispose,
+But not my griefs; still am I king of those.
+		-- William Shakespeare, "Richard II"
