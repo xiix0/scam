@@ -1,2 +1,3 @@
-No group of professionals meets except to conspire against the public at large.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
 		-- Mark Twain
