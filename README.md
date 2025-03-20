@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+Bank error in your favor.  Collect $200.
