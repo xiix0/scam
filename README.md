@@ -1,2 +1,3 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
