@@ -1,4 +1,5 @@
-Whenever the literary German dives into a sentence, that is the last
-you are going to see of him until he emerges on the other side of his
-Atlantic with his verb in his mouth.
-		-- Mark Twain "A Connecticut Yankee in King Arthur's Court"
+Q:	Why is Poland just like the United States?
+A:	In the United States you can't buy anything for zlotys and in
+	Poland you can't either, while in the U.S. you can get whatever
+	you want for dollars, just as you can in Poland.
+		-- being told in Poland, 1987
