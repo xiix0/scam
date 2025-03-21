@@ -1,1 +1,2 @@
-Try to have as good a life as you can under the circumstances.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
