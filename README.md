@@ -1,2 +1,1 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+So this is it.  We're going to die.
