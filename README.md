@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+You prefer the company of the opposite sex, but are well liked by your own.
