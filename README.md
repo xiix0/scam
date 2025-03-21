@@ -1,1 +1,1 @@
-Another good night not to sleep in a eucalyptus tree.
+Best of all is never to have been born.  Second best is to die soon.
