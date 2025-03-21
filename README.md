@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+You will always get the greatest recognition for the job you least like.
