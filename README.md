@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+You recoil from the crude; you tend naturally toward the exquisite.
