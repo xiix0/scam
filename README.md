@@ -1,1 +1,2 @@
-You are deeply attached to your friends and acquaintances.
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
