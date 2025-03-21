@@ -1,1 +1,3 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
