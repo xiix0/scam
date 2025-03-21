@@ -1,3 +1,6 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #4
-A:	Go west, young man, go west!
-Q:	What do wabbits do when they get tiwed of wunning awound?
+Q:	How many journalists does it take to screw in a light bulb?
+A:	Three.  One to report it as an inspired government program to bring
+	light to the people, one to report it as a diabolical government plot
+	to deprive the poor of darkness, and one to win a Pulitzer prize for
+	reporting that Electric Company hired a light bulb-assassin to break
+	the bulb in the first place.
