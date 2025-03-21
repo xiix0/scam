@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+You are as I am with You.
