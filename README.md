@@ -1,1 +1,2 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
