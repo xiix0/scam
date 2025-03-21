@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Be careful!  UGLY strikes 9 out of 10!
