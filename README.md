@@ -1,3 +1,1 @@
-Consider well the proportions of things.  It is better to be a young June-bug
-than an old bird of paradise.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Another good night not to sleep in a eucalyptus tree.
