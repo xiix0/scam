@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Do something unusual today.  Pay a bill.
