@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+Your boss climbed the corporate ladder, wrong by wrong.
