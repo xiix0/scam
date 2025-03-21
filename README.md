@@ -1,8 +1,6 @@
-In the space of one hundred and seventy-six years the Mississippi has
-shortened itself two hundred and forty-two miles.  Therefore ... in the Old
-Silurian Period the Mississippi River was upward of one million three hundred
-thousand miles long ... seven hundred and forty-two years from now the
-Mississippi will be only a mile and three-quarters long.  ... There is
-something fascinating about science.  One gets such wholesome returns of
-conjecture out of such a trifling investment of fact.
-		-- Mark Twain
+Unless hours were cups of sack, and minutes capons, and clocks the tongues
+of bawds, and dials the signs of leaping houses, and the blessed sun himself
+a fair, hot wench in flame-colored taffeta, I see no reason why thou shouldst
+be so superfluous to demand the time of the day.  I wasted time and now doth
+time waste me.
+		-- William Shakespeare
