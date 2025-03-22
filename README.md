@@ -1,1 +1,2 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
