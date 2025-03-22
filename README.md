@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
