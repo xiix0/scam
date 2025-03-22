@@ -1,2 +1,1 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Today is the last day of your life so far.
