@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
