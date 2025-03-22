@@ -1,1 +1,2 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Q:	What is the sound of one cat napping?
+A:	Mu.
