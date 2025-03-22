@@ -1,3 +1,1 @@
-Your manuscript is both good and original, but the part that is good is not
-original and the part that is original is not good.
-		-- Samuel Johnson
+You plan things that you do not even attempt because of your extreme caution.
