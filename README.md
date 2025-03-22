@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You have an ability to sense and know higher truth.
