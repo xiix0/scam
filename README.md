@@ -1,1 +1,2 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
