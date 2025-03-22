@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+You will reach the highest possible point in your business or profession.
