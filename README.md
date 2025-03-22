@@ -1,2 +1,1 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Tuesday After Lunch is the cosmic time of the week.
