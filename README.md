@@ -1,2 +1,2 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
