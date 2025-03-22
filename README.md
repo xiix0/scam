@@ -1,1 +1,2 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
