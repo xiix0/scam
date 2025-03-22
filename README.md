@@ -1,2 +1,2 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
