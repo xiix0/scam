@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+Good news from afar can bring you a welcome visitor.
