@@ -1,1 +1,3 @@
-Q:	How do you keep a moron in suspense?
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
