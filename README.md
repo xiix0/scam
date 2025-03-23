@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
