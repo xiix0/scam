@@ -1,1 +1,2 @@
-You can rent this space for only $5 a week.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
