@@ -1,1 +1,2 @@
-You will be given a post of trust and responsibility.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
