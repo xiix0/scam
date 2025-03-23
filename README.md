@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+Beware of low-flying butterflies.
