@@ -1,2 +1,2 @@
-The fashion wears out more apparel than the man.
-		-- William Shakespeare, "Much Ado About Nothing"
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
