@@ -1,1 +1,3 @@
-You teach best what you most need to learn.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
