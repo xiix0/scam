@@ -1,1 +1,2 @@
-You will gain money by an immoral action.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
