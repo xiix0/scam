@@ -1,5 +1,2 @@
-Q:	Why do ducks have big flat feet?
-A:	To stamp out forest fires.
-
-Q:	Why do elephants have big flat feet?
-A:	To stamp out flaming ducks.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
