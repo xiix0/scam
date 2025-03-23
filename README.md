@@ -1,1 +1,2 @@
-Beware of low-flying butterflies.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
