@@ -1,1 +1,2 @@
-You will gain money by an illegal action.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
