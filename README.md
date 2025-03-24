@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+A vivid and creative mind characterizes you.
