@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+You now have Asian Flu.
