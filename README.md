@@ -1,1 +1,2 @@
-Your ignorance cramps my conversation.
+Too much is just enough.
+		-- Mark Twain, on whiskey
