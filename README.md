@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+A visit to a strange place will bring fresh work.
