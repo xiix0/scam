@@ -1,2 +1,3 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
+A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
+Q:	Who were the Democratic presidential candidates?
