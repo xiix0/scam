@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+Your society will be sought by people of taste and refinement.
