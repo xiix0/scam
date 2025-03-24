@@ -1,1 +1,3 @@
-If your life was a horse, you'd have to shoot it.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
