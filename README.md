@@ -1,2 +1,2 @@
-What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, "The League of Frightened Men"
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
