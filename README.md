@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+You will experience a strong urge to do good; but it will pass.
