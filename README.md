@@ -1,1 +1,2 @@
-Many changes of mind and mood; do not hesitate too long.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
