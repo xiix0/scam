@@ -1,2 +1,1 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+You will forget that you ever knew me.
