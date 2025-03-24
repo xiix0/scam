@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+Is that really YOU that is reading this?
