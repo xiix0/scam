@@ -1,1 +1,1 @@
-Give your very best today.  Heaven knows it's little enough.
+Ships are safe in harbor, but they were never meant to stay there.
