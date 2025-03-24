@@ -1,3 +1,2 @@
-My only love sprung from my only hate!
-Too early seen unknown, and known too late!
-		-- William Shakespeare, "Romeo and Juliet"
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
