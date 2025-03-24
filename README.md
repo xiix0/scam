@@ -1,2 +1,2 @@
-No group of professionals meets except to conspire against the public at large.
+He is now rising from affluence to poverty.
 		-- Mark Twain
