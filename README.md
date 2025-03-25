@@ -1,1 +1,1 @@
-Beware of Bigfoot!
+You are capable of planning your future.
