@@ -1,1 +1,2 @@
-You are a fluke of the universe; you have no right to be here.
+Q:	How many Marxists does it take to screw in a light bulb?
+A:	None:  The light bulb contains the seeds of its own revolution.
