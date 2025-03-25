@@ -1,1 +1,2 @@
-A tall, dark stranger will have more fun than you.
+Q:	What do you call a half-dozen Indians with Asian flu?
+A:	Six sick Sikhs (sic).
