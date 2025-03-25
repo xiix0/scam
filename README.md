@@ -1,1 +1,3 @@
-You have Egyptian flu: you're going to be a mummy.
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
