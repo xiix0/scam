@@ -1,2 +1,1 @@
-He that is giddy thinks the world turns round.
-		-- William Shakespeare, "The Taming of the Shrew"
+Do what comes naturally.  Seethe and fume and throw a tantrum.
