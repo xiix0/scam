@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Increased knowledge will help you now.  Have mate's phone bugged.
