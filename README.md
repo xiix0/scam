@@ -1,2 +1,2 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+Q:	What do you have when you have a lawyer buried up to his neck in sand?
+A:	Not enough sand.
