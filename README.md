@@ -1,1 +1,2 @@
-You have a deep interest in all that is artistic.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
