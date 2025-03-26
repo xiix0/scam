@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+You will always have good luck in your personal affairs.
