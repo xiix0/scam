@@ -1,2 +1,3 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
