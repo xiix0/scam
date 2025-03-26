@@ -1,3 +1,2 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
