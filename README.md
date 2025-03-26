@@ -1,1 +1,1 @@
-You'll be called to a post requiring ability in handling groups of people.
+Don't worry so loud, your roommate can't think.
