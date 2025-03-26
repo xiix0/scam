@@ -1,1 +1,2 @@
-Your love life will be happy and harmonious.
+As to the Adjective: when in doubt, strike it out.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
