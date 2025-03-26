@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Of course you have a purpose -- to find a purpose.
