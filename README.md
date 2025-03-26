@@ -1,2 +1,1 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+You'll be called to a post requiring ability in handling groups of people.
