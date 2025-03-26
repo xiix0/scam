@@ -1,1 +1,2 @@
-Abandon the search for Truth; settle for a good fantasy.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
