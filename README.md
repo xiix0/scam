@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+Good news from afar can bring you a welcome visitor.
