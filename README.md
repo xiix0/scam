@@ -1,1 +1,2 @@
-Of course you have a purpose -- to find a purpose.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
