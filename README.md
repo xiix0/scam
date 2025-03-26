@@ -1,1 +1,2 @@
-Your reasoning powers are good, and you are a fairly good planner.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
