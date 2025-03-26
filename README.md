@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You have a deep interest in all that is artistic.
