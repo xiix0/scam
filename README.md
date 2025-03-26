@@ -1,1 +1,1 @@
-Your boyfriend takes chocolate from strangers.
+Be careful!  UGLY strikes 9 out of 10!
