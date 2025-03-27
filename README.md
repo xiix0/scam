@@ -1,1 +1,1 @@
-Slow day.  Practice crawling.
+You will be misunderstood by everyone.
