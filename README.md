@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+You will always have good luck in your personal affairs.
