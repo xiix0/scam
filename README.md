@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+You teach best what you most need to learn.
