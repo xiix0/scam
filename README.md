@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
