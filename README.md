@@ -1,1 +1,1 @@
-You will contract a rare disease.
+Future looks spotty.  You will spill soup in late evening.
