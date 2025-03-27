@@ -1,1 +1,2 @@
-You will soon meet a person who will play an important role in your life.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
