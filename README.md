@@ -1,2 +1,2 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
