@@ -1,1 +1,1 @@
-Future looks spotty.  You will spill soup in late evening.
+Never look up when dragons fly overhead.
