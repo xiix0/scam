@@ -1,2 +1,2 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
