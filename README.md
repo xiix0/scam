@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You will triumph over your enemy.
