@@ -1,1 +1,3 @@
-You have a will that can be influenced by all with whom you come in contact.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
