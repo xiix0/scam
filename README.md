@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+You will be called upon to help a friend in trouble.
