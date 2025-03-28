@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
