@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+Don't kiss an elephant on the lips today.
