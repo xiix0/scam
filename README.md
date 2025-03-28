@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+You have been selected for a secret mission.
