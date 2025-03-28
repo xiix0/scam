@@ -1,2 +1,2 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
