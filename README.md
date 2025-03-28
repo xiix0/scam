@@ -1,3 +1,3 @@
-Q:	Why do people who live near Niagara Falls have flat foreheads?
-A:	Because every morning they wake up thinking "What *is* that noise?
-	Oh, right, *of course*!
+It were not best that we should all think alike; it is difference of opinion
+that makes horse-races.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
