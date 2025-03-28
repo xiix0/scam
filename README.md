@@ -1,1 +1,2 @@
-An avocado-tone refrigerator would look good on your resume.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
