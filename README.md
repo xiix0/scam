@@ -1,3 +1,2 @@
-Fame is a vapor; popularity an accident; the only earthly certainty is
-oblivion.
-		-- Mark Twain
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
