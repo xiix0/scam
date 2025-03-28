@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
