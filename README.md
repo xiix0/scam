@@ -1,2 +1,2 @@
-Q:	Why do mountain climbers rope themselves together?
-A:	To prevent the sensible ones from going home.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
