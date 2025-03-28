@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+You like to form new friendships and make new acquaintances.
