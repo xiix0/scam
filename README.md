@@ -1,1 +1,1 @@
-Give him an evasive answer.
+You will meet an important person who will help you advance professionally.
