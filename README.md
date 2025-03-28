@@ -1,1 +1,1 @@
-Someone is speaking well of you.
+Time to be aggressive.  Go after a tattooed Virgo.
