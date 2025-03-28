@@ -1,4 +1,3 @@
-All I know is what the words know, and dead things, and that
-makes a handsome little sum, with a beginning and a middle and
-an end, as in the well-built phrase and the long sonata of the dead.
-		-- Samuel Beckett
+Q:	Why do people who live near Niagara Falls have flat foreheads?
+A:	Because every morning they wake up thinking "What *is* that noise?
+	Oh, right, *of course*!
