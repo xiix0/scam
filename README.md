@@ -1,2 +1,3 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
