@@ -1,2 +1,1 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+If your life was a horse, you'd have to shoot it.
