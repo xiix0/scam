@@ -1,3 +1,2 @@
-The difference between a Miracle and a Fact is exactly the difference
-between a mermaid and a seal.
+It usually takes more than three weeks to prepare a good impromptu speech.
 		-- Mark Twain
