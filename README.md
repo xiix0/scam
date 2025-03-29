@@ -1,2 +1,2 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
