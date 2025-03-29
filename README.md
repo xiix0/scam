@@ -1,2 +1,2 @@
-Q:	What's the difference betweeen USL and the Graf Zeppelin?
-A:	The Graf Zeppelin represented cutting edge technology for its time.
+The first thing we do, let's kill all the lawyers.
+		-- Wm. Shakespeare, "Henry VI", Part IV
