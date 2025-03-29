@@ -1,1 +1,3 @@
-Go to a movie tonight.  Darkness becomes you.
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
