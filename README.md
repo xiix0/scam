@@ -1,2 +1,2 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
