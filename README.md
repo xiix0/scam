@@ -1,3 +1,6 @@
-If you pick up a starving dog and make him prosperous, he will not bite you.
-This is the principal difference between a dog and a man.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+The lovely woman-child Kaa was mercilessly chained to the cruel post of
+the warrior-chief Beast, with his barbarian tribe now stacking wood at
+her nubile feet, when the strong clear voice of the poetic and heroic
+Handsomas roared, 'Flick your Bic, crisp that chick, and you'll feel my
+steel through your last meal!'
+		-- Winning sentence, 1984 Bulwer-Lytton bad fiction contest.
