@@ -1,2 +1,1 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+You two ought to be more careful--your love could drag on for years and years.
