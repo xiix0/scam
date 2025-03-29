@@ -1,1 +1,2 @@
-You will always get the greatest recognition for the job you least like.
+After all, all he did was string together a lot of old, well-known quotations.
+		-- H. L. Mencken, on Shakespeare
