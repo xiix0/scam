@@ -1,4 +1,3 @@
-Whenever the literary German dives into a sentence, that is the last
-you are going to see of him until he emerges on the other side of his
-Atlantic with his verb in his mouth.
-		-- Mark Twain "A Connecticut Yankee in King Arthur's Court"
+Q:	What's the difference between a dead dog in the road and a dead
+	lawyer in the road?
+A:	There are skid marks in front of the dog.
