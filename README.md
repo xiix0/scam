@@ -1,1 +1,2 @@
-Today is the last day of your life so far.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
