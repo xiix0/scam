@@ -1,1 +1,1 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+You're not my type.  For that matter, you're not even my species!!!
