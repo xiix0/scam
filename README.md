@@ -1,3 +1,2 @@
-Q:	Why haven't you graduated yet?
-A:	Well, Dad, I could have finished years ago, but I wanted
-	my dissertation to rhyme.
+Q:	What do Winnie the Pooh and John the Baptist have in common?
+A:	The same middle name.
