@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
+If you tell the truth you don't have to remember anything.
 		-- Mark Twain
