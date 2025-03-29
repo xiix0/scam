@@ -1,2 +1,1 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+You have a deep interest in all that is artistic.
