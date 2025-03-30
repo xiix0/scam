@@ -1,2 +1,1 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+You will be reincarnated as a toad; and you will be much happier.
