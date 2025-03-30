@@ -1,3 +1,5 @@
-Perilous to all of us are the devices of an art deeper than we ourselves
-possess.
-		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
+When I was younger, I could remember anything, whether it had happened
+or not; but my faculties are decaying now and soon I shall be so I
+cannot remember any but the things that never happened.  It is sad to
+go to pieces like this but we all have to do it.
+		-- Mark Twain
