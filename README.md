@@ -1,1 +1,2 @@
-You will have a long and boring life.
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
