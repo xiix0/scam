@@ -1,1 +1,2 @@
-A vivid and creative mind characterizes you.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
