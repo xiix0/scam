@@ -1,2 +1,2 @@
-Q:	Why did the WASP cross the road?
-A:	To get to the middle.
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
