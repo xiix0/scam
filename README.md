@@ -1,1 +1,2 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
