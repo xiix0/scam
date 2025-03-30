@@ -1,2 +1,2 @@
-For a light heart lives long.
-		-- Shakespeare, "Love's Labour's Lost"
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
