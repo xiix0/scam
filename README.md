@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+Your society will be sought by people of taste and refinement.
