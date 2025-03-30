@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+Snow Day -- stay home.
