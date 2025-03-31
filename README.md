@@ -1,6 +1,3 @@
-The countdown had stalled at 'T' minus 69 seconds when Desiree, the first
-female ape to go up in space, winked at me slyly and pouted her thick,
-rubbery lips unmistakably -- the first of many such advances during what
-would prove to be the longest, and most memorable, space voyage of my
-career.
-		-- Winning sentence, 1985 Bulwer-Lytton bad fiction contest.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #5
+A:	The Halls of Montezuma and the Shores of Tripoli.
+Q:	Name two families whose kids won't join the Marines.
