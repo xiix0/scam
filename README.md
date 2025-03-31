@@ -1,1 +1,2 @@
-Long life is in store for you.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
