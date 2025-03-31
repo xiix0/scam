@@ -1,1 +1,2 @@
-Try the Moo Shu Pork.  It is especially good today.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
