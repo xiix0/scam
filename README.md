@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+Truth will out this morning.  (Which may really mess things up.)
