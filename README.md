@@ -1,1 +1,2 @@
-You will become rich and famous unless you don't.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
