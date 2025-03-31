@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+Tuesday After Lunch is the cosmic time of the week.
