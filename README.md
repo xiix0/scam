@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+You can rent this space for only $5 a week.
