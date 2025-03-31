@@ -1,1 +1,1 @@
-Celebrate Hannibal Day this year.  Take an elephant to lunch.
+You have many friends and very few living enemies.
