@@ -1,2 +1,2 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
