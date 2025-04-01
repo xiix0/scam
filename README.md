@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
