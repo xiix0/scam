@@ -1,2 +1,2 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
