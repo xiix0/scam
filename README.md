@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Life is to you a dashing and bold adventure.
