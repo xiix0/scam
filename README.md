@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
