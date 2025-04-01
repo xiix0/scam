@@ -1,2 +1,2 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
