@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
