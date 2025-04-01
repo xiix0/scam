@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
