@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
