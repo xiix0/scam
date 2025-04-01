@@ -1,2 +1,2 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
