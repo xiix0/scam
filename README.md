@@ -1,2 +1,2 @@
-The naked truth of it is, I have no shirt.
-		-- William Shakespeare, "Love's Labour's Lost"
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
