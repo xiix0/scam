@@ -1,1 +1,1 @@
-Bridge ahead.  Pay troll.
+You are fairminded, just and loving.
