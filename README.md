@@ -1,5 +1,5 @@
-Knucklehead:	"Knock, knock"
-Pee Wee:	"Who's there?"
-Knucklehead:	"Little ol' lady."
-Pee Wee:	"Liddle ol' lady who?"
-Knucklehead:	"I didn't know you could yodel"
+Steady movement is more important than speed, much of the time.  So long
+as there is a regular progression of stimuli to get your mental hooks
+into, there is room for lateral movement.  Once this begins, its rate is
+a matter of discretion.
+		-- Corwin, Prince of Amber
