@@ -1,2 +1,2 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
