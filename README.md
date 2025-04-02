@@ -1,1 +1,2 @@
-Good news from afar can bring you a welcome visitor.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
