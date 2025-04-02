@@ -1,1 +1,2 @@
-Your domestic life may be harmonious.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
