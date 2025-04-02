@@ -1,1 +1,2 @@
-You will receive a legacy which will place you above want.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
