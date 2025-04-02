@@ -1,1 +1,1 @@
-Are you sure the back door is locked?
+Your temporary financial embarrassment will be relieved in a surprising manner.
