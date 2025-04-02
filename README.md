@@ -1,2 +1,1 @@
-There is always one thing to remember: writers are always selling somebody out.
-		-- Joan Didion, "Slouching Towards Bethlehem"
+This will be a memorable month -- no matter how hard you try to forget it.
