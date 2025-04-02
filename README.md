@@ -1,1 +1,2 @@
-You will gain money by a speculation or lottery.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
