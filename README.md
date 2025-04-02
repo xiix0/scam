@@ -1,1 +1,2 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
