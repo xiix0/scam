@@ -1,3 +1,2 @@
-One of the most striking differences between a cat and a lie is that a cat has
-only nine lives.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	What's the difference between a duck and an elephant?
+A:	You can't get down off an elephant.
