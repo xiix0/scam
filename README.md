@@ -1,1 +1,3 @@
-Think twice before speaking, but don't say "think think click click".
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
