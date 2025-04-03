@@ -1,2 +1,2 @@
-Q:	What's the difference between Bell Labs and the Boy Scouts of America?
-A:	The Boy Scouts have adult supervision.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
