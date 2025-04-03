@@ -1,2 +1,1 @@
-Q:	Do you know what the death rate around here is?
-A:	One per person.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
