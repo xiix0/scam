@@ -1,1 +1,3 @@
-Q:	How do you keep a moron in suspense?
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
