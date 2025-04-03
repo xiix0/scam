@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+Accent on helpful side of your nature.  Drain the moat.
