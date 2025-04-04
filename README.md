@@ -1,1 +1,2 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
