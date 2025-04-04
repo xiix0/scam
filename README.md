@@ -1,2 +1,2 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
