@@ -1,2 +1,1 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+Someone is speaking well of you.
