@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+Stay away from flying saucers today.
