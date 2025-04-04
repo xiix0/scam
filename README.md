@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+You seek to shield those you love and you like the role of the provider.
