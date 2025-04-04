@@ -1,5 +1,3 @@
-For years a secret shame destroyed my peace--
-I'd not read Eliot, Auden or MacNiece.
-But now I think a thought that brings me hope:
-Neither had Chaucer, Shakespeare, Milton, Pope.
-		-- Justin Richardson.
+Q:	How many Oregonians does it take to screw in a light bulb?
+A:	Three.  One to screw in the light bulb and two to fend off all those
+	Californians trying to share the experience.
