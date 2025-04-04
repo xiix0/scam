@@ -1,5 +1,7 @@
-It is right that he too should have his little chronicle, his memories,
-his reason, and be able to recognize the good in the bad, the bad in the
-worst, and so grow gently old all down the unchanging days and die one
-day like any other day, only shorter.
-		-- Samuel Beckett, "Malone Dies"
+Sheriff Chameleotoptor sighed with an air of weary sadness, and then
+turned to Doppelgutt and said 'The Senator must really have been on a
+bender this time -- he left a party in Cleveland, Ohio, at 11:30 last
+night, and they found his car this morning in the smokestack of a British
+aircraft carrier in the Formosa Straits.'
+		-- Grand Panjandrum's Special Award, 1985 Bulwer-Lytton
+		   bad fiction contest.
