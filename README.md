@@ -1,1 +1,3 @@
-You seek to shield those you love and you like the role of the provider.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
