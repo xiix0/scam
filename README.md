@@ -1,2 +1,2 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
