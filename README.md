@@ -1,2 +1,2 @@
-A horse!  A horse!  My kingdom for a horse!
-		-- Wm. Shakespeare, "Richard III"
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
