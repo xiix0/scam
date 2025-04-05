@@ -1,1 +1,2 @@
-You will be reincarnated as a toad; and you will be much happier.
+Q:	What's the difference betweeen USL and the Graf Zeppelin?
+A:	The Graf Zeppelin represented cutting edge technology for its time.
