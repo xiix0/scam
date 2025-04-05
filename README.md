@@ -1,1 +1,1 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+Don't you feel more like you do now than you did when you came in?
