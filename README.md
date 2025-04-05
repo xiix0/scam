@@ -1,2 +1,2 @@
-This night methinks is but the daylight sick.
-		-- William Shakespeare, "The Merchant of Venice"
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
