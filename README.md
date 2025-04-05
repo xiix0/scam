@@ -1,1 +1,1 @@
-You will obey or molten silver will be poured into your ears.
+You'll feel much better once you've given up hope.
