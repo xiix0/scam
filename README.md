@@ -1,1 +1,1 @@
-You dialed 5483.
+You're a card which will have to be dealt with.
