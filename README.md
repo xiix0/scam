@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
