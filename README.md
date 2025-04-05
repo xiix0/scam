@@ -1,1 +1,1 @@
-Don't relax!  It's only your tension that's holding you together.
+Don't let your mind wander -- it's too little to be let out alone.
