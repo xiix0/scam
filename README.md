@@ -1,2 +1,2 @@
-The naked truth of it is, I have no shirt.
-		-- William Shakespeare, "Love's Labour's Lost"
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
