@@ -1,1 +1,1 @@
-You will be divorced within a year.
+Beware of a tall black man with one blond shoe.
