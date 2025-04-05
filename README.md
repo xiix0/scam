@@ -1,1 +1,2 @@
-You will be awarded a medal for disregarding safety in saving someone.
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
