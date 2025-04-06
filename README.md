@@ -1,1 +1,2 @@
-So this is it.  We're going to die.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
