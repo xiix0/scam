@@ -1,3 +1,3 @@
-Work consists of whatever a body is obliged to do.
-Play consists of whatever a body is not obliged to do.
+Don't go around saying the world owes you a living.  The world owes you
+nothing.  It was here first.
 		-- Mark Twain
