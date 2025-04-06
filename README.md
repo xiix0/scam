@@ -1,1 +1,3 @@
-You two ought to be more careful--your love could drag on for years and years.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
