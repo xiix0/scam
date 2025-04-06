@@ -1,1 +1,1 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+You need no longer worry about the future.  This time tomorrow you'll be dead.
