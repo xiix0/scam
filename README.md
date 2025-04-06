@@ -1,1 +1,2 @@
-You're currently going through a difficult transition period called "Life."
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
