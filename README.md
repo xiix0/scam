@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+Your nature demands love and your happiness depends on it.
