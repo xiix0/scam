@@ -1,2 +1,3 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
