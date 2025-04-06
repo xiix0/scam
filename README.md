@@ -1,2 +1,1 @@
-"... all the modern inconveniences ..."
-		-- Mark Twain
+You own a dog, but you can only feed a cat.
