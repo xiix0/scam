@@ -1,3 +1,2 @@
-ROMEO:		Courage, man; the hurt cannot be much.
-MERCUTIO:	No, 'tis not so deep as a well, nor so wide
-			as a church-door; but 'tis enough, 'twill serve.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
