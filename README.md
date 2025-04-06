@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+You're almost as happy as you think you are.
