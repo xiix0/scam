@@ -1,3 +1,1 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+Give your very best today.  Heaven knows it's little enough.
