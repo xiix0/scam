@@ -1,2 +1,2 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Fine day for friends.
+So-so day for you.
