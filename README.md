@@ -1,2 +1,3 @@
-There is a great discovery still to be made in Literature: that of
-paying literary men by the quantity they do NOT write.
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
+		-- Mark Twain
