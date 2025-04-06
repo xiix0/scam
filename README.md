@@ -1,1 +1,2 @@
-Stay away from hurricanes for a while.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
