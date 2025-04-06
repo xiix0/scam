@@ -1,1 +1,2 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
