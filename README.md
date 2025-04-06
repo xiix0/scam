@@ -1,3 +1,1 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+If you stand on your head, you will get footprints in your hair.
