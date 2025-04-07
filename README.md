@@ -1,2 +1,2 @@
-Never laugh at live dragons.
-		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
