@@ -1,1 +1,1 @@
-Future looks spotty.  You will spill soup in late evening.
+Day of inquiry.  You will be subpoenaed.
