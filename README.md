@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
