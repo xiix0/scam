@@ -1,1 +1,2 @@
-A tall, dark stranger will have more fun than you.
+Conscience doth make cowards of us all.
+		-- Shakespeare
