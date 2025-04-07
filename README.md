@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
