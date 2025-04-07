@@ -1,1 +1,2 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
