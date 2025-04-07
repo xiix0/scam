@@ -1,2 +1,1 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+You have had a long-term stimulation relative to business.
