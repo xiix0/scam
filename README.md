@@ -1,1 +1,2 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
