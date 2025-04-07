@@ -1,2 +1,1 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+Expect a letter from a friend who will ask a favor of you.
