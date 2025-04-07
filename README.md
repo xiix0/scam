@@ -1,1 +1,2 @@
-Day of inquiry.  You will be subpoenaed.
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
