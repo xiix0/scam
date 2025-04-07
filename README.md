@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+Among the lucky, you are the chosen one.
