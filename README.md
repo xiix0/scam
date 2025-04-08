@@ -1,3 +1,2 @@
-He draweth out the thread of his verbosity finer than the staple of his
-argument.
-		-- William Shakespeare, "Love's Labour's Lost"
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
