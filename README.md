@@ -1,1 +1,2 @@
-You will experience a strong urge to do good; but it will pass.
+I'll burn my books.
+		-- Christopher Marlowe
