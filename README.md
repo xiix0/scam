@@ -1,1 +1,2 @@
-You will be married within a year, and divorced within two.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
