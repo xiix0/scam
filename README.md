@@ -1,3 +1,3 @@
-Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
-as intelligent as ever.
-		-- Samuel Beckett, "Endgame"
+He draweth out the thread of his verbosity finer than the staple of his
+argument.
+		-- William Shakespeare, "Love's Labour's Lost"
