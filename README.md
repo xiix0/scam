@@ -1,1 +1,1 @@
-You possess a mind not merely twisted, but actually sprained.
+You will gain money by a speculation or lottery.
