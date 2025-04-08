@@ -1,2 +1,1 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+People are beginning to notice you.  Try dressing before you leave the house.
