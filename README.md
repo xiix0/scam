@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
