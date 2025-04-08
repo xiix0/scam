@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+You will be married within a year, and divorced within two.
