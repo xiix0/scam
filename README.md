@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+Your boss climbed the corporate ladder, wrong by wrong.
