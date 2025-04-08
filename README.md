@@ -1,1 +1,3 @@
-You have an ambitious nature and may make a name for yourself.
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
