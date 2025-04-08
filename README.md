@@ -1,2 +1,1 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+You possess a mind not merely twisted, but actually sprained.
