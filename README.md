@@ -1,2 +1,1 @@
-No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
-		-- Sherlock Holmes
+Beware of a tall black man with one blond shoe.
