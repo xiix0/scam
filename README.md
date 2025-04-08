@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+You may be recognized soon.  Hide.
