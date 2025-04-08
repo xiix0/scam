@@ -1,1 +1,1 @@
-You are as I am with You.
+There will be big changes for you but you will be happy.
