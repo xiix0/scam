@@ -1,1 +1,1 @@
-Courage is your greatest present need.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
