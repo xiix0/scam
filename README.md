@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+Fine day to work off excess energy.  Steal something heavy.
