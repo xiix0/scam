@@ -1,1 +1,2 @@
-Your boyfriend takes chocolate from strangers.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
