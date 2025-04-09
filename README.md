@@ -1,1 +1,2 @@
-You will be reincarnated as a toad; and you will be much happier.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
