@@ -1,7 +1,8 @@
-I reverently believe that the maker who made us all  makes everything in New
-England, but the weather.  I don't know who makes that, but I think it must be
-raw apprentices in the weather-clerks factory who experiment and learn how, in
-New England, for board and clothes, and then are promoted to make weather for
-countries that require a good article, and will take their custom elsewhere
-if they don't get it.
-		-- Mark Twain
+For the fashion of Minas Tirith was such that it was built on seven levels,
+each delved into a hill, and about each was set a wall, and in each wall
+was a gate.
+		-- J.R.R. Tolkien, "The Return of the King"
+
+	[Quoted in "VMS Internals and Data Structures", V4.4, when
+	 referring to system overview.]
+
