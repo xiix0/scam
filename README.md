@@ -1,1 +1,2 @@
-There is a fly on your nose.
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
