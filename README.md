@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
