@@ -1,1 +1,2 @@
-Beware of a tall black man with one blond shoe.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
