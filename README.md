@@ -1,1 +1,2 @@
-Cold hands, no gloves.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
