@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+Avoid gunfire in the bathroom tonight.
