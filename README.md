@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Your lucky number has been disconnected.
