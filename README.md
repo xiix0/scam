@@ -1,2 +1,3 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+In a museum in Havana, there are two skulls of Christopher Columbus,
+"one when he was a boy and one when he was a man."
+		-- Mark Twain
