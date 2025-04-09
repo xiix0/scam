@@ -1,2 +1,2 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
