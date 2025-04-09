@@ -1,2 +1,2 @@
-Patch griefs with proverbs.
-		-- William Shakespeare, "Much Ado About Nothing"
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
