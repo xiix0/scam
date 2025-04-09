@@ -1,1 +1,1 @@
-You will always get the greatest recognition for the job you least like.
+Beware of a tall black man with one blond shoe.
