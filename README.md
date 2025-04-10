@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+People are beginning to notice you.  Try dressing before you leave the house.
