@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+Q:	What's the difference between Bell Labs and the Boy Scouts of America?
+A:	The Boy Scouts have adult supervision.
