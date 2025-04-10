@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+You own a dog, but you can only feed a cat.
