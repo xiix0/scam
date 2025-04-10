@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+You teach best what you most need to learn.
