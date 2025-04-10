@@ -1,1 +1,2 @@
-Today is the first day of the rest of your life.
+"... all the modern inconveniences ..."
+		-- Mark Twain
