@@ -1,1 +1,1 @@
-You will contract a rare disease.
+If you sow your wild oats, hope for a crop failure.
