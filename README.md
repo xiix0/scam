@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+Today is the first day of the rest of your life.
