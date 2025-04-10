@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
