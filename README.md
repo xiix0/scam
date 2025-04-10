@@ -1,1 +1,1 @@
-Bank error in your favor.  Collect $200.
+You may get an opportunity for advancement today.  Watch it!
