@@ -1,1 +1,2 @@
-Accent on helpful side of your nature.  Drain the moat.
+All generalizations are false, including this one.
+		-- Mark Twain
