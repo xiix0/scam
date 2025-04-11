@@ -1,2 +1,2 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
