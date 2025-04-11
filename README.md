@@ -1,1 +1,2 @@
-Excellent day to have a rotten day.
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
