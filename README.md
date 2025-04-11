@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+Do nothing unless you must, and when you must act -- hesitate.
