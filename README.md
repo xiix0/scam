@@ -1,1 +1,2 @@
-You will step on the night soil of many countries.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
