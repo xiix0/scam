@@ -1,1 +1,1 @@
-You will be reincarnated as a toad; and you will be much happier.
+Your society will be sought by people of taste and refinement.
