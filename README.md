@@ -1,2 +1,2 @@
-There is a great discovery still to be made in Literature: that of
-paying literary men by the quantity they do NOT write.
+Q:	How many IBM 370's does it take to execute a job?
+A:	Four, three to hold it down, and one to rip its head off.
