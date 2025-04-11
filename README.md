@@ -1,1 +1,2 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
