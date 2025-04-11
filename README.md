@@ -1,3 +1,4 @@
-Q:	How many bureaucrats does it take to screw in a light bulb?
-A:	Two.  One to assure everyone that everything possible is being
-	done while the other screws the bulb into the water faucet.
+In Marseilles they make half the toilet soap we consume in America, but
+the Marseillaise only have a vague theoretical idea of its use, which they
+have obtained from books of travel.
+		-- Mark Twain
