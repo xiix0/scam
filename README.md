@@ -1,2 +1,2 @@
-Kiss me, Kate, we will be married o' Sunday.
-		-- William Shakespeare, "The Taming of the Shrew"
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
