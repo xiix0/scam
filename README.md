@@ -1,2 +1,1 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+A gift of a flower will soon be made to you.
