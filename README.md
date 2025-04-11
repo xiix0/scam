@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+You will step on the night soil of many countries.
