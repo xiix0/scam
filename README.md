@@ -1,2 +1,1 @@
-Extreme fear can neither fight nor fly.
-		-- William Shakespeare, "The Rape of Lucrece"
+You will be reincarnated as a toad; and you will be much happier.
