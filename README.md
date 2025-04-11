@@ -1,2 +1,1 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
