@@ -1,1 +1,3 @@
-Don't hate yourself in the morning -- sleep till noon.
+In a museum in Havana, there are two skulls of Christopher Columbus,
+"one when he was a boy and one when he was a man."
+		-- Mark Twain
