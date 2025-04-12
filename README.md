@@ -1,1 +1,1 @@
-Alimony and bribes will engage a large share of your wealth.
+You have Egyptian flu: you're going to be a mummy.
