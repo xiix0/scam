@@ -1,1 +1,2 @@
-You will have a long and unpleasant discussion with your supervisor.
+I'll burn my books.
+		-- Christopher Marlowe
