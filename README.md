@@ -1,2 +1,2 @@
-Q:	What do you call a half-dozen Indians with Asian flu?
-A:	Six sick Sikhs (sic).
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
