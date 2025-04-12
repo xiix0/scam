@@ -1,1 +1,2 @@
-Today is the first day of the rest of the mess.
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
