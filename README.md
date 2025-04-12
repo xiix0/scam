@@ -1,1 +1,3 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+Work consists of whatever a body is obliged to do.
+Play consists of whatever a body is not obliged to do.
+		-- Mark Twain
