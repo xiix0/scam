@@ -1,1 +1,1 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+You will be married within a year, and divorced within two.
