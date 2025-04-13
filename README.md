@@ -1,2 +1,2 @@
-I fell asleep reading a dull book, and I dreamt that I was reading on,
-so I woke up from sheer boredom.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
