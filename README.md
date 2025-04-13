@@ -1,1 +1,2 @@
-You may be recognized soon.  Hide.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
