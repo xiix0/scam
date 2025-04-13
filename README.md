@@ -1,2 +1,2 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
