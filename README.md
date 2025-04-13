@@ -1,1 +1,1 @@
-Be different: conform.
+Try to get all of your posthumous medals in advance.
