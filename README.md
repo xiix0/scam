@@ -1,1 +1,2 @@
-Executive ability is prominent in your make-up.
+Your goose is cooked.
+(Your current chick is burned up too!)
