@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+You're currently going through a difficult transition period called "Life."
