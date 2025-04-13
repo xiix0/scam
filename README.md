@@ -1,2 +1,3 @@
-What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+Habit is habit, and not to be flung out of the window by any man, but coaxed
+down-stairs a step at a time.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar
