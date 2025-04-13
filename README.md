@@ -1,2 +1,3 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+Q:	Why is it that the more accuracy you demand from an interpolation
+	function, the more expensive it becomes to compute?
+A:	That's the Law of Spline Demand.
