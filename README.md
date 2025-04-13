@@ -1,2 +1,2 @@
-I fell asleep reading a dull book, and I dreamt that I was reading on,
-so I woke up from sheer boredom.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
