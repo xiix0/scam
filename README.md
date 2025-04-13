@@ -1,1 +1,1 @@
-There was a phone call for you.
+Your love life will be happy and harmonious.
