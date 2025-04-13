@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+Good day to let down old friends who need help.
