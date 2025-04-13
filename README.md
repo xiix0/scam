@@ -1,2 +1,2 @@
-question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+Your goose is cooked.
+(Your current chick is burned up too!)
