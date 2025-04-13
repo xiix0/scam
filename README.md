@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+Abandon the search for Truth; settle for a good fantasy.
