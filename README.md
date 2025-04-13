@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+You're ugly and your mother dresses you funny.
