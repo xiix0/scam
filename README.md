@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+You may be infinitely smaller than some things, but you're infinitely
+larger than others.
