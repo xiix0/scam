@@ -1,2 +1,3 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
