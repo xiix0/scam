@@ -1,1 +1,2 @@
-Look afar and see the end from the beginning.
+Q:	How many Martians does it take to screw in a light bulb?
+A:	One and a half.
