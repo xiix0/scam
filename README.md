@@ -1,2 +1,2 @@
-Never laugh at live dragons.
-		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
+I fell asleep reading a dull book, and I dreamt that I was reading on,
+so I woke up from sheer boredom.
