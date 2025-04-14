@@ -1,2 +1,1 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+You like to form new friendships and make new acquaintances.
