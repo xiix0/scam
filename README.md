@@ -1,1 +1,1 @@
-What happened last night can happen again.
+You will be surprised by a loud noise.
