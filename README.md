@@ -1,2 +1,2 @@
-Always the dullness of the fool is the whetstone of the wits.
-		-- William Shakespeare, "As You Like It"
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
