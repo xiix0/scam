@@ -1,2 +1,2 @@
-Q:	How many IBM 370's does it take to execute a job?
-A:	Four, three to hold it down, and one to rip its head off.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
