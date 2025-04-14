@@ -1,2 +1,2 @@
-I fell asleep reading a dull book, and I dreamt that I was reading on,
-so I woke up from sheer boredom.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
