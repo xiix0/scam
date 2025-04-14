@@ -1,2 +1,1 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+You'll be called to a post requiring ability in handling groups of people.
