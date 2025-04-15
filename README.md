@@ -1,2 +1,1 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+You love your home and want it to be beautiful.
