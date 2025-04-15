@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
