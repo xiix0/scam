@@ -1,1 +1,1 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Do something unusual today.  Pay a bill.
