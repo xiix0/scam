@@ -1,1 +1,3 @@
-Caution: breathing may be hazardous to your health.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
