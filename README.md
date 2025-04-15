@@ -1,2 +1,1 @@
-"... all the modern inconveniences ..."
-		-- Mark Twain
+Caution: breathing may be hazardous to your health.
