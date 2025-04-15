@@ -1,1 +1,1 @@
-You possess a mind not merely twisted, but actually sprained.
+You've been leading a dog's life.  Stay off the furniture.
