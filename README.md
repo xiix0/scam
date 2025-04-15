@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
