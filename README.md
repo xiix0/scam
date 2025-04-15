@@ -1,1 +1,2 @@
-You love your home and want it to be beautiful.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
