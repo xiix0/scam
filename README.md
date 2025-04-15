@@ -1,2 +1,2 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+You are destined to become the commandant of the fighting men of the
+department of transportation.
