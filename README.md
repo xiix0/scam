@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+Your sister swims out to meet troop ships.
