@@ -1,2 +1,1 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+You never know how many friends you have until you rent a house on the beach.
