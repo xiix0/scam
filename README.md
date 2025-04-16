@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+Live in a world of your own, but always welcome visitors.
