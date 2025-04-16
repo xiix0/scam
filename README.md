@@ -1,1 +1,2 @@
-Live in a world of your own, but always welcome visitors.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
