@@ -1,1 +1,2 @@
-Your ignorance cramps my conversation.
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
