@@ -1,2 +1,1 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+You plan things that you do not even attempt because of your extreme caution.
