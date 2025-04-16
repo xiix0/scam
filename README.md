@@ -1,1 +1,1 @@
-You will be honored for contributing your time and skill to a worthy cause.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
