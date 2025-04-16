@@ -1,1 +1,1 @@
-You look tired.
+You teach best what you most need to learn.
