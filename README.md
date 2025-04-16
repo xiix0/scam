@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+You will have a long and unpleasant discussion with your supervisor.
