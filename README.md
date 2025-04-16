@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+Alimony and bribes will engage a large share of your wealth.
