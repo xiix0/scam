@@ -1,1 +1,2 @@
-If you can read this, you're too close.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
