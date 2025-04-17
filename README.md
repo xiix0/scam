@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+A few hours grace before the madness begins again.
