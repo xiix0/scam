@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+You can create your own opportunities this week.  Blackmail a senior executive.
