@@ -1,1 +1,2 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
