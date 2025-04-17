@@ -1,1 +1,2 @@
-Slow day.  Practice crawling.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
