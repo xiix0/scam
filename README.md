@@ -1,1 +1,2 @@
-You'll never be the man your mother was!
+Q:	What is purple and commutes?
+A:	An Abelian grape.
