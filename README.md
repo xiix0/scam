@@ -1,2 +1,2 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
