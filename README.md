@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Try to have as good a life as you can under the circumstances.
