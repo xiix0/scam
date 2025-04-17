@@ -1,1 +1,2 @@
-Try to have as good a life as you can under the circumstances.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
