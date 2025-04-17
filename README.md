@@ -1,2 +1,3 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+Q:	What's the difference between a dead dog in the road and a dead
+	lawyer in the road?
+A:	There are skid marks in front of the dog.
