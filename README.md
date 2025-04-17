@@ -1,3 +1,1 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+You're working under a slight handicap.  You happen to be human.
