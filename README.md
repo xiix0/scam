@@ -1,2 +1,2 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
-		-- Mark Twain
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
