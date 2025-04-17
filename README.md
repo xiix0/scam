@@ -1,1 +1,2 @@
-You will be run over by a bus.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
