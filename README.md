@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+Best of all is never to have been born.  Second best is to die soon.
