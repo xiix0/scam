@@ -1,2 +1,3 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
