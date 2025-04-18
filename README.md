@@ -1,1 +1,1 @@
-Long life is in store for you.
+You will engage in a profitable business activity.
