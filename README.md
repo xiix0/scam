@@ -1,2 +1,2 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+Q:	How many IBM 370's does it take to execute a job?
+A:	Four, three to hold it down, and one to rip its head off.
