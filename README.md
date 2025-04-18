@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
