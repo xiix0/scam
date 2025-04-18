@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+Long life is in store for you.
