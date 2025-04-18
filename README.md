@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+Avert misunderstanding by calm, poise, and balance.
