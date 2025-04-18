@@ -1,3 +1,3 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
+The difference between the right word and the almost right word is the
+difference between lightning and the lightning bug.
 		-- Mark Twain
