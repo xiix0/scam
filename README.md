@@ -1,2 +1,1 @@
-This night methinks is but the daylight sick.
-		-- William Shakespeare, "The Merchant of Venice"
+Your life would be very empty if you had nothing to regret.
