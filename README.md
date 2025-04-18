@@ -1,1 +1,1 @@
-Many pages make a thick book.
+Everything will be just tickety-boo today.
