@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Someone is speaking well of you.
