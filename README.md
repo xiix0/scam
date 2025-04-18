@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Never look up when dragons fly overhead.
