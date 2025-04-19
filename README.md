@@ -1,1 +1,1 @@
-Break into jail and claim police brutality.
+Chicken Little only has to be right once.
