@@ -1,1 +1,2 @@
-Slow day.  Practice crawling.
+A is for Apple.
+		-- Hester Pryne
