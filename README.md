@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
