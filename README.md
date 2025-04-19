@@ -1,2 +1,2 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+Q:	What do Winnie the Pooh and John the Baptist have in common?
+A:	The same middle name.
