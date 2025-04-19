@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
