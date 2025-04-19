@@ -1,2 +1,2 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
