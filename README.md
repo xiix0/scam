@@ -1,2 +1,1 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
