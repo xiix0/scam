@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+After your lover has gone you will still have PEANUT BUTTER!
