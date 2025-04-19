@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+Break into jail and claim police brutality.
