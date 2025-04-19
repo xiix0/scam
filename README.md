@@ -1,3 +1,6 @@
-In the first place, God made idiots; this was for practice; then he made
-school boards.
-		-- Mark Twain
+Q:	How do you shoot a blue elephant?
+A:	With a blue-elephant gun.
+
+Q:	How do you shoot a pink elephant?
+A:	Twist its trunk until it turns blue, then shoot it with
+	a blue-elephant gun.
