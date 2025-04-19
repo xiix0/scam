@@ -1,1 +1,1 @@
-You have the body of a 19 year old.  Please return it before it gets wrinkled.
+You will win success in whatever calling you adopt.
