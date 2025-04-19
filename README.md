@@ -1,1 +1,2 @@
-Chicken Little only has to be right once.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
