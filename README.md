@@ -1,1 +1,2 @@
-Accent on helpful side of your nature.  Drain the moat.
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
