@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+You have the power to influence all with whom you come in contact.
