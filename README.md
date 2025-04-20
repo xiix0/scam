@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+You have had a long-term stimulation relative to business.
