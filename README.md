@@ -1,1 +1,1 @@
-You have had a long-term stimulation relative to business.
+If you sow your wild oats, hope for a crop failure.
