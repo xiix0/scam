@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+Life is to you a dashing and bold adventure.
