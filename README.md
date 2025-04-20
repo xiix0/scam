@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+All generalizations are false, including this one.
+		-- Mark Twain
