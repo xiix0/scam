@@ -1,3 +1,2 @@
-Someone is speaking well of you.
-
-How unusual!
+Something's rotten in the state of Denmark.
+		-- Shakespeare
