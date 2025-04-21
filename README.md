@@ -1,1 +1,2 @@
-Try to get all of your posthumous medals in advance.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
