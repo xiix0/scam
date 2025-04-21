@@ -1,1 +1,1 @@
-Give your very best today.  Heaven knows it's little enough.
+Don't you wish you had more energy... or less ambition?
