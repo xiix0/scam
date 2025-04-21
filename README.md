@@ -1,1 +1,3 @@
-You will soon meet a person who will play an important role in your life.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
+A:	The Royal Canadian Mounted Police.
+Q:	What was the greatest achievement in taxidermy?
