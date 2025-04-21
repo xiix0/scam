@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+Beware of a dark-haired man with a loud tie.
