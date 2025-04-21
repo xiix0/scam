@@ -1,2 +1,2 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
