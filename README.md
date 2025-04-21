@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+Of course you have a purpose -- to find a purpose.
