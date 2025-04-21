@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+You will soon meet a person who will play an important role in your life.
