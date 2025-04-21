@@ -1,1 +1,2 @@
-Your sister swims out to meet troop ships.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
