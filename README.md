@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+It was all so different before everything changed.
