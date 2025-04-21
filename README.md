@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+Try to get all of your posthumous medals in advance.
