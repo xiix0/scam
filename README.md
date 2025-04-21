@@ -1,2 +1,1 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+People are beginning to notice you.  Try dressing before you leave the house.
