@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+You don't become a failure until you're satisfied with being one.
