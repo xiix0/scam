@@ -1,1 +1,2 @@
-Q:	How do you keep a moron in suspense?
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
