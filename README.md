@@ -1,2 +1,1 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+You will step on the night soil of many countries.
