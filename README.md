@@ -1,2 +1,2 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
