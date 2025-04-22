@@ -1,1 +1,2 @@
-You will be married within a year, and divorced within two.
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
