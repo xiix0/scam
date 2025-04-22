@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
