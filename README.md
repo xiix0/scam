@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+You are capable of planning your future.
