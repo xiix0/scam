@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
