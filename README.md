@@ -1,2 +1,1 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+Tuesday is the Wednesday of the rest of your life.
