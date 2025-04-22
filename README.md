@@ -1,1 +1,1 @@
-Tuesday is the Wednesday of the rest of your life.
+Courage is your greatest present need.
