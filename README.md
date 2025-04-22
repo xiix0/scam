@@ -1,2 +1,1 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+Do something unusual today.  Pay a bill.
