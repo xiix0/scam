@@ -1,1 +1,1 @@
-You are capable of planning your future.
+If you stand on your head, you will get footprints in your hair.
