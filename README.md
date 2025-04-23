@@ -1,2 +1,1 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Perfect day for scrubbing the floor and other exciting things.
