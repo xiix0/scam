@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
