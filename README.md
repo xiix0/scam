@@ -1,1 +1,2 @@
-You will give someone a piece of your mind, which you can ill afford.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
