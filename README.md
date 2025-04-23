@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+Your heart is pure, and your mind clear, and your soul devout.
