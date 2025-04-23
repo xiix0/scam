@@ -1,1 +1,2 @@
-Be careful!  UGLY strikes 9 out of 10!
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
