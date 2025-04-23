@@ -1,1 +1,2 @@
-You will be the last person to buy a Chrysler.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
