@@ -1,2 +1,2 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
