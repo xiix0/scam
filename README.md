@@ -1,2 +1,1 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+You will be audited by the Internal Revenue Service.
