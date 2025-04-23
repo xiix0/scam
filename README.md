@@ -1,1 +1,1 @@
-Hope that the day after you die is a nice day.
+Beware of a dark-haired man with a loud tie.
