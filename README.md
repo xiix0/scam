@@ -1,1 +1,2 @@
-If you stand on your head, you will get footprints in your hair.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
