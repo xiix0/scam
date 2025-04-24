@@ -1,2 +1,2 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
