@@ -1,2 +1,1 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+You seek to shield those you love and you like the role of the provider.
