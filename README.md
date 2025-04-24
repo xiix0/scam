@@ -1,1 +1,2 @@
-You never hesitate to tackle the most difficult problems.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
