@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+Don't relax!  It's only your tension that's holding you together.
