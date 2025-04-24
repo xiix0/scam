@@ -1,1 +1,1 @@
-Tomorrow will be cancelled due to lack of interest.
+Your boyfriend takes chocolate from strangers.
