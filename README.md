@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+You definitely intend to start living sometime soon.
