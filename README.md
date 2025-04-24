@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+Stay the curse.
