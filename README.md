@@ -1,1 +1,2 @@
-Be security conscious -- National defense is at stake.
+A is for Apple.
+		-- Hester Pryne
