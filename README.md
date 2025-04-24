@@ -1,1 +1,2 @@
-Do not sleep in a eucalyptus tree tonight.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
