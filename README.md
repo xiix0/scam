@@ -1,3 +1,3 @@
-Q:	What do you call the scratches that you get when a female
-	sheep bites you?
-A:	Ewe nicks.
+Perilous to all of us are the devices of an art deeper than we ourselves
+possess.
+		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
