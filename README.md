@@ -1,2 +1,2 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
