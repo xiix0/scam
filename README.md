@@ -1,3 +1,3 @@
-Q:	What do you call a WASP who doesn't work for his father, isn't a
-	lawyer, and believes in social causes?
-A:	A failure.
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
