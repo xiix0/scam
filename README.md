@@ -1,1 +1,2 @@
-You may get an opportunity for advancement today.  Watch it!
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
