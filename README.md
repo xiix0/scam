@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+You may get an opportunity for advancement today.  Watch it!
