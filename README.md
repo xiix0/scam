@@ -1,1 +1,2 @@
-Give your very best today.  Heaven knows it's little enough.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
