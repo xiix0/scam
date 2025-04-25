@@ -1,1 +1,1 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+Truth will out this morning.  (Which may really mess things up.)
