@@ -1,1 +1,2 @@
-You will have long and healthy life.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
