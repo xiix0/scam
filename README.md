@@ -1,1 +1,1 @@
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+Give your very best today.  Heaven knows it's little enough.
