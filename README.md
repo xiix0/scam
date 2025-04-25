@@ -1,3 +1,1 @@
-Q:	Know what the difference between your latest project
-	and putting wings on an elephant is?
-A:	Who knows?  The elephant *might* fly, heh, heh...
+This life is yours.  Some of it was given to you; the rest, you made yourself.
