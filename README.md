@@ -1,3 +1,3 @@
-A banker is a fellow who lends you his umbrella when the sun is shining
-and wants it back the minute it begins to rain.
-		-- Mark Twain
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
