@@ -1,1 +1,1 @@
-Your love life will be happy and harmonious.
+Among the lucky, you are the chosen one.
