@@ -1,1 +1,1 @@
-You will wish you hadn't.
+Time to be aggressive.  Go after a tattooed Virgo.
