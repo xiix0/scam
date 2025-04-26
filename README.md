@@ -1,2 +1,3 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+It is by the fortune of God that, in this country, we have three benefits:
+freedom of speech, freedom of thought, and the wisdom never to use either.
+		-- Mark Twain
