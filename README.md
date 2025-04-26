@@ -1,3 +1,3 @@
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
-Some think it is the voice of God.
-		-- Mark Twain
+Habit is habit, and not to be flung out of the window by any man, but coaxed
+down-stairs a step at a time.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar
