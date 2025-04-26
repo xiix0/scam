@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+You possess a mind not merely twisted, but actually sprained.
