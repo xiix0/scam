@@ -1,2 +1,1 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+This life is yours.  Some of it was given to you; the rest, you made yourself.
