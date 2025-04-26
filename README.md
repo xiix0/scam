@@ -1,1 +1,1 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+Ships are safe in harbor, but they were never meant to stay there.
