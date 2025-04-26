@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
