@@ -1,2 +1,1 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
-		-- Mark Twain
+Your fly might be open (but don't check it just now).
