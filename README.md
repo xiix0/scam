@@ -1,2 +1,2 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
