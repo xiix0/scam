@@ -1,1 +1,2 @@
-You possess a mind not merely twisted, but actually sprained.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
