@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
