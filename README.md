@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+Fine day to work off excess energy.  Steal something heavy.
