@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+There will be big changes for you but you will be happy.
