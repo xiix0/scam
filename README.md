@@ -1,1 +1,1 @@
-You are number 6!  Who is number one?
+You will probably marry after a very brief courtship.
