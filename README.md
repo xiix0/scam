@@ -1,1 +1,2 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
