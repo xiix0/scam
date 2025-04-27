@@ -1,2 +1,2 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
