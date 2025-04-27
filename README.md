@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Go to a movie tonight.  Darkness becomes you.
