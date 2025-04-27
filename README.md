@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+You will always get the greatest recognition for the job you least like.
