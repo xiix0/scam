@@ -1,2 +1,1 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+Beauty and harmony are as necessary to you as the very breath of life.
