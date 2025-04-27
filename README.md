@@ -1,1 +1,1 @@
-You will step on the night soil of many countries.
+It was all so different before everything changed.
