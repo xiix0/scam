@@ -1,1 +1,2 @@
-Today is what happened to yesterday.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
