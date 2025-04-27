@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
