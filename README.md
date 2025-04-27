@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
