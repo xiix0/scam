@@ -1,2 +1,3 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
