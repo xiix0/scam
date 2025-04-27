@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+"Life, loathe it or ignore it, you can't like it."
+		-- Marvin, "Hitchhiker's Guide to the Galaxy"
