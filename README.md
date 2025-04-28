@@ -1,2 +1,4 @@
-What good is an obscenity trial except to popularize literature?
-		-- Nero Wolfe, "The League of Frightened Men"
+O, it is excellent
+To have a giant's strength; but it is tyrannous
+To use it like a giant.
+		-- Shakespeare, "Measure for Measure", II, 2
