@@ -1,2 +1,1 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+Increased knowledge will help you now.  Have mate's phone bugged.
