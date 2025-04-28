@@ -1,1 +1,2 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+The Public is merely a multiplied "me."
+		-- Mark Twain
