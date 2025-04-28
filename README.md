@@ -1,1 +1,2 @@
-You will win success in whatever calling you adopt.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
