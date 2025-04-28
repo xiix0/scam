@@ -1,2 +1,3 @@
-Q:	Why do WASPs play golf ?
-A:	So they can dress like pimps.
+Soap and education are not as sudden as a massacre, but they are more
+deadly in the long run.
+		-- Mark Twain
