@@ -1,2 +1,1 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+Learn to pause -- or nothing worthwhile can catch up to you.
