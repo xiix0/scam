@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+You will win success in whatever calling you adopt.
