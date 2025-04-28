@@ -1,2 +1,2 @@
-Q:	How many supply-siders does it take to change a light bulb?
-A:	None.  The darkness will cause the light bulb to change by itself.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
