@@ -1,1 +1,2 @@
-You're currently going through a difficult transition period called "Life."
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
