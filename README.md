@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+Perfect day for scrubbing the floor and other exciting things.
