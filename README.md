@@ -1,2 +1,1 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+Today is the first day of the rest of the mess.
