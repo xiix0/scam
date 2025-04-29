@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
