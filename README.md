@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+Is that really YOU that is reading this?
