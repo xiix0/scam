@@ -1,2 +1,3 @@
-Q:	How many Marxists does it take to screw in a light bulb?
-A:	None:  The light bulb contains the seeds of its own revolution.
+Q:	How does a hacker fix a function which
+	doesn't work for all of the elements in its domain?
+A:	He changes the domain.
