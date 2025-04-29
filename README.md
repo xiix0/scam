@@ -1,1 +1,1 @@
-Life is to you a dashing and bold adventure.
+Is that really YOU that is reading this?
