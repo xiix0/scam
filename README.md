@@ -1,3 +1,1 @@
-Its name is Public Opinion.  It is held in reverence.  It settles everything.
-Some think it is the voice of God.
-		-- Mark Twain
+You have a deep appreciation of the arts and music.
