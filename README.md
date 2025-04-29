@@ -1,1 +1,1 @@
-Today is the tomorrow you worried about yesterday.
+You'll feel much better once you've given up hope.
