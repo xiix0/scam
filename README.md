@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+You are confused; but this is your normal state.
