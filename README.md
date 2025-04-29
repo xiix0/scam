@@ -1,1 +1,2 @@
-Your love life will be happy and harmonious.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
