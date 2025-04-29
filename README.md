@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+Excellent time to become a missing person.
