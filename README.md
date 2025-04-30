@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
