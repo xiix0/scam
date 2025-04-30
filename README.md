@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Tomorrow will be cancelled due to lack of interest.
