@@ -1,6 +1,6 @@
-There are three infallible ways of pleasing an author, and the three form a
-rising scale of compliment: 1, to tell him you have read one of his books; 2,
-to tell him you have read all of his books; 3, to ask him to let you read the
-manuscript of his forthcoming book.  No. 1 admits you to his respect; No. 2
-admits you to his admiration; No. 3 carries you clear into his heart.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Stop!  There was first a game of blindman's buff.  Of course there was.
+And I no more believe Topper was really blind than I believe he had eyes
+in his boots.  My opinion is, that it was a done thing between him and
+Scrooge's nephew; and that the Ghost of Christmas Present knew it.  The
+way he went after that plump sister in the lace tucker, was an outrage
+on the credulity of human nature.
