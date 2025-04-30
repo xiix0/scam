@@ -1,1 +1,1 @@
-After your lover has gone you will still have PEANUT BUTTER!
+This will be a memorable month -- no matter how hard you try to forget it.
