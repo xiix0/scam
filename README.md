@@ -1,1 +1,3 @@
-Let me put it this way: today is going to be a learning experience.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
