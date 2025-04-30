@@ -1,3 +1,3 @@
-Q:	Why does Washington have the most lawyers per capita and
-	New Jersey the most toxic waste dumps?
-A:	God gave New Jersey first choice.
+The only way to keep your health is to eat what you don't want, drink what
+you don't like, and do what you'd rather not.
+		-- Mark Twain
