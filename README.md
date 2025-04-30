@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Future looks spotty.  You will spill soup in late evening.
