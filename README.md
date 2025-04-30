@@ -1,1 +1,1 @@
-You will engage in a profitable business activity.
+Tonight's the night: Sleep in a eucalyptus tree.
