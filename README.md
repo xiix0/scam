@@ -1,1 +1,2 @@
-Your own qualities will help prevent your advancement in the world.
+Always do right.  This will gratify some people and astonish the rest.
+		-- Mark Twain
