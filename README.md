@@ -1,1 +1,2 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
