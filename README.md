@@ -1,1 +1,1 @@
-Communicate!  It can't make things any worse.
+Cheer Up!  Things are getting worse at a slower rate.
