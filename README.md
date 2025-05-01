@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+Reply hazy, ask again later.
