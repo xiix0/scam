@@ -1,3 +1,2 @@
-Zounds!  I was never so bethumped with words
-since I first called my brother's father dad.
-		-- William Shakespeare, "Kind John"
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
