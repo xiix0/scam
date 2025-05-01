@@ -1,1 +1,2 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
