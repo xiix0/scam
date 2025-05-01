@@ -1,2 +1,1 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+Good news.  Ten weeks from Friday will be a pretty good day.
