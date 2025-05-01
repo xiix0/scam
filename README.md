@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+You will receive a legacy which will place you above want.
