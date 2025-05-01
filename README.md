@@ -1,1 +1,1 @@
-If you stand on your head, you will get footprints in your hair.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
