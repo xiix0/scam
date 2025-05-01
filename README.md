@@ -1,1 +1,2 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+Wagner's music is better than it sounds.
+		-- Mark Twain
