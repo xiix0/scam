@@ -1,2 +1,1 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+You will be reincarnated as a toad; and you will be much happier.
