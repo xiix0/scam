@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+In the stairway of life, you'd best take the elevator.
