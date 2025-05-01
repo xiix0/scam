@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
