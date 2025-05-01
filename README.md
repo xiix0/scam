@@ -1,1 +1,2 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Familiarity breeds contempt -- and children.
+		-- Mark Twain
