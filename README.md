@@ -1,5 +1,2 @@
-Q:	What do you call a blind pre-historic animal?
-A:	Diyathinkhesaurus.
-
-Q:	What do you call a blind pre-historic animal with a dog?
-A:	Diyathinkhesaurus Rex.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
