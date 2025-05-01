@@ -1,2 +1,2 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
