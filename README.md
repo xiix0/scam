@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+Are you ever going to do the dishes?  Or will you change your major to biology?
