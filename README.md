@@ -1,9 +1,6 @@
-Q:	How many DEC repairman does it take to fix a flat?
-A:	Five; four to hold the car up and one to swap tires.
-
-Q:	How long does it take?
-A:	It's indeterminate.
-	It will depend upon how many flats they've brought with them.
-
-Q:	What happens if you've got TWO flats?
-A:	They replace your generator.
+Stop!  There was first a game of blindman's buff.  Of course there was.
+And I no more believe Topper was really blind than I believe he had eyes
+in his boots.  My opinion is, that it was a done thing between him and
+Scrooge's nephew; and that the Ghost of Christmas Present knew it.  The
+way he went after that plump sister in the lace tucker, was an outrage
+on the credulity of human nature.
