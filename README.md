@@ -1,6 +1,2 @@
-The bay-trees in our country are all wither'd
-And meteors fright the fixed stars of heaven;
-The pale-faced moon looks bloody on the earth
-And lean-look'd prophets whisper fearful change.
-These signs forerun the death or fall of kings.
-		-- Wm. Shakespeare, "Richard II"
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
