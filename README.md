@@ -1,1 +1,1 @@
-You are number 6!  Who is number one?
+Bank error in your favor.  Collect $200.
