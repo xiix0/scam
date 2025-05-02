@@ -1,1 +1,1 @@
-It may or may not be worthwhile, but it still has to be done.
+Expect a letter from a friend who will ask a favor of you.
