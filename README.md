@@ -1,1 +1,1 @@
-Bank error in your favor.  Collect $200.
+You will step on the night soil of many countries.
