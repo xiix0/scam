@@ -1,1 +1,2 @@
-You will become rich and famous unless you don't.
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
