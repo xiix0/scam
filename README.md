@@ -1,2 +1,3 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
