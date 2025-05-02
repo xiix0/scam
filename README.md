@@ -1,1 +1,1 @@
-You are number 6!  Who is number one?
+Excellent time to become a missing person.
