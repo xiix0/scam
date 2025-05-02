@@ -1,2 +1,9 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+Q:	How many DEC repairman does it take to fix a flat?
+A:	Five; four to hold the car up and one to swap tires.
+
+Q:	How long does it take?
+A:	It's indeterminate.
+	It will depend upon how many flats they've brought with them.
+
+Q:	What happens if you've got TWO flats?
+A:	They replace your generator.
