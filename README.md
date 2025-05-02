@@ -1,2 +1,2 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
