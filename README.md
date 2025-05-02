@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+You're working under a slight handicap.  You happen to be human.
