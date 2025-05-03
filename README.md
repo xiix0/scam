@@ -1,1 +1,1 @@
-A day for firm decisions!!!!!  Or is it?
+You will be honored for contributing your time and skill to a worthy cause.
