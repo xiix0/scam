@@ -1,1 +1,2 @@
-You will be surprised by a loud noise.
+Few things are harder to put up with than the annoyance of a good example.
+		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
