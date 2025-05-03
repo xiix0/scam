@@ -1,2 +1,2 @@
-Q:	What do agnostic, insomniac dyslexics do at night?
-A:	Stay awake and wonder if there's a dog.
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
