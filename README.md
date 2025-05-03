@@ -1,1 +1,1 @@
-You are number 6!  Who is number one?
+You're ugly and your mother dresses you funny.
