@@ -1,3 +1,2 @@
-Q:	Why haven't you graduated yet?
-A:	Well, Dad, I could have finished years ago, but I wanted
-	my dissertation to rhyme.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
