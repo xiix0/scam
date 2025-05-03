@@ -1,2 +1,1 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+You have a strong desire for a home and your family interests come first.
