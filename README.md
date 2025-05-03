@@ -1,1 +1,2 @@
-You are as I am with You.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
