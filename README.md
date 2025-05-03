@@ -1,2 +1,2 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+Q:	What is purple and commutes?
+A:	An Abelian grape.
