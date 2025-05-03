@@ -1,1 +1,2 @@
-That secret you've been guarding, isn't.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
