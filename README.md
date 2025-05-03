@@ -1,1 +1,1 @@
-You have a strong desire for a home and your family interests come first.
+Be careful!  UGLY strikes 9 out of 10!
