@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Don't kiss an elephant on the lips today.
