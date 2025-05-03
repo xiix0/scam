@@ -1,1 +1,2 @@
-You have a strong appeal for members of the opposite sex.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
