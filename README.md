@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+You are as I am with You.
