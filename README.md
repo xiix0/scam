@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+Never reveal your best argument.
