@@ -1,2 +1,3 @@
-There is a great discovery still to be made in Literature: that of
-paying literary men by the quantity they do NOT write.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
+A:	The Royal Canadian Mounted Police.
+Q:	What was the greatest achievement in taxidermy?
