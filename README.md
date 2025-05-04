@@ -1,1 +1,1 @@
-That secret you've been guarding, isn't.
+Your society will be sought by people of taste and refinement.
