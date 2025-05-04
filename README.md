@@ -1,1 +1,2 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+There is a great discovery still to be made in Literature: that of
+paying literary men by the quantity they do NOT write.
