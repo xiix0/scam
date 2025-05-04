@@ -1,1 +1,1 @@
-Are you a turtle?
+Your lucky number has been disconnected.
