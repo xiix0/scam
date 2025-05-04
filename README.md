@@ -1,2 +1,1 @@
-Big book, big bore.
-		-- Callimachus
+You will meet an important person who will help you advance professionally.
