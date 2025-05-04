@@ -1,3 +1,2 @@
-If one cannot enjoy reading a book over and over again, there is no use
-in reading it at all.
-		-- Oscar Wilde
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
