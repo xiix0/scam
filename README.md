@@ -1,2 +1,1 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+You will be imprisoned for contributing your time and skill to a bank robbery.
