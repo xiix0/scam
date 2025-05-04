@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
