@@ -1,2 +1,2 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
