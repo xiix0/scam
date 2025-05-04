@@ -1,1 +1,2 @@
-You will be traveling and coming into a fortune.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
