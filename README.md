@@ -1,1 +1,3 @@
-Your society will be sought by people of taste and refinement.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
