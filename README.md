@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+Good day to let down old friends who need help.
