@@ -1,1 +1,1 @@
-Everything will be just tickety-boo today.
+You work very hard.  Don't try to think as well.
