@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
-		-- Mark Twain
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
