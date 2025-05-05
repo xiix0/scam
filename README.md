@@ -1,4 +1,5 @@
-Q:	Why don't Scotsmen ever have coffee the way they like it?
-A:	Well, they like it with two lumps of sugar.  If they drink
-	it at home, they only take one, and if they drink it while
-	visiting, they always take three.
+Fortune: You will be attacked next Wednesday at 3:15 p.m. by six samurai
+sword wielding purple fish glued to Harley-Davidson motorcycles.
+
+Oh, and have a nice day!
+		-- Bryce Nesbitt '84
