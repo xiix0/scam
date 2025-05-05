@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+After your lover has gone you will still have PEANUT BUTTER!
