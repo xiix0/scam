@@ -1,1 +1,1 @@
-Don't let your mind wander -- it's too little to be let out alone.
+Beware of a tall black man with one blond shoe.
