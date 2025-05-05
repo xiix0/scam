@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+You've been leading a dog's life.  Stay off the furniture.
