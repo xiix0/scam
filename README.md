@@ -1,1 +1,2 @@
-Make a wish, it might come true.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
