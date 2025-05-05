@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+Never commit yourself!  Let someone else commit you.
