@@ -1,2 +1,3 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+Noise proves nothing.  Often a hen who has merely laid an egg cackles
+as if she laid an asteroid.
+		-- Mark Twain
