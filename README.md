@@ -1,1 +1,1 @@
-Good day to let down old friends who need help.
+Beware of a tall blond man with one black shoe.
