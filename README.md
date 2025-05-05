@@ -1,1 +1,3 @@
-You are a fluke of the universe; you have no right to be here.
+Zounds!  I was never so bethumped with words
+since I first called my brother's father dad.
+		-- William Shakespeare, "Kind John"
