@@ -1,2 +1,2 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
