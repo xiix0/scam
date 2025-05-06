@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Go to a movie tonight.  Darkness becomes you.
