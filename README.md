@@ -1,2 +1,2 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
