@@ -1,2 +1,2 @@
-I dote on his very absence.
-		-- William Shakespeare, "The Merchant of Venice"
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
