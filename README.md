@@ -1,2 +1,3 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+The man who sets out to carry a cat by its tail learns something that
+will always be useful and which never will grow dim or doubtful.
+		-- Mark Twain
