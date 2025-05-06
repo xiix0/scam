@@ -1,2 +1,2 @@
-The better part of valor is discretion.
-		-- William Shakespeare, "Henry IV"
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
