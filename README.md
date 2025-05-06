@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+Don't read any sky-writing for the next two weeks.
