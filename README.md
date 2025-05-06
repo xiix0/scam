@@ -1,2 +1,2 @@
-Q:	How many IBM CPU's does it take to do a logical right shift?
-A:	33.  1 to hold the bits and 32 to push the register.
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
