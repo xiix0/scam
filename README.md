@@ -1,1 +1,3 @@
-You have a deep appreciation of the arts and music.
+Someone is speaking well of you.
+
+How unusual!
