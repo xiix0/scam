@@ -1,1 +1,2 @@
-Your object is to save the world, while still leading a pleasant life.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
