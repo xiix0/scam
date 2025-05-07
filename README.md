@@ -1,3 +1,2 @@
-This is the first age that's paid much attention to the future, which is a
-little ironic since we may not have one.
-		-- Arthur Clarke
+Q:	What do Winnie the Pooh and John the Baptist have in common?
+A:	The same middle name.
