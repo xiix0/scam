@@ -1,2 +1,2 @@
-Q:	Why did Menachem Begin invade Lebanon?
-A:	To impress Jodie Foster.
+Q:	What's a light-year?
+A:	One-third less calories than a regular year.
