@@ -1,1 +1,1 @@
-In the stairway of life, you'd best take the elevator.
+You would if you could but you can't so you won't.
