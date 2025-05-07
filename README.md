@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+Your object is to save the world, while still leading a pleasant life.
