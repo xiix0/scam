@@ -1,4 +1,6 @@
-Behold, the fool saith, "Put not all thine eggs in the one basket"--which is
-but a manner of saying, "Scatter your money and your attention;" but the wise
-man saith, "Put all your eggs in the one basket and--WATCH THAT BASKET."
+The true Southern watermelon is a boon apart, and not to be mentioned with
+commoner things.  It is chief of the world's luxuries, king by the grace of God
+over all the fruits of the earth.  When one has tasted it, he knows what the
+angels eat.  It was not a Southern watermelon that Eve took; we know it because
+she repented.
 		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
