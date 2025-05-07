@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+Abandon the search for Truth; settle for a good fantasy.
