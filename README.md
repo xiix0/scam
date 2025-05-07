@@ -1,1 +1,1 @@
-Your aims are high, and you are capable of much.
+You will be reincarnated as a toad; and you will be much happier.
