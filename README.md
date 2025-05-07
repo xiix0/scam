@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+Do not sleep in a eucalyptus tree tonight.
