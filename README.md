@@ -1,1 +1,3 @@
-A visit to a strange place will bring fresh work.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
