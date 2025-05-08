@@ -1,2 +1,2 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
