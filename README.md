@@ -1,1 +1,1 @@
-Best of all is never to have been born.  Second best is to die soon.
+If your life was a horse, you'd have to shoot it.
