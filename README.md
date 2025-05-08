@@ -1,1 +1,2 @@
-Do not sleep in a eucalyptus tree tonight.
+You are wise, witty, and wonderful, but you spend too much time reading
+this sort of trash.
