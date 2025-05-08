@@ -1,1 +1,2 @@
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
