@@ -1,1 +1,2 @@
-You have a will that can be influenced by all with whom you come in contact.
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
