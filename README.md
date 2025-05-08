@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+You have a will that can be influenced by all with whom you come in contact.
