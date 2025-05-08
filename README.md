@@ -1,1 +1,2 @@
-Don't go surfing in South Dakota for a while.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
