@@ -1,1 +1,1 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Do nothing unless you must, and when you must act -- hesitate.
