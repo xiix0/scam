@@ -1,2 +1,2 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
