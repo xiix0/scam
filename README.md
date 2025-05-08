@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
