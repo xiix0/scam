@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
