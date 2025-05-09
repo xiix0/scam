@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+Tuesday After Lunch is the cosmic time of the week.
