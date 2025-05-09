@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+Increased knowledge will help you now.  Have mate's phone bugged.
