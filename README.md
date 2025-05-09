@@ -1,2 +1,2 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
