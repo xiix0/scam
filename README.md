@@ -1,1 +1,2 @@
-You will remember something that you should not have forgotten.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
