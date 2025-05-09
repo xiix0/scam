@@ -1,2 +1,6 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	One.  Only it's his light bulb when he's done.
+Q:	What did Tarzan say when he saw the elephants coming over the hill?
+A:	"The elephants are coming over the hill."
+
+Q:	What did he say when saw them coming over the hill wearing
+		sunglasses?
+A:	Nothing, for he didn't recognize them.
