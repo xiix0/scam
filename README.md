@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+You have a strong appeal for members of your own sex.
