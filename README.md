@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+Courage is your greatest present need.
