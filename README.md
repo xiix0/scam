@@ -1,1 +1,1 @@
-You may be recognized soon.  Hide.
+The time is right to make new friends.
