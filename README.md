@@ -1,2 +1,2 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
