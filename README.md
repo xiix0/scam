@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+A visit to a strange place will bring fresh work.
