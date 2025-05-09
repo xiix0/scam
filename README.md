@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+Generosity and perfection are your everlasting goals.
