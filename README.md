@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+Today is National Existential Ennui Awareness Day.
