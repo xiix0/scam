@@ -1,2 +1,2 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
