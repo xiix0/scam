@@ -1,2 +1,1 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+You have an unusual understanding of the problems of human relationships.
