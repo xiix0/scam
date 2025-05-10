@@ -1,1 +1,2 @@
-You are the only person to ever get this message.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
