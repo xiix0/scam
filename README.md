@@ -1,2 +1,2 @@
-There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
