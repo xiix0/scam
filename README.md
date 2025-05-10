@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Beware of a tall black man with one blond shoe.
