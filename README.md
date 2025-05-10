@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Good day for overcoming obstacles.  Try a steeplechase.
