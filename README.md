@@ -1,2 +1,2 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
