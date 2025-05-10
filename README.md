@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+You will always have good luck in your personal affairs.
