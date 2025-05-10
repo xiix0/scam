@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+Stay away from hurricanes for a while.
