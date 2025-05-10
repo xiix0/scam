@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+You prefer the company of the opposite sex, but are well liked by your own.
