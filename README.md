@@ -1,1 +1,1 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+Your aim is high and to the right.
