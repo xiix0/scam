@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Living your life is a task so difficult, it has never been attempted before.
