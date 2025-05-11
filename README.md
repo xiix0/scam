@@ -1,1 +1,3 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+Hain't we got all the fools in town on our side?  And hain't that a big
+enough majority in any town?
+		-- Mark Twain, "Huckleberry Finn"
