@@ -1,1 +1,3 @@
-It may or may not be worthwhile, but it still has to be done.
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
