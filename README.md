@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
