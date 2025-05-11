@@ -1,1 +1,1 @@
-Think twice before speaking, but don't say "think think click click".
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
