@@ -1,1 +1,2 @@
-You have an unusual understanding of the problems of human relationships.
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
