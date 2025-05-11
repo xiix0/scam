@@ -1,1 +1,1 @@
-Don't let your mind wander -- it's too little to be let out alone.
+You definitely intend to start living sometime soon.
