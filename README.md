@@ -1,2 +1,2 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
