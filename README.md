@@ -1,1 +1,2 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+Q:	Are we not men?
+A:	We are Vaxen.
