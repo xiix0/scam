@@ -1,1 +1,2 @@
-You definitely intend to start living sometime soon.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
