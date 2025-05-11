@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+You'd like to do it instantaneously, but that's too slow.
