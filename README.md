@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+Think twice before speaking, but don't say "think think click click".
