@@ -1,2 +1,2 @@
-If you laid all of our laws end to end, there would be no end.
+I have never let my schooling interfere with my education.
 		-- Mark Twain
