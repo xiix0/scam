@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Living your life is a task so difficult, it has never been attempted before.
