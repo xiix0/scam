@@ -1,2 +1,2 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
