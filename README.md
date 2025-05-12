@@ -1,1 +1,2 @@
-Everything that you know is wrong, but you can be straightened out.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
