@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
