@@ -1,1 +1,1 @@
-You will experience a strong urge to do good; but it will pass.
+A gift of a flower will soon be made to you.
