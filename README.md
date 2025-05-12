@@ -1,1 +1,2 @@
-Beware of a tall black man with one blond shoe.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
