@@ -1,3 +1,3 @@
-There is no hunting like the hunting of man, and those who have hunted
-armed men long enough and liked it, never care for anything else thereafter.
-		-- Ernest Hemingway
+Anyone who has had a bull by the tail knows five or six more things
+than someone who hasn't.
+		-- Mark Twain
