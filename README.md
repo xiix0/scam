@@ -1,1 +1,3 @@
-A gift of a flower will soon be made to you.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
