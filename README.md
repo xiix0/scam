@@ -1,2 +1,1 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+You are as I am with You.
