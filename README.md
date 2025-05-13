@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
