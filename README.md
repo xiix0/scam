@@ -1,2 +1,2 @@
-Always the dullness of the fool is the whetstone of the wits.
-		-- William Shakespeare, "As You Like It"
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
