@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+You have literary talent that you should take pains to develop.
