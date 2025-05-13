@@ -1,1 +1,2 @@
-You have a will that can be influenced by all with whom you come in contact.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
