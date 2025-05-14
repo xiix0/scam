@@ -1,1 +1,5 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+Q:	Why do ducks have big flat feet?
+A:	To stamp out forest fires.
+
+Q:	Why do elephants have big flat feet?
+A:	To stamp out flaming ducks.
