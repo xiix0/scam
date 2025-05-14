@@ -1,1 +1,1 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+You two ought to be more careful--your love could drag on for years and years.
