@@ -1,1 +1,1 @@
-The time is right to make new friends.
+A few hours grace before the madness begins again.
