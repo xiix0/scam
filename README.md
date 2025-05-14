@@ -1,1 +1,2 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+I'll burn my books.
+		-- Christopher Marlowe
