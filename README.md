@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+Of course you have a purpose -- to find a purpose.
