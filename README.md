@@ -1,1 +1,1 @@
-You have a strong desire for a home and your family interests come first.
+You are deeply attached to your friends and acquaintances.
