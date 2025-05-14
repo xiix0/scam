@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+The time is right to make new friends.
