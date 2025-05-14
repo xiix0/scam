@@ -1,1 +1,2 @@
-You two ought to be more careful--your love could drag on for years and years.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
