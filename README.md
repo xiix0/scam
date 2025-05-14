@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+You can create your own opportunities this week.  Blackmail a senior executive.
