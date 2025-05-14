@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
