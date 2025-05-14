@@ -1,1 +1,4 @@
-Today is National Existential Ennui Awareness Day.
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
