@@ -1,1 +1,3 @@
-You worry too much about your job.  Stop it.  You are not paid enough to worry.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
