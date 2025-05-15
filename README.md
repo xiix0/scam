@@ -1,2 +1,2 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
-		-- Mark Twain
+You'll wish that you had done some of the hard things when they were easier
+to do.
