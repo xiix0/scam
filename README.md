@@ -1,1 +1,2 @@
-In the stairway of life, you'd best take the elevator.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
