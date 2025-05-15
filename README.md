@@ -1,2 +1,1 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
