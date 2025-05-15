@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+Do something unusual today.  Pay a bill.
