@@ -1,1 +1,2 @@
-Don't you wish you had more energy... or less ambition?
+Be free and open and breezy!  Enjoy!  Things won't get any better so
+get used to it.
