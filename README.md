@@ -1,1 +1,2 @@
-Today is the last day of your life so far.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
