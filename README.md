@@ -1,1 +1,1 @@
-You will have long and healthy life.
+The time is right to make new friends.
