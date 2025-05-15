@@ -1,2 +1,5 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+October 12, the Discovery.
+
+It was wonderful to find America, but it would have been more wonderful to miss
+it.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
