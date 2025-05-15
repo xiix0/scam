@@ -1,2 +1,2 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+"... all the modern inconveniences ..."
+		-- Mark Twain
