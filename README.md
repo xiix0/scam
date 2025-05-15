@@ -1,3 +1,2 @@
-... A solemn, unsmiling, sanctimonious old iceberg who looked like he
-was waiting for a vacancy in the Trinity.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
 		-- Mark Twain
