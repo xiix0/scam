@@ -1,2 +1,1 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+You two ought to be more careful--your love could drag on for years and years.
