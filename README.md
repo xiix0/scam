@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+You will engage in a profitable business activity.
