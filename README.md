@@ -1,2 +1,2 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
