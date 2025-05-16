@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
