@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+You don't become a failure until you're satisfied with being one.
