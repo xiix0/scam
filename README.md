@@ -1,2 +1,2 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
