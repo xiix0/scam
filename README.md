@@ -1,2 +1,1 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+Don't plan any hasty moves.  You'll be evicted soon anyway.
