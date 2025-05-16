@@ -1,1 +1,1 @@
-You will be awarded a medal for disregarding safety in saving someone.
+You would if you could but you can't so you won't.
