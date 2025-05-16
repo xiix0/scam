@@ -1,1 +1,1 @@
-You will wish you hadn't.
+Your ignorance cramps my conversation.
