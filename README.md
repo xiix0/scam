@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+You will be awarded a medal for disregarding safety in saving someone.
