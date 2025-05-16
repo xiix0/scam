@@ -1,1 +1,2 @@
-You would if you could but you can't so you won't.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
