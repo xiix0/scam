@@ -1,1 +1,3 @@
-You will give someone a piece of your mind, which you can ill afford.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
