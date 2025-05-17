@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+Your aims are high, and you are capable of much.
