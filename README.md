@@ -1,1 +1,1 @@
-You possess a mind not merely twisted, but actually sprained.
+This will be a memorable month -- no matter how hard you try to forget it.
