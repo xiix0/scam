@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+Keep emotionally active.  Cater to your favorite neurosis.
