@@ -1,2 +1,1 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+Best of all is never to have been born.  Second best is to die soon.
