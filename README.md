@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+Try to get all of your posthumous medals in advance.
