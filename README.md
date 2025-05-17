@@ -1,1 +1,1 @@
-Excellent time to become a missing person.
+You will be the last person to buy a Chrysler.
