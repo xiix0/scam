@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+You are only young once, but you can stay immature indefinitely.
