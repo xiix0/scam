@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Caution: breathing may be hazardous to your health.
