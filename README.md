@@ -1,2 +1,2 @@
-Kiss me, Kate, we will be married o' Sunday.
-		-- William Shakespeare, "The Taming of the Shrew"
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
