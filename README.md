@@ -1,1 +1,2 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
