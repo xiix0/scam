@@ -1,3 +1,2 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
