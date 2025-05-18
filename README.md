@@ -1,2 +1,2 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
