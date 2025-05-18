@@ -1,3 +1,2 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
