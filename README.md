@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+That secret you've been guarding, isn't.
