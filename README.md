@@ -1,1 +1,2 @@
-Don't you wish you had more energy... or less ambition?
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
