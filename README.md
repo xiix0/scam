@@ -1,1 +1,1 @@
-You are a very redundant person, that's what kind of person you are.
+Your talents will be recognized and suitably rewarded.
