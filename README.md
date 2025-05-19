@@ -1,2 +1,2 @@
-Troubled day for virgins over 16 who are beautiful and wealthy and live
-in eucalyptus trees.
+There is a great discovery still to be made in Literature: that of
+paying literary men by the quantity they do NOT write.
