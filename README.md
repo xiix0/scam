@@ -1,1 +1,2 @@
-Today is the first day of the rest of your life.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
