@@ -1,1 +1,3 @@
-Of course you have a purpose -- to find a purpose.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
