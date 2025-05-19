@@ -1,1 +1,2 @@
-It may or may not be worthwhile, but it still has to be done.
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
