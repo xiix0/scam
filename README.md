@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
