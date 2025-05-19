@@ -1,2 +1,2 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
