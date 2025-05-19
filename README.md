@@ -1,3 +1,4 @@
-Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
-A:	Easy.  It's because they can't figure out how to get the little
-	bottles into the typewriter.
+Persons attempting to find a motive in this narrative will be prosecuted;
+persons attempting to find a moral in it will be banished; persons attempting
+to find a plot in it will be shot.  By Order of the Author
+		-- Mark Twain, "The Adventures of Huckleberry Finn"
