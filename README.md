@@ -1,2 +1,3 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
