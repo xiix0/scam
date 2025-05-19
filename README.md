@@ -1,2 +1,3 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
