@@ -1,3 +1,1 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+You'll be called to a post requiring ability in handling groups of people.
