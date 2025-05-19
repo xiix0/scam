@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+You are a bundle of energy, always on the go.
