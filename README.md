@@ -1,1 +1,3 @@
-All the troubles you have will pass away very quickly.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
