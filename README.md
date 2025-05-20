@@ -1,2 +1,2 @@
-Q:	What do you get when you cross the Godfather with an attorney?
-A:	An offer you can't understand.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
