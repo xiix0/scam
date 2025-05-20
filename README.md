@@ -1,2 +1,3 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
+that think they are truffles.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
