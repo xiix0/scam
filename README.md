@@ -1,1 +1,3 @@
-You have a deep interest in all that is artistic.
+There are more things in heaven and earth,
+Horatio, than are dreamt of in your philosophy.
+		-- Wm. Shakespeare, "Hamlet"
