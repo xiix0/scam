@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+You are a very redundant person, that's what kind of person you are.
