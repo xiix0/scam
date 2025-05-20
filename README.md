@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
