@@ -1,1 +1,2 @@
-You have had a long-term stimulation relative to business.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
