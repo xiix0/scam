@@ -1,1 +1,4 @@
-Don't worry so loud, your roommate can't think.
+AWAKE! FEAR! FIRE! FOES! AWAKE!
+	FEAR! FIRE! FOES!
+		AWAKE! AWAKE!
+		-- J. R. R. Tolkien
