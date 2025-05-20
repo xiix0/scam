@@ -1,4 +1,2 @@
-O, it is excellent
-To have a giant's strength; but it is tyrannous
-To use it like a giant.
-		-- Shakespeare, "Measure for Measure", II, 2
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
