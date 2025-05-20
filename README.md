@@ -1,1 +1,1 @@
-You can rent this space for only $5 a week.
+Among the lucky, you are the chosen one.
