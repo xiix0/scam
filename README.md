@@ -1,2 +1,2 @@
-Q:	What's the difference between a duck and an elephant?
-A:	You can't get down off an elephant.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
