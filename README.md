@@ -1,3 +1,3 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
