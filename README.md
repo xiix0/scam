@@ -1,2 +1,1 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+You're almost as happy as you think you are.
