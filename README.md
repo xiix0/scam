@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+Good day for overcoming obstacles.  Try a steeplechase.
