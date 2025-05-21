@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+Good news.  Ten weeks from Friday will be a pretty good day.
