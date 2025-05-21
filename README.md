@@ -1,1 +1,2 @@
-Life is to you a dashing and bold adventure.
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
