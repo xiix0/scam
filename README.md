@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You will receive a legacy which will place you above want.
