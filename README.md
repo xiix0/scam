@@ -1,3 +1,3 @@
-Q:	Minnesotans ask, "Why aren't there more pharmacists from Alabama?"
-A:	Easy.  It's because they can't figure out how to get the little
-	bottles into the typewriter.
+The lunatic, the lover, and the poet,
+Are of imagination all compact...
+		-- Wm. Shakespeare, "A Midsummer Night's Dream"
