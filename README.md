@@ -1,5 +1,6 @@
-Q:	Why did the chicken cross the road?
-A:	To see his friend Gregory peck.
+Q:	How do you shoot a blue elephant?
+A:	With a blue-elephant gun.
 
-Q:	Why did the chicken cross the playground?
-A:	To get to the other slide.
+Q:	How do you shoot a pink elephant?
+A:	Twist its trunk until it turns blue, then shoot it with
+	a blue-elephant gun.
