@@ -1,4 +1,5 @@
-"I understand this is your first dead client," Sabian was saying.  The
-absurdity of the statement made me want to laugh but they don't call me
-Deadpan Allie and lie.
-		-- Pat Cadigan, "Mindplayers"
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
+
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
