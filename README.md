@@ -1,2 +1,3 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+Reader, suppose you were an idiot.  And suppose you were a member of
+Congress.  But I repeat myself.
+		-- Mark Twain
