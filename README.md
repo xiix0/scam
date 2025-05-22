@@ -1,1 +1,1 @@
-You will pass away very quickly.
+Your true value depends entirely on what you are compared with.
