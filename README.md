@@ -1,1 +1,1 @@
-Don't you wish you had more energy... or less ambition?
+Keep it short for pithy sake.
