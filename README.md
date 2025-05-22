@@ -1,2 +1,1 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
-		-- Mark Twain
+Write yourself a threatening letter and pen a defiant reply.
