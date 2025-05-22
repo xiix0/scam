@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+Don't you wish you had more energy... or less ambition?
