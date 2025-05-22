@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+Beware the one behind you.
