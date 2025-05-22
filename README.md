@@ -1,1 +1,1 @@
-Your business will assume vast proportions.
+Your heart is pure, and your mind clear, and your soul devout.
