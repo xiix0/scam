@@ -1,2 +1,1 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+You have a strong appeal for members of the opposite sex.
