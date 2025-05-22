@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+You'll feel much better once you've given up hope.
