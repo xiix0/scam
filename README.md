@@ -1,2 +1,2 @@
-You are wise, witty, and wonderful, but you spend too much time reading
-this sort of trash.
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
