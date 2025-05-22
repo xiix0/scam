@@ -1,2 +1,1 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+You need no longer worry about the future.  This time tomorrow you'll be dead.
