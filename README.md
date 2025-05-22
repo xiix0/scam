@@ -1,1 +1,2 @@
-You need no longer worry about the future.  This time tomorrow you'll be dead.
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
