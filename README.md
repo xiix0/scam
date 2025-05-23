@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+Good day to deal with people in high places; particularly lonely stewardesses.
