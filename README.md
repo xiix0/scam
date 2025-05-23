@@ -1,1 +1,1 @@
-Your lucky color has faded.
+Avoid gunfire in the bathroom tonight.
