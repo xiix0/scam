@@ -1,3 +1,2 @@
-Consider well the proportions of things.  It is better to be a young June-bug
-than an old bird of paradise.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+"Life, loathe it or ignore it, you can't like it."
+		-- Marvin, "Hitchhiker's Guide to the Galaxy"
