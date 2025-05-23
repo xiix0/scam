@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+You're being followed.  Cut out the hanky-panky for a few days.
