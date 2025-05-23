@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+You have a strong appeal for members of your own sex.
