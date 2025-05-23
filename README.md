@@ -1,3 +1,2 @@
-Your manuscript is both good and original, but the part that is good is not
-original and the part that is original is not good.
-		-- Samuel Johnson
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
