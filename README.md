@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+You'll be called to a post requiring ability in handling groups of people.
