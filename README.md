@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Don't look back, the lemmings are gaining on you.
