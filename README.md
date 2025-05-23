@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+You are taking yourself far too seriously.
