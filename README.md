@@ -1,1 +1,1 @@
-You will be married within a year, and divorced within two.
+You have an ability to sense and know higher truth.
