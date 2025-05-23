@@ -1,3 +1,2 @@
-Q:	Why do people who live near Niagara Falls have flat foreheads?
-A:	Because every morning they wake up thinking "What *is* that noise?
-	Oh, right, *of course*!
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
