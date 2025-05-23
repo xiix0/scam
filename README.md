@@ -1,1 +1,1 @@
-Don't look back, the lemmings are gaining on you.
+Don't look now, but there is a multi-legged creature on your shoulder.
