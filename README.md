@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
