@@ -1,2 +1,2 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
