@@ -1,3 +1,3 @@
-Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
-that think they are truffles.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Grief can take care of itself; but to get the full value of a joy you must
+have somebody to divide it with.
+		-- Mark Twain
