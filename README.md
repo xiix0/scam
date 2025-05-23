@@ -1,2 +1,1 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+Fine day to work off excess energy.  Steal something heavy.
