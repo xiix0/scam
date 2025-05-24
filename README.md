@@ -1,3 +1,1 @@
-In the Spring, I have counted 136 different kinds of weather inside of
-24 hours.
-		-- Mark Twain, on New England weather
+You have the power to influence all with whom you come in contact.
