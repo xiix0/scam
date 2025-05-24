@@ -1,2 +1,3 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
+for you and me."
+		-- J. R. R. Tolkien
