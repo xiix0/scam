@@ -1,1 +1,1 @@
-Is that really YOU that is reading this?
+You will have domestic happiness and faithful friends.
