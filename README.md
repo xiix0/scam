@@ -1,2 +1,2 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
