@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+Truth will out this morning.  (Which may really mess things up.)
