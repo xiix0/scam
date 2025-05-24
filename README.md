@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+Your mode of life will be changed for the better because of good news soon.
