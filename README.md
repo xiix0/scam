@@ -1,1 +1,2 @@
-Caution: breathing may be hazardous to your health.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
