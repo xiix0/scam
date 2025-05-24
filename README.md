@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+That secret you've been guarding, isn't.
