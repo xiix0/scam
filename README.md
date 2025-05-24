@@ -1,1 +1,1 @@
-You dialed 5483.
+You will probably marry after a very brief courtship.
