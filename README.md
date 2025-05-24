@@ -1,1 +1,1 @@
-Your mode of life will be changed for the better because of good news soon.
+Don't you feel more like you do now than you did when you came in?
