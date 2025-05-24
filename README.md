@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+You're ugly and your mother dresses you funny.
