@@ -1,1 +1,2 @@
-You are so boring that when I see you my feet go to sleep.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
