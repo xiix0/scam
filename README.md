@@ -1,1 +1,2 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Harp not on that string.
+		-- William Shakespeare, "Henry VI"
