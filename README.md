@@ -1,1 +1,2 @@
-You will be given a post of trust and responsibility.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
