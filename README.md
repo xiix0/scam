@@ -1,2 +1,2 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
