@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+There was a phone call for you.
