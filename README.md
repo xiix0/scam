@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+Ships are safe in harbor, but they were never meant to stay there.
