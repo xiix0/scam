@@ -1,3 +1,1 @@
-Noise proves nothing.  Often a hen who has merely laid an egg cackles
-as if she laid an asteroid.
-		-- Mark Twain
+Your life would be very empty if you had nothing to regret.
