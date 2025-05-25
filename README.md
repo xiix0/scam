@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+You will reach the highest possible point in your business or profession.
