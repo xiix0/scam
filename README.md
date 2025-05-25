@@ -1,1 +1,1 @@
-You have an ambitious nature and may make a name for yourself.
+Tuesday After Lunch is the cosmic time of the week.
