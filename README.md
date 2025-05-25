@@ -1,1 +1,2 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+Q:	How many Harvard MBA's does it take to screw in a light bulb?
+A:	Just one.  He grasps it firmly and the universe revolves around him.
