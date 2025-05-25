@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Your ignorance cramps my conversation.
