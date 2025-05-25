@@ -1,2 +1,1 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+You single-handedly fought your way into this hopeless mess.
