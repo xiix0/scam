@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+You have a strong appeal for members of your own sex.
