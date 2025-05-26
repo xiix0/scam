@@ -1,2 +1,2 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
