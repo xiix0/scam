@@ -1,1 +1,2 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+All generalizations are false, including this one.
+		-- Mark Twain
