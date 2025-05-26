@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
