@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+You will obey or molten silver will be poured into your ears.
