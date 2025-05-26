@@ -1,1 +1,1 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Be careful!  UGLY strikes 9 out of 10!
