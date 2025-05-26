@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+Truth will out this morning.  (Which may really mess things up.)
