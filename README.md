@@ -1,1 +1,2 @@
-Life is to you a dashing and bold adventure.
+Things past redress and now with me past care.
+		-- William Shakespeare, "Richard II"
