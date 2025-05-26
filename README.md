@@ -1,2 +1,1 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+Time to be aggressive.  Go after a tattooed Virgo.
