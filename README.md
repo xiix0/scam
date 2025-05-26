@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+Life is to you a dashing and bold adventure.
