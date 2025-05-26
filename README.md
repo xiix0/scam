@@ -1,1 +1,1 @@
-You will be called upon to help a friend in trouble.
+Afternoon very favorable for romance.  Try a single person for a change.
