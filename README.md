@@ -1,1 +1,2 @@
-You display the wonderful traits of charm and courtesy.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
