@@ -1,1 +1,5 @@
-If you sow your wild oats, hope for a crop failure.
+Q:	What do you call a blind pre-historic animal?
+A:	Diyathinkhesaurus.
+
+Q:	What do you call a blind pre-historic animal with a dog?
+A:	Diyathinkhesaurus Rex.
