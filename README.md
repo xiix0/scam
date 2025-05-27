@@ -1,2 +1,2 @@
-When you are about to die, a wombat is better than no company at all.
-		-- Roger Zelazny, "Doorways in the Sand"
+It usually takes more than three weeks to prepare a good impromptu speech.
+		-- Mark Twain
