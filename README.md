@@ -1,2 +1,2 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
