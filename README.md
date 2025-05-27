@@ -1,1 +1,2 @@
-Are you ever going to do the dishes?  Or will you change your major to biology?
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
