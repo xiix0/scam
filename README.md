@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
