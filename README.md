@@ -1,1 +1,1 @@
-You will step on the night soil of many countries.
+Good news from afar can bring you a welcome visitor.
