@@ -1,1 +1,1 @@
-Reply hazy, ask again later.
+Your heart is pure, and your mind clear, and your soul devout.
