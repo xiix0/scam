@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+Don't you feel more like you do now than you did when you came in?
