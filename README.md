@@ -1,2 +1,3 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+Zounds!  I was never so bethumped with words
+since I first called my brother's father dad.
+		-- William Shakespeare, "Kind John"
