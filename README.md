@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Conscience doth make cowards of us all.
+		-- Shakespeare
