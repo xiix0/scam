@@ -1,1 +1,2 @@
-Abandon the search for Truth; settle for a good fantasy.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
