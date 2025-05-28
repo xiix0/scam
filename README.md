@@ -1,2 +1,1 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+You will reach the highest possible point in your business or profession.
