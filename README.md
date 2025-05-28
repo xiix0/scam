@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+You are as I am with You.
