@@ -1,1 +1,2 @@
-You will gain money by a fattening action.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
