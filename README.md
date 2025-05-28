@@ -1,1 +1,3 @@
-Your object is to save the world, while still leading a pleasant life.
+Q:	How many mathematicians does it take to screw in a light bulb?
+A:	One.  He gives it to six Californians, thereby reducing the problem
+	to the earlier joke.
