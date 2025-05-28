@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+Abandon the search for Truth; settle for a good fantasy.
