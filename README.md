@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+Today is the tomorrow you worried about yesterday.
