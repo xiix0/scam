@@ -1,2 +1,1 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
