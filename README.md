@@ -1,5 +1,3 @@
-It is right that he too should have his little chronicle, his memories,
-his reason, and be able to recognize the good in the bad, the bad in the
-worst, and so grow gently old all down the unchanging days and die one
-day like any other day, only shorter.
-		-- Samuel Beckett, "Malone Dies"
+Perilous to all of us are the devices of an art deeper than we ourselves
+possess.
+		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
