@@ -1,2 +1,4 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+In India, "cold weather" is merely a conventional phrase and has come into
+use through the necessity of having some way to distinguish between weather
+which will melt a brass door-knob and weather which will only make it mushy.
+		-- Mark Twain
