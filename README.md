@@ -1,1 +1,2 @@
-You seek to shield those you love and you like the role of the provider.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
