@@ -1,2 +1,2 @@
-When angry, count four; when very angry, swear.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
