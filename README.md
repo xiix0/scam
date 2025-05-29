@@ -1,1 +1,2 @@
-You fill a much-needed gap.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
