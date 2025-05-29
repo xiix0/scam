@@ -1,2 +1,2 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
