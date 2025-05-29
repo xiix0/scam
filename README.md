@@ -1,1 +1,1 @@
-You are as I am with You.
+Alimony and bribes will engage a large share of your wealth.
