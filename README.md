@@ -1,2 +1,1 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+Good day to deal with people in high places; particularly lonely stewardesses.
