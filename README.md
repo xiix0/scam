@@ -1,3 +1,2 @@
-Noise proves nothing.  Often a hen who has merely laid an egg cackles
-as if she laid an asteroid.
+Civilization is the limitless multiplication of unnecessary necessities.
 		-- Mark Twain
