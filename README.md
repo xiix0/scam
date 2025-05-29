@@ -1,1 +1,1 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+Your aim is high and to the right.
