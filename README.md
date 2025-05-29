@@ -1,2 +1,4 @@
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+Q:	What's the difference between the 1950's and the 1980's?
+A:	In the 80's, a man walks into a drugstore and states loudly, "I'd
+	like some condoms," and then, leaning over the counter, whispers,
+	"and some cigarettes."
