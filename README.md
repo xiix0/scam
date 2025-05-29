@@ -1,2 +1,2 @@
-You'll never see all the places, or read all the books, but fortunately,
-they're not all recommended.
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
