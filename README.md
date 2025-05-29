@@ -1,2 +1,2 @@
-Water, taken in moderation cannot hurt anybody.
-		-- Mark Twain
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
