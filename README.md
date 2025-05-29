@@ -1,1 +1,1 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Beware of a tall blond man with one black shoe.
