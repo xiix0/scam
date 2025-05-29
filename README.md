@@ -1,1 +1,2 @@
-Avert misunderstanding by calm, poise, and balance.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
