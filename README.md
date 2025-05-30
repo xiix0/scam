@@ -1,2 +1,1 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Hope that the day after you die is a nice day.
