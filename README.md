@@ -1,1 +1,3 @@
-Expect the worst, it's the least you can do.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
