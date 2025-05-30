@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Best of all is never to have been born.  Second best is to die soon.
