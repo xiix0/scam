@@ -1,1 +1,1 @@
-You possess a mind not merely twisted, but actually sprained.
+Executive ability is prominent in your make-up.
