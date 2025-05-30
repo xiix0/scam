@@ -1,1 +1,2 @@
-You will overcome the attacks of jealous associates.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
