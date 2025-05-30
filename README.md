@@ -1,1 +1,2 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
