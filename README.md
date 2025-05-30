@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+You possess a mind not merely twisted, but actually sprained.
