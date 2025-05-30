@@ -1,1 +1,1 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+You will overcome the attacks of jealous associates.
