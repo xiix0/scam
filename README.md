@@ -1,2 +1,3 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+I don't know half of you half as well as I should like; and I like less
+than half of you half as well as you deserve.
+		-- J. R. R. Tolkien
