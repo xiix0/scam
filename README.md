@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Love is in the offing.  Be affectionate to one who adores you.
