@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+You will soon meet a person who will play an important role in your life.
