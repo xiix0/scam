@@ -1,1 +1,2 @@
-Love is in the offing.  Be affectionate to one who adores you.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
