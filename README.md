@@ -1,1 +1,1 @@
-Best of all is never to have been born.  Second best is to die soon.
+Your temporary financial embarrassment will be relieved in a surprising manner.
