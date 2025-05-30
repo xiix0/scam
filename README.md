@@ -1,2 +1,4 @@
-There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
