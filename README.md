@@ -1,1 +1,1 @@
-Don't read any sky-writing for the next two weeks.
+You recoil from the crude; you tend naturally toward the exquisite.
