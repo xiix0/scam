@@ -1,1 +1,2 @@
-You need more time; and you probably always will.
+Q:	What is orange and goes "click, click?"
+A:	A ball point carrot.
