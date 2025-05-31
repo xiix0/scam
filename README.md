@@ -1,2 +1,1 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Give your very best today.  Heaven knows it's little enough.
