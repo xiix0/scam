@@ -1,2 +1,4 @@
-Q:	How many supply-siders does it take to change a light bulb?
-A:	None.  The darkness will cause the light bulb to change by itself.
+You mentioned your name as if I should recognize it, but beyond the
+obvious facts that you are a bachelor, a solicitor, a freemason, and
+an asthmatic, I know nothing whatever about you.
+		-- Sherlock Holmes, "The Norwood Builder"
