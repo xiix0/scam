@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
