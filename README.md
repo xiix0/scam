@@ -1,1 +1,1 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+You will be surprised by a loud noise.
