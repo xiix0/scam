@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+Don't get to bragging.
