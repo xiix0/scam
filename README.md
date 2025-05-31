@@ -1,1 +1,1 @@
-Today is National Existential Ennui Awareness Day.
+You own a dog, but you can only feed a cat.
