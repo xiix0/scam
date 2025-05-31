@@ -1,1 +1,1 @@
-Of course you have a purpose -- to find a purpose.
+It was all so different before everything changed.
