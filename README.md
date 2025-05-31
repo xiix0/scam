@@ -1,2 +1,2 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
