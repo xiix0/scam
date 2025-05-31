@@ -1,5 +1,2 @@
-Knock, knock!
-	Who's there?
-Sam and Janet.
-	Sam and Janet who?
-Sam and Janet Evening...
+You're growing out of some of your problems, but there are others that
+you're growing into.
