@@ -1,2 +1,1 @@
-Suspicion always haunts the guilty mind.
-		-- Wm. Shakespeare
+You will gain money by a fattening action.
