@@ -1,2 +1,2 @@
-He that is giddy thinks the world turns round.
-		-- William Shakespeare, "The Taming of the Shrew"
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
