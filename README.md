@@ -1,2 +1,3 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
