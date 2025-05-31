@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+Your life would be very empty if you had nothing to regret.
