@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+You will be awarded a medal for disregarding safety in saving someone.
