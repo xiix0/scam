@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+You have a deep interest in all that is artistic.
