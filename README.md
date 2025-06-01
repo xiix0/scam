@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
