@@ -1,2 +1,1 @@
-Q:	What's tiny and yellow and very, very, dangerous?
-A:	A canary with the super-user password.
+You will inherit some money or a small piece of land.
