@@ -1,2 +1,1 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Don't go surfing in South Dakota for a while.
