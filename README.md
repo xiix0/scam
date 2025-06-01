@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+You get along very well with everyone except animals and people.
