@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+You're not my type.  For that matter, you're not even my species!!!
