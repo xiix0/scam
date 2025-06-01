@@ -1,1 +1,3 @@
-You get along very well with everyone except animals and people.
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
