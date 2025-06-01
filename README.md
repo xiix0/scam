@@ -1,3 +1,2 @@
-Q:	What does a WASP Mom make for dinner?
-A:	A crisp salad, a hearty soup, a lovely entree, followed by
-	a delicious dessert.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
