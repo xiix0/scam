@@ -1,2 +1,3 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+If you pick up a starving dog and make him prosperous, he will not bite you.
+This is the principal difference between a dog and a man.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
