@@ -1,1 +1,2 @@
-Caution: Keep out of reach of children.
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
