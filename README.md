@@ -1,1 +1,3 @@
-Don't go surfing in South Dakota for a while.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
