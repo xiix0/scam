@@ -1,1 +1,2 @@
-You will be married within a year.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
