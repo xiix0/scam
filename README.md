@@ -1,2 +1,2 @@
-A light wife doth make a heavy husband.
-		-- Wm. Shakespeare, "The Merchant of Venice"
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
