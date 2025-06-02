@@ -1,1 +1,1 @@
-Look afar and see the end from the beginning.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
