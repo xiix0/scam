@@ -1,1 +1,2 @@
-Excellent day for putting Slinkies on an escalator.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
