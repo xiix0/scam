@@ -1,1 +1,1 @@
-You are not dead yet.  But watch for further reports.
+You will be married within a year, and divorced within two.
