@@ -1,1 +1,1 @@
-Don't feed the bats tonight.
+Tomorrow will be cancelled due to lack of interest.
