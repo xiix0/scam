@@ -1,1 +1,2 @@
-Tomorrow will be cancelled due to lack of interest.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
