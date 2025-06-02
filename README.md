@@ -1,3 +1,3 @@
-It is often the case that the man who can't tell a lie thinks he is the best
-judge of one.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
