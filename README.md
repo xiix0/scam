@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+You are not dead yet.  But watch for further reports.
