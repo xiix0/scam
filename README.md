@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
