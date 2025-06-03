@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
