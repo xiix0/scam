@@ -1,1 +1,1 @@
-Long life is in store for you.
+If your life was a horse, you'd have to shoot it.
