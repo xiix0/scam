@@ -1,1 +1,2 @@
-You are confused; but this is your normal state.
+Q:	Are we not men?
+A:	We are Vaxen.
