@@ -1,2 +1,2 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+The surest protection against temptation is cowardice.
+		-- Mark Twain
