@@ -1,1 +1,2 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
