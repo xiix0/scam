@@ -1,3 +1,3 @@
-Q:	How does a hacker fix a function which
-	doesn't work for all of the elements in its domain?
-A:	He changes the domain.
+Q:	How many psychiatrists does it take to change a light bulb?
+A:	Only one, but it takes a long time, and the light bulb has
+	to really want to change.
