@@ -1,1 +1,2 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+"... all the modern inconveniences ..."
+		-- Mark Twain
