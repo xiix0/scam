@@ -1,1 +1,1 @@
-You're at the end of the road again.
+You like to form new friendships and make new acquaintances.
