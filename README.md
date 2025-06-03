@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+You're not my type.  For that matter, you're not even my species!!!
