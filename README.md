@@ -1,2 +1,2 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
