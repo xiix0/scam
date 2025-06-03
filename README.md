@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+You are a fluke of the universe; you have no right to be here.
