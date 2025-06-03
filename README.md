@@ -1,1 +1,2 @@
-If your life was a horse, you'd have to shoot it.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
