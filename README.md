@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+Your depth of comprehension may tend to make you lax in worldly ways.
