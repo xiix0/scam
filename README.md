@@ -1,1 +1,1 @@
-Your true value depends entirely on what you are compared with.
+You are so boring that when I see you my feet go to sleep.
