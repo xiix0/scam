@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
