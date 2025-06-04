@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+You're a card which will have to be dealt with.
