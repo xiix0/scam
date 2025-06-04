@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+Generosity and perfection are your everlasting goals.
