@@ -1,2 +1,1 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+Don't read any sky-writing for the next two weeks.
