@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You will feel hungry again in another hour.
