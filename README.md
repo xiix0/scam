@@ -1,1 +1,1 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+You like to form new friendships and make new acquaintances.
