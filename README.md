@@ -1,2 +1,1 @@
-Something's rotten in the state of Denmark.
-		-- Shakespeare
+You've been leading a dog's life.  Stay off the furniture.
