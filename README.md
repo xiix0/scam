@@ -1,1 +1,3 @@
-Executive ability is prominent in your make-up.
+Questionable day.
+
+Ask somebody something.
