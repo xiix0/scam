@@ -1,1 +1,2 @@
-Do not overtax your powers.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
