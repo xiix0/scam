@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+The first thing we do, let's kill all the lawyers.
+		-- Wm. Shakespeare, "Henry VI", Part IV
