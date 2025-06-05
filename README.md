@@ -1,1 +1,1 @@
-You will be winged by an anti-aircraft battery.
+Your boss is a few sandwiches short of a picnic.
