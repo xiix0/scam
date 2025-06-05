@@ -1,1 +1,2 @@
-Keep it short for pithy sake.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
