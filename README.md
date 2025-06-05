@@ -1,1 +1,2 @@
-Let me put it this way: today is going to be a learning experience.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
