@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+You will forget that you ever knew me.
