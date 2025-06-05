@@ -1,1 +1,1 @@
-Long life is in store for you.
+Never be led astray onto the path of virtue.
