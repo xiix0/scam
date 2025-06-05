@@ -1,2 +1,2 @@
-Q:	How many college football players does it take to screw in a light bulb?
-A:	Only one, but he gets three credits for it.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
