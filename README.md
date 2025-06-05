@@ -1,2 +1,1 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+A tall, dark stranger will have more fun than you.
