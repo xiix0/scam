@@ -1,3 +1,3 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+Q:	What do you call the scratches that you get when a female
+	sheep bites you?
+A:	Ewe nicks.
