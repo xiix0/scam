@@ -1,2 +1,1 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+Beware the one behind you.
