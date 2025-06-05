@@ -1,2 +1,3 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
