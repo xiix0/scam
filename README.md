@@ -1,2 +1,2 @@
-Extreme fear can neither fight nor fly.
-		-- William Shakespeare, "The Rape of Lucrece"
+Don't Worry, Be Happy.
+		-- Meher Baba
