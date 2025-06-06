@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+Perfect day for scrubbing the floor and other exciting things.
