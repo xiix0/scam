@@ -1,2 +1,1 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
