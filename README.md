@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+Your aim is high and to the right.
