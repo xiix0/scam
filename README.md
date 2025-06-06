@@ -1,1 +1,1 @@
-Perfect day for scrubbing the floor and other exciting things.
+Try to have as good a life as you can under the circumstances.
