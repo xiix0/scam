@@ -1,2 +1,2 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
