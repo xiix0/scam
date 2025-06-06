@@ -1,2 +1,2 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
