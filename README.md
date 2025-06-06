@@ -1,1 +1,1 @@
-Your society will be sought by people of taste and refinement.
+Change your thoughts and you change your world.
