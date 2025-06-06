@@ -1,1 +1,1 @@
-Bank error in your favor.  Collect $200.
+You will be awarded a medal for disregarding safety in saving someone.
