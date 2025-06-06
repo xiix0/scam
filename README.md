@@ -1,3 +1,2 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
