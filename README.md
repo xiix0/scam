@@ -1,1 +1,1 @@
-You will be divorced within a year.
+You are fighting for survival in your own sweet and gentle way.
