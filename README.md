@@ -1,1 +1,1 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+You'll be called to a post requiring ability in handling groups of people.
