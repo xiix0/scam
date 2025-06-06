@@ -1,1 +1,2 @@
-Change your thoughts and you change your world.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
