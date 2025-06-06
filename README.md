@@ -1,2 +1,4 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+O, it is excellent
+To have a giant's strength; but it is tyrannous
+To use it like a giant.
+		-- Shakespeare, "Measure for Measure", II, 2
