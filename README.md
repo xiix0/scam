@@ -1,1 +1,1 @@
-You're working under a slight handicap.  You happen to be human.
+You are a very redundant person, that's what kind of person you are.
