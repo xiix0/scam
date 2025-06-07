@@ -1,2 +1,3 @@
-Q:	How many Marxists does it take to screw in a light bulb?
-A:	None:  The light bulb contains the seeds of its own revolution.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
