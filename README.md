@@ -1,1 +1,2 @@
-Give your very best today.  Heaven knows it's little enough.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
