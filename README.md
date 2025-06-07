@@ -1,2 +1,2 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+You will pay for your sins.  If you have already paid, please disregard
+this message.
