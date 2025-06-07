@@ -1,1 +1,1 @@
-You have a deep appreciation of the arts and music.
+You will have good luck and overcome many hardships.
