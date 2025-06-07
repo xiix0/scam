@@ -1,1 +1,2 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+Just because the message may never be received does not mean it is
+not worth sending.
