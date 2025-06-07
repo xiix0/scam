@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
