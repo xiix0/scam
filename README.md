@@ -1,1 +1,2 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
