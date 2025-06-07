@@ -1,2 +1,3 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+Q:	What does a WASP Mom make for dinner?
+A:	A crisp salad, a hearty soup, a lovely entree, followed by
+	a delicious dessert.
