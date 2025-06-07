@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
