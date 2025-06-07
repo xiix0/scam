@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+Don't feed the bats tonight.
