@@ -1,1 +1,1 @@
-Tomorrow, you can be anywhere.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
