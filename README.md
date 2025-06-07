@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+Don't tell any big lies today.  Small ones can be just as effective.
