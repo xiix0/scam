@@ -1,1 +1,3 @@
-Ships are safe in harbor, but they were never meant to stay there.
+It is often the case that the man who can't tell a lie thinks he is the best
+judge of one.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
