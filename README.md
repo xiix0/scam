@@ -1,3 +1,2 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+Q:	What do Winnie the Pooh and John the Baptist have in common?
+A:	The same middle name.
