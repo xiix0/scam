@@ -1,1 +1,2 @@
-Are you sure the back door is locked?
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
