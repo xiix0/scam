@@ -1,2 +1,2 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
