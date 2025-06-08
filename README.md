@@ -1,2 +1,2 @@
-The surest protection against temptation is cowardice.
+The Public is merely a multiplied "me."
 		-- Mark Twain
