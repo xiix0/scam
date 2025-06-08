@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Don't get to bragging.
