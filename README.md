@@ -1,2 +1,1 @@
-Wagner's music is better than it sounds.
-		-- Mark Twain
+Accent on helpful side of your nature.  Drain the moat.
