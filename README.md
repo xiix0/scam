@@ -1,3 +1,2 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
