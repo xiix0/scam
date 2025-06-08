@@ -1,2 +1,1 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+Truth will out this morning.  (Which may really mess things up.)
