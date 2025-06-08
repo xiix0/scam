@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of new developments.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
