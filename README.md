@@ -1,2 +1,3 @@
-Truth is the most valuable thing we have -- so let us economize it.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
 		-- Mark Twain
