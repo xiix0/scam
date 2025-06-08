@@ -1,1 +1,2 @@
-Hope that the day after you die is a nice day.
+Be careful of reading health books, you might die of a misprint.
+		-- Mark Twain
