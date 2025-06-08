@@ -1,1 +1,2 @@
-You'll never be the man your mother was!
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
