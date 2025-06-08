@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+Are you sure the back door is locked?
