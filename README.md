@@ -1,1 +1,3 @@
-Don't look now, but the man in the moon is laughing at you.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
