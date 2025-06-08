@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+After your lover has gone you will still have PEANUT BUTTER!
