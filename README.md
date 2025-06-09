@@ -1,5 +1,3 @@
-Q:	How many surrealists does it take to change a light bulb?
-A:	Two, one to hold the giraffe, and the other to fill the bathtub
-	with brightly colored machine tools.
-
-	[Surrealist jokes just aren't my cup of fur.  Ed.]
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
