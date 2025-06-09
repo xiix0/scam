@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Change your thoughts and you change your world.
