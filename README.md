@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+Your depth of comprehension may tend to make you lax in worldly ways.
