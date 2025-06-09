@@ -1,1 +1,2 @@
-A tall, dark stranger will have more fun than you.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
