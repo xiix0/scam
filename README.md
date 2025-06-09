@@ -1,1 +1,2 @@
-You will be given a post of trust and responsibility.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
