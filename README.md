@@ -1,1 +1,3 @@
-Living your life is a task so difficult, it has never been attempted before.
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
