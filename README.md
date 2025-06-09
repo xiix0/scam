@@ -1,1 +1,1 @@
-You will be run over by a bus.
+Life is to you a dashing and bold adventure.
