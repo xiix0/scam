@@ -1,1 +1,2 @@
-You will be given a post of trust and responsibility.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
