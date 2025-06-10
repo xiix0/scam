@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Your aim is high and to the right.
