@@ -1,2 +1,3 @@
-If you tell the truth you don't have to remember anything.
-		-- Mark Twain
+I don't know half of you half as well as I should like; and I like less
+than half of you half as well as you deserve.
+		-- J. R. R. Tolkien
