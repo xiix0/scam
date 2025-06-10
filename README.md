@@ -1,3 +1,3 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
-A:	Chicken Teriyaki.
-Q:	What is the name of the world's oldest kamikaze pilot?
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
