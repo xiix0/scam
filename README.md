@@ -1,1 +1,1 @@
-You have taken yourself too seriously.
+You will gain money by a speculation or lottery.
