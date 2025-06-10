@@ -1,1 +1,1 @@
-Your aim is high and to the right.
+Never reveal your best argument.
