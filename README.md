@@ -1,1 +1,2 @@
-Your own qualities will help prevent your advancement in the world.
+Q:	What do agnostic, insomniac dyslexics do at night?
+A:	Stay awake and wonder if there's a dog.
