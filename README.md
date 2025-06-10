@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
