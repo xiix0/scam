@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+You have a strong appeal for members of your own sex.
