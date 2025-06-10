@@ -1,2 +1,2 @@
-Q:	What is the difference between a duck?
-A:	One leg is both the same.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
