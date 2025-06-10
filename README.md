@@ -1,1 +1,1 @@
-Don't read everything you believe.
+You possess a mind not merely twisted, but actually sprained.
