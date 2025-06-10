@@ -1,1 +1,2 @@
-You have a strong appeal for members of the opposite sex.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
