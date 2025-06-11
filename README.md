@@ -1,1 +1,2 @@
-Hope that the day after you die is a nice day.
+Your goose is cooked.
+(Your current chick is burned up too!)
