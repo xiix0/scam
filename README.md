@@ -1,1 +1,1 @@
-You will be run over by a bus.
+Hope that the day after you die is a nice day.
