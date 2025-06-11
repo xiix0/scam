@@ -1,2 +1,3 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+Consider well the proportions of things.  It is better to be a young June-bug
+than an old bird of paradise.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
