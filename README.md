@@ -1,1 +1,5 @@
-You never know how many friends you have until you rent a house on the beach.
+Q:	What do monsters eat?
+A:	Things.
+
+Q:	What do monsters drink?
+A:	Coke.  (Because Things go better with Coke.)
