@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+You will receive a legacy which will place you above want.
