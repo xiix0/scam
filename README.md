@@ -1,1 +1,1 @@
-You are standing on my toes.
+Accent on helpful side of your nature.  Drain the moat.
