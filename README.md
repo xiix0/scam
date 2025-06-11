@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+You may get an opportunity for advancement today.  Watch it!
