@@ -1,1 +1,1 @@
-Your domestic life may be harmonious.
+A vivid and creative mind characterizes you.
