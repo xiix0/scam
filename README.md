@@ -1,2 +1,2 @@
-Q:	Why did the chicken cross the road?
-A:	He was giving it last rites.
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
