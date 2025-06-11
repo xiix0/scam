@@ -1,1 +1,1 @@
-You have no real enemies.
+There is a 20% chance of tomorrow.
