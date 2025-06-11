@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+Just to have it is enough.
