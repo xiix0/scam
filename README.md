@@ -1,1 +1,2 @@
-You will be surrounded by luxury.
+Big book, big bore.
+		-- Callimachus
