@@ -1,2 +1,1 @@
-You have an unusual magnetic personality.  Don't walk too close to
-metal objects which are not fastened down.
+You are standing on my toes.
