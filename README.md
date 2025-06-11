@@ -1,2 +1,1 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+Your domestic life may be harmonious.
