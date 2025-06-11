@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+You will be traveling and coming into a fortune.
