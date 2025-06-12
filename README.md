@@ -1,3 +1,1 @@
-The mind is its own place, and in itself
-Can make a Heav'n of Hell, a Hell of Heav'n.
-		-- John Milton
+Don't relax!  It's only your tension that's holding you together.
