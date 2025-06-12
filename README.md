@@ -1,6 +1,3 @@
-	The Priest's grey nimbus in a niche where he dressed discreetly.
-I will not sleep here tonight. Home also I cannot go.
-	A voice, sweetened and sustained, called to him from the sea.
-Turning the curve he waved his hand.  A sleek brown head, a seal's, far
-out on the water, round.  Usurper.
-		-- James Joyce, "Ulysses"
+The mind is its own place, and in itself
+Can make a Heav'n of Hell, a Hell of Heav'n.
+		-- John Milton
