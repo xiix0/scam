@@ -1,1 +1,1 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+You will always get the greatest recognition for the job you least like.
