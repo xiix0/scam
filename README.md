@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+It's all in the mind, ya know.
