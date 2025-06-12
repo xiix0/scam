@@ -1,3 +1,3 @@
-A banker is a fellow who lends you his umbrella when the sun is shining
-and wants it back the minute it begins to rain.
-		-- Mark Twain
+Q:	What do you call a principal female opera singer whose high C
+	is lower than those of other principal female opera singers?
+A:	A deep C diva.
