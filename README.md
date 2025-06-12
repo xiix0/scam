@@ -1,1 +1,2 @@
-Don't relax!  It's only your tension that's holding you together.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
