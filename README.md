@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+You will give someone a piece of your mind, which you can ill afford.
