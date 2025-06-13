@@ -1,1 +1,2 @@
-You teach best what you most need to learn.
+Q:	What do Winnie the Pooh and John the Baptist have in common?
+A:	The same middle name.
