@@ -1,2 +1,3 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+ROMEO:		Courage, man; the hurt cannot be much.
+MERCUTIO:	No, 'tis not so deep as a well, nor so wide
+			as a church-door; but 'tis enough, 'twill serve.
