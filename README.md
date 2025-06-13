@@ -1,3 +1,2 @@
-If one cannot enjoy reading a book over and over again, there is no use
-in reading it at all.
-		-- Oscar Wilde
+He jests at scars who never felt a wound.
+		-- Shakespeare, "Romeo and Juliet, II. 2"
