@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+You will have a long and unpleasant discussion with your supervisor.
