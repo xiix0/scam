@@ -1,1 +1,1 @@
-Are you a turtle?
+You will inherit millions of dollars.
