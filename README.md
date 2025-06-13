@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+You will hear good news from one you thought unfriendly to you.
