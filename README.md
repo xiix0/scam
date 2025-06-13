@@ -1,2 +1,1 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+You will be imprisoned for contributing your time and skill to a bank robbery.
