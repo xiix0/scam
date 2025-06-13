@@ -1,1 +1,1 @@
-Never give an inch!
+Domestic happiness and faithful friends.
