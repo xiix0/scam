@@ -1,1 +1,2 @@
-You have the power to influence all with whom you come in contact.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
