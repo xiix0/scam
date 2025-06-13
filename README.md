@@ -1,2 +1,2 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
