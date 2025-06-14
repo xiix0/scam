@@ -1,2 +1,2 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
