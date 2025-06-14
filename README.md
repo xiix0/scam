@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
