@@ -1,2 +1,2 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
