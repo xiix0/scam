@@ -1,2 +1,2 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
