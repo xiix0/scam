@@ -1,1 +1,2 @@
-Don't look now, but the man in the moon is laughing at you.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
