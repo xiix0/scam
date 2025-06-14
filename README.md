@@ -1,2 +1,2 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
