@@ -1,1 +1,3 @@
-You will remember something that you should not have forgotten.
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
