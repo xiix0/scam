@@ -1,2 +1,3 @@
-Wrinkles should merely indicate where smiles have been.
-		-- Mark Twain
+Q:	What looks like a cat, flies like a bat, brays like a donkey, and
+	plays like a monkey?
+A:	Nothing.
