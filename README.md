@@ -1,1 +1,2 @@
-Accent on helpful side of your nature.  Drain the moat.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
