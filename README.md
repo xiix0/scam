@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+You will be misunderstood by everyone.
