@@ -1,2 +1,3 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
