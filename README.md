@@ -1,2 +1,1 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+It's lucky you're going so slowly, because you're going in the wrong direction.
