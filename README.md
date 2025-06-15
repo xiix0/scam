@@ -1,3 +1,3 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
-A:	Dr. Livingston I. Presume.
-Q:	What's Dr. Presume's full name?
+The man who sets out to carry a cat by its tail learns something that
+will always be useful and which never will grow dim or doubtful.
+		-- Mark Twain
