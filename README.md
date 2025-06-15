@@ -1,2 +1,2 @@
-Every cloud engenders not a storm.
-		-- William Shakespeare, "Henry VI"
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
