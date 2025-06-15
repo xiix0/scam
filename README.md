@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+Another good night not to sleep in a eucalyptus tree.
