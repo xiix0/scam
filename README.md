@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+Your nature demands love and your happiness depends on it.
