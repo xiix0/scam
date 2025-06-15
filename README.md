@@ -1,1 +1,2 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
