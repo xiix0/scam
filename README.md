@@ -1,3 +1,2 @@
-Many a writer seems to think he is never profound except when he can't
-understand his own meaning.
-		-- George D. Prentice
+Q:	What's the difference between an Irish wedding and an Irish wake?
+A:	One less drunk.
