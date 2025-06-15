@@ -1,1 +1,2 @@
-You will have domestic happiness and faithful friends.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
