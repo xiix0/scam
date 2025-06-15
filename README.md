@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+Learn to pause -- or nothing worthwhile can catch up to you.
