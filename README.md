@@ -1,1 +1,1 @@
-A tall, dark stranger will have more fun than you.
+Keep emotionally active.  Cater to your favorite neurosis.
