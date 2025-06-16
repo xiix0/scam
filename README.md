@@ -1,1 +1,2 @@
-You should go home.
+Q:	Are we not men?
+A:	We are Vaxen.
