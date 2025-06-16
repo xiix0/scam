@@ -1,1 +1,2 @@
-Your lover will never wish to leave you.
+I'll burn my books.
+		-- Christopher Marlowe
