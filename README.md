@@ -1,3 +1,3 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
