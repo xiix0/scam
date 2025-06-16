@@ -1,1 +1,2 @@
-Best of all is never to have been born.  Second best is to die soon.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
