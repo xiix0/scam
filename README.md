@@ -1,5 +1,1 @@
-Knock, knock!
-	Who's there?
-Sam and Janet.
-	Sam and Janet who?
-Sam and Janet Evening...
+Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
