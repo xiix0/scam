@@ -1,2 +1,2 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
