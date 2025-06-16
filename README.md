@@ -1,1 +1,1 @@
-You are confused; but this is your normal state.
+You will become rich and famous unless you don't.
