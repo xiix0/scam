@@ -1,2 +1,5 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
