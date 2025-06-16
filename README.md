@@ -1,5 +1,1 @@
-Q:	Why did the chicken cross the road?
-A:	To see his friend Gregory peck.
-
-Q:	Why did the chicken cross the playground?
-A:	To get to the other slide.
+You never know how many friends you have until you rent a house on the beach.
