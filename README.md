@@ -1,2 +1,2 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
