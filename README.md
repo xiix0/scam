@@ -1,1 +1,1 @@
-You will always have good luck in your personal affairs.
+You prefer the company of the opposite sex, but are well liked by your own.
