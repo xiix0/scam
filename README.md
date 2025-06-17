@@ -1,1 +1,2 @@
-Today is the first day of the rest of the mess.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
