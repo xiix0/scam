@@ -1,1 +1,2 @@
-You will inherit millions of dollars.
+Too much is just enough.
+		-- Mark Twain, on whiskey
