@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+You will always have good luck in your personal affairs.
