@@ -1,1 +1,2 @@
-Stay away from flying saucers today.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
