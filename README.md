@@ -1,2 +1,1 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+This will be a memorable month -- no matter how hard you try to forget it.
