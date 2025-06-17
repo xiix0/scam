@@ -1,3 +1,3 @@
-Q:	What do you call the scratches that you get when a female
-	sheep bites you?
-A:	Ewe nicks.
+Hain't we got all the fools in town on our side?  And hain't that a big
+enough majority in any town?
+		-- Mark Twain, "Huckleberry Finn"
