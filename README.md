@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+Tomorrow will be cancelled due to lack of interest.
