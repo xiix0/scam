@@ -1,2 +1,2 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
-		-- Mark Twain
+Q:	What do you have when you have a lawyer buried up to his neck in sand?
+A:	Not enough sand.
