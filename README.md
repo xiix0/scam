@@ -1,1 +1,2 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
