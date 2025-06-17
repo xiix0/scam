@@ -1,2 +1,1 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+You will hear good news from one you thought unfriendly to you.
