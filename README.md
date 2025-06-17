@@ -1,2 +1,1 @@
-There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+You're a card which will have to be dealt with.
