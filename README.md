@@ -1,1 +1,2 @@
-You have a strong appeal for members of your own sex.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
