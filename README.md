@@ -1,2 +1,1 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+It's lucky you're going so slowly, because you're going in the wrong direction.
