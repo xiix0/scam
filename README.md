@@ -1,1 +1,2 @@
-You are not dead yet.  But watch for further reports.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
