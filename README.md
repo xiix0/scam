@@ -1,2 +1,2 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+You have an unusual magnetic personality.  Don't walk too close to
+metal objects which are not fastened down.
