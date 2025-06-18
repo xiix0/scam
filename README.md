@@ -1,1 +1,3 @@
-Try to get all of your posthumous medals in advance.
+He draweth out the thread of his verbosity finer than the staple of his
+argument.
+		-- William Shakespeare, "Love's Labour's Lost"
