@@ -1,2 +1,2 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+When in doubt, tell the truth.
+		-- Mark Twain
