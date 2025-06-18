@@ -1,1 +1,1 @@
-Abandon the search for Truth; settle for a good fantasy.
+You will meet an important person who will help you advance professionally.
