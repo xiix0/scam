@@ -1,1 +1,2 @@
-You two ought to be more careful--your love could drag on for years and years.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
