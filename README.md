@@ -1,2 +1,2 @@
-He that breaks a thing to find out what it is has left the path of wisdom.
-		-- J.R.R. Tolkien
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
