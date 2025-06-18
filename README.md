@@ -1,2 +1,2 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
