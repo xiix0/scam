@@ -1,2 +1,2 @@
-Q:	What do you say to a New Yorker with a job?
-A:	Big Mac, fries and a Coke, please!
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
