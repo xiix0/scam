@@ -1,2 +1,1 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+Try to get all of your posthumous medals in advance.
