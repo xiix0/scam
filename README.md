@@ -1,2 +1,3 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+A classic is something that everyone wants to have read
+and nobody wants to read.
+		-- Mark Twain, "The Disappearance of Literature"
