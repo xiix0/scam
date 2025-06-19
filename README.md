@@ -1,1 +1,2 @@
-Excellent time to become a missing person.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
