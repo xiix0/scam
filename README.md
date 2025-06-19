@@ -1,1 +1,1 @@
-You are not dead yet.  But watch for further reports.
+Many changes of mind and mood; do not hesitate too long.
