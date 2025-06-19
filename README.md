@@ -1,4 +1,6 @@
-All I know is what the words know, and dead things, and that
-makes a handsome little sum, with a beginning and a middle and
-an end, as in the well-built phrase and the long sonata of the dead.
-		-- Samuel Beckett
+The bay-trees in our country are all wither'd
+And meteors fright the fixed stars of heaven;
+The pale-faced moon looks bloody on the earth
+And lean-look'd prophets whisper fearful change.
+These signs forerun the death or fall of kings.
+		-- Wm. Shakespeare, "Richard II"
