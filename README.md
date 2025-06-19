@@ -1,1 +1,1 @@
-You will have domestic happiness and faithful friends.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
