@@ -1,1 +1,2 @@
-You will forget that you ever knew me.
+Big book, big bore.
+		-- Callimachus
