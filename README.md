@@ -1,3 +1,2 @@
-Reader, suppose you were an idiot.  And suppose you were a member of
-Congress.  But I repeat myself.
+Truth is the most valuable thing we have -- so let us economize it.
 		-- Mark Twain
