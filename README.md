@@ -1,3 +1,3 @@
-The mind is its own place, and in itself
-Can make a Heav'n of Hell, a Hell of Heav'n.
-		-- John Milton
+All say, "How hard it is that we have to die"--a strange complaint to come from
+the mouths of people who have had to live.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
