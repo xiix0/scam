@@ -1,1 +1,3 @@
-Communicate!  It can't make things any worse.
+The man who sets out to carry a cat by its tail learns something that
+will always be useful and which never will grow dim or doubtful.
+		-- Mark Twain
