@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+Your lover will never wish to leave you.
