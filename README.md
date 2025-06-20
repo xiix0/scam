@@ -1,5 +1,3 @@
-I got a hint of things to come when I overheard my boss lamenting, 'The
-books are done and we still don't have an author! I must sign someone
-today!
-		-- Tamim Ansary, "Edutopia Magazine, Issue 2, November 2004"
-		   on the topic of school textbooks
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
