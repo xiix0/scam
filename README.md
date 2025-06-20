@@ -1,2 +1,2 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+Q:	Who cuts the grass on Walton's Mountain?
+A:	Lawn Boy.
