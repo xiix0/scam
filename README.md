@@ -1,3 +1,3 @@
-Q:	What do you call the scratches that you get when a female
-	sheep bites you?
-A:	Ewe nicks.
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
