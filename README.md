@@ -1,1 +1,2 @@
-Excellent day to have a rotten day.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
