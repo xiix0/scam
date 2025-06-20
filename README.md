@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+Q:	How do you keep a moron in suspense?
