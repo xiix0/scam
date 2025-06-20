@@ -1,1 +1,1 @@
-Snow Day -- stay home.
+Don't get stuck in a closet -- wear yourself out.
