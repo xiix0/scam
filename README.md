@@ -1,2 +1,1 @@
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+Things will be bright in P.M.  A cop will shine a light in your face.
