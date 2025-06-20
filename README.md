@@ -1,1 +1,2 @@
-Don't get stuck in a closet -- wear yourself out.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
