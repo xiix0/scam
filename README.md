@@ -1,1 +1,2 @@
-Q:	How do you keep a moron in suspense?
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
