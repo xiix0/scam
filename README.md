@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+You'll feel much better once you've given up hope.
