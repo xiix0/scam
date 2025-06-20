@@ -1,1 +1,3 @@
-You're definitely on their list.  The question to ask next is what list it is.
+There is no hunting like the hunting of man, and those who have hunted
+armed men long enough and liked it, never care for anything else thereafter.
+		-- Ernest Hemingway
