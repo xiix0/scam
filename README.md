@@ -1,2 +1,1 @@
-You tread upon my patience.
-		-- William Shakespeare, "Henry IV"
+Bank error in your favor.  Collect $200.
