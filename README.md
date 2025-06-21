@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+Time to be aggressive.  Go after a tattooed Virgo.
