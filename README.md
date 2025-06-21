@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Go to a movie tonight.  Darkness becomes you.
