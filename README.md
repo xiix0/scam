@@ -1,2 +1,2 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
