@@ -1,1 +1,2 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
