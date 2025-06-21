@@ -1,1 +1,1 @@
-Executive ability is prominent in your make-up.
+Try the Moo Shu Pork.  It is especially good today.
