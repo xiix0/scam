@@ -1,2 +1,2 @@
-If two people love each other, there can be no happy end to it.
-		-- Ernest Hemingway
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
