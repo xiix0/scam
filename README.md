@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+You will engage in a profitable business activity.
