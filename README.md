@@ -1,2 +1,3 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
