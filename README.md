@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+You have a strong appeal for members of your own sex.
