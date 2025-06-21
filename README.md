@@ -1,1 +1,2 @@
-You will engage in a profitable business activity.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
