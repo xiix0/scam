@@ -1,2 +1,1 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+Expect the worst, it's the least you can do.
