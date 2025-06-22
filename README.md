@@ -1,2 +1,1 @@
-Clothes make the man.  Naked people have little or no influence on society.
-		-- Mark Twain
+Abandon the search for Truth; settle for a good fantasy.
