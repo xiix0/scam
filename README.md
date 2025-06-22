@@ -1,2 +1,2 @@
-Troubled day for virgins over 16 who are beautiful and wealthy and live
-in eucalyptus trees.
+Q:	How many Marxists does it take to screw in a light bulb?
+A:	None:  The light bulb contains the seeds of its own revolution.
