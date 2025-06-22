@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Try to have as good a life as you can under the circumstances.
