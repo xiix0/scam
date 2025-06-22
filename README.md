@@ -1,2 +1,2 @@
-There is always one thing to remember: writers are always selling somebody out.
-		-- Joan Didion, "Slouching Towards Bethlehem"
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
