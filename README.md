@@ -1,1 +1,2 @@
-If your life was a horse, you'd have to shoot it.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
