@@ -1,2 +1,2 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
