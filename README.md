@@ -1,3 +1,2 @@
-Someone is speaking well of you.
-
-How unusual!
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
