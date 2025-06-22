@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Don't read any sky-writing for the next two weeks.
