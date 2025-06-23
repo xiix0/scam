@@ -1,1 +1,1 @@
-You will inherit some money or a small piece of land.
+If you sow your wild oats, hope for a crop failure.
