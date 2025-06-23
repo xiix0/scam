@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+You will inherit some money or a small piece of land.
