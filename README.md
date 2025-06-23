@@ -1,1 +1,2 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+	A man was reading The Canterbury Tales one Saturday morning, when his
+wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
