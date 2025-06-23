@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Your own qualities will help prevent your advancement in the world.
