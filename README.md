@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+You will experience a strong urge to do good; but it will pass.
