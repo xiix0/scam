@@ -1,1 +1,2 @@
-It may or may not be worthwhile, but it still has to be done.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
