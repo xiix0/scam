@@ -1,8 +1,6 @@
-Q:	How many Californians does it take to screw in a light bulb?
-A:	Five.  One to screw in the light bulb and four to share the
-		experience.  (Actually, Californians don't screw in
-		light bulbs, they screw in hot tubs.)
-
-Q:	How many Oregonians does it take to screw in a light bulb?
-A:	Three.  One to screw in the light bulb and two to fend off all
-		those Californians trying to share the experience.
+In the plot, people came to the land; the land loved them; they worked and
+struggled and had lots of children.  There was a Frenchman who talked funny
+and a greenhorn from England who was a fancy-pants but when it came to the
+crunch he was all courage.  Those novels would make you retch.
+		-- Canadian novelist Robertson Davies, on the generic Canadian
+		   novel.
