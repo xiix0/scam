@@ -1,8 +1,8 @@
-October.
+For the fashion of Minas Tirith was such that it was built on seven levels,
+each delved into a hill, and about each was set a wall, and in each wall
+was a gate.
+		-- J.R.R. Tolkien, "The Return of the King"
 
-This is one of the peculiarly dangerous months to speculate in stocks in.
+	[Quoted in "VMS Internals and Data Structures", V4.4, when
+	 referring to system overview.]
 
-The others are July, January, September, April, November, May, March, June,
-December, August, and February.
-
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
