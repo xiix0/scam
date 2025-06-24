@@ -1,1 +1,1 @@
-Never commit yourself!  Let someone else commit you.
+You have a deep interest in all that is artistic.
