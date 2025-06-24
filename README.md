@@ -1,2 +1,5 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+Q:	What do you call a blind pre-historic animal?
+A:	Diyathinkhesaurus.
+
+Q:	What do you call a blind pre-historic animal with a dog?
+A:	Diyathinkhesaurus Rex.
