@@ -1,1 +1,1 @@
-You will visit the Dung Pits of Glive soon.
+Never commit yourself!  Let someone else commit you.
