@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+The first thing we do, let's kill all the lawyers.
+		-- Wm. Shakespeare, "Henry VI", Part IV
