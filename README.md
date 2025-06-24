@@ -1,2 +1,2 @@
-Few things are harder to put up with than the annoyance of a good example.
-		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
