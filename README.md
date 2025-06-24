@@ -1,1 +1,1 @@
-You're at the end of the road again.
+You will have a long and boring life.
