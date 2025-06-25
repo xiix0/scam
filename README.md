@@ -1,2 +1,2 @@
-If you laid all of our laws end to end, there would be no end.
-		-- Mark Twain
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
