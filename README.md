@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+Your society will be sought by people of taste and refinement.
