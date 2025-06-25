@@ -1,1 +1,1 @@
-Is that really YOU that is reading this?
+Do something unusual today.  Pay a bill.
