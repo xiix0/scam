@@ -1,1 +1,2 @@
-Excellent day for putting Slinkies on an escalator.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
