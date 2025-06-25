@@ -1,1 +1,1 @@
-You will gain money by a fattening action.
+You will probably marry after a very brief courtship.
