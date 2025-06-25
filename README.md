@@ -1,1 +1,2 @@
-You will be recognized and honored as a community leader.
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
