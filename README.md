@@ -1,2 +1,1 @@
-He hath eaten me out of house and home.
-		-- William Shakespeare, "Henry IV"
+You never know how many friends you have until you rent a house on the beach.
