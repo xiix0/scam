@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+Never commit yourself!  Let someone else commit you.
