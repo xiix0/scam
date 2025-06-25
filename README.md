@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
