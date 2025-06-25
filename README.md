@@ -1,1 +1,1 @@
-You will be given a post of trust and responsibility.
+Abandon the search for Truth; settle for a good fantasy.
