@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+Don't worry so loud, your roommate can't think.
