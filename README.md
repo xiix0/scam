@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
