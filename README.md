@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+Bank error in your favor.  Collect $200.
