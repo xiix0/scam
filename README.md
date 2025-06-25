@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+Excellent day for putting Slinkies on an escalator.
