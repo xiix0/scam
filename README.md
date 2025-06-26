@@ -1,2 +1,3 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+In a museum in Havana, there are two skulls of Christopher Columbus,
+"one when he was a boy and one when he was a man."
+		-- Mark Twain
