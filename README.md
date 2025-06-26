@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
