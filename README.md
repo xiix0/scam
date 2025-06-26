@@ -1,3 +1,2 @@
-The lunatic, the lover, and the poet,
-Are of imagination all compact...
-		-- Wm. Shakespeare, "A Midsummer Night's Dream"
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
