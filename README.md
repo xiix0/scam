@@ -1,1 +1,2 @@
-You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
