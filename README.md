@@ -1,2 +1,2 @@
-Few things are harder to put up with than the annoyance of a good example.
-		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
