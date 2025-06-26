@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
