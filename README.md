@@ -1,1 +1,2 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
