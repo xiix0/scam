@@ -1,2 +1,2 @@
-Q:	Who cuts the grass on Walton's Mountain?
-A:	Lawn Boy.
+Wagner's music is better than it sounds.
+		-- Mark Twain
