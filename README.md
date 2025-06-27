@@ -1,2 +1,1 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+Truth will out this morning.  (Which may really mess things up.)
