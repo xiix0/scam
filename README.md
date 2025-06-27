@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+You have the capacity to learn from mistakes.  You'll learn a lot today.
