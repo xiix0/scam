@@ -1,1 +1,1 @@
-You will wish you hadn't.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
