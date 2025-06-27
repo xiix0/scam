@@ -1,2 +1,2 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
