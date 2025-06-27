@@ -1,3 +1,3 @@
-It has long been an axiom of mine that the little things are infinitely
-the most important.
-		-- Sir Arthur Conan Doyle, "A Case of Identity"
+Q:	Know what the difference between your latest project
+	and putting wings on an elephant is?
+A:	Who knows?  The elephant *might* fly, heh, heh...
