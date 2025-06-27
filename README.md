@@ -1,3 +1,1 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+You will be traveling and coming into a fortune.
