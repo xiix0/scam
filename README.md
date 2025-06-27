@@ -1,1 +1,2 @@
-You are a very redundant person, that's what kind of person you are.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
