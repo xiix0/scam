@@ -1,3 +1,1 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
-A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
-Q:	Who were the Democratic presidential candidates?
+You seek to shield those you love and you like the role of the provider.
