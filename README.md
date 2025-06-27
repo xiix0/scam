@@ -1,1 +1,2 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
