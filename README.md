@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+Make a wish, it might come true.
