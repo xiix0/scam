@@ -1,2 +1,1 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+Your object is to save the world, while still leading a pleasant life.
