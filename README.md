@@ -1,3 +1,3 @@
-Grief can take care of itself; but to get the full value of a joy you must
-have somebody to divide it with.
+A banker is a fellow who lends you his umbrella when the sun is shining
+and wants it back the minute it begins to rain.
 		-- Mark Twain
