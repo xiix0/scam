@@ -1,1 +1,1 @@
-Let me put it this way: today is going to be a learning experience.
+You will have good luck and overcome many hardships.
