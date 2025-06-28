@@ -1,1 +1,1 @@
-Tuesday is the Wednesday of the rest of your life.
+You will attract cultured and artistic people to your home.
