@@ -1,1 +1,1 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Tomorrow will be cancelled due to lack of interest.
