@@ -1,3 +1,2 @@
-Consider well the proportions of things.  It is better to be a young June-bug
-than an old bird of paradise.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
