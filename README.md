@@ -1,2 +1,2 @@
-Q:	What's buried in Grant's tomb?
-A:	A corpse.
+He is now rising from affluence to poverty.
+		-- Mark Twain
