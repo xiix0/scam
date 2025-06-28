@@ -1,1 +1,2 @@
-Do something unusual today.  Pay a bill.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
