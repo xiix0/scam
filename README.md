@@ -1,1 +1,1 @@
-You will have good luck and overcome many hardships.
+You have many friends and very few living enemies.
