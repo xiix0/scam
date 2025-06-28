@@ -1,3 +1,2 @@
-They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
-always spell better than they pronounce.
-		-- Mark Twain
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
