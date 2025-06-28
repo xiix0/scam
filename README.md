@@ -1,2 +1,1 @@
-The first thing we do, let's kill all the lawyers.
-		-- Wm. Shakespeare, "Henry VI", Part IV
+Don't plan any hasty moves.  You'll be evicted soon anyway.
