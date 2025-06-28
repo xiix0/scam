@@ -1,1 +1,2 @@
-Your boyfriend takes chocolate from strangers.
+Too much is just enough.
+		-- Mark Twain, on whiskey
