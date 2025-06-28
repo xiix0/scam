@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+Don't hate yourself in the morning -- sleep till noon.
