@@ -1,1 +1,3 @@
-You will gain money by a speculation or lottery.
+Questionable day.
+
+Ask somebody something.
