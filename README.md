@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+You are magnetic in your bearing.
