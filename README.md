@@ -1,1 +1,1 @@
-Your boyfriend takes chocolate from strangers.
+You too can wear a nose mitten.
