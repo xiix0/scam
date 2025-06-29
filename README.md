@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+Beware of a dark-haired man with a loud tie.
