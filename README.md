@@ -1,1 +1,2 @@
-Today is National Existential Ennui Awareness Day.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
