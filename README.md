@@ -1,2 +1,1 @@
-Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
-		-- Shakespeare
+You will soon meet a person who will play an important role in your life.
