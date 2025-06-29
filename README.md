@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+Q:	What is the sound of one cat napping?
+A:	Mu.
