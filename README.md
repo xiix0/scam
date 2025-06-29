@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+Don't hate yourself in the morning -- sleep till noon.
