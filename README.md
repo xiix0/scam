@@ -1,2 +1,2 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
