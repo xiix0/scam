@@ -1,2 +1,2 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
