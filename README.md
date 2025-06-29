@@ -1,2 +1,3 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
