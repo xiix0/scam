@@ -1,1 +1,1 @@
-Beware of a dark-haired man with a loud tie.
+You are farsighted, a good planner, an ardent lover, and a faithful friend.
