@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+Your society will be sought by people of taste and refinement.
