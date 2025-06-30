@@ -1,1 +1,2 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
