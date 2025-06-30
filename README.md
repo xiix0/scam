@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+You're definitely on their list.  The question to ask next is what list it is.
