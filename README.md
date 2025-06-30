@@ -1,2 +1,3 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+Zounds!  I was never so bethumped with words
+since I first called my brother's father dad.
+		-- William Shakespeare, "Kind John"
