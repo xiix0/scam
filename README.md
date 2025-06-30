@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+You learn to write as if to someone else because NEXT YEAR YOU WILL BE
+"SOMEONE ELSE."
