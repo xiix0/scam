@@ -1,2 +1,1 @@
-You learn to write as if to someone else because NEXT YEAR YOU WILL BE
-"SOMEONE ELSE."
+You have a will that can be influenced by all with whom you come in contact.
