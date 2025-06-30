@@ -1,2 +1,4 @@
-Q:	How many IBM CPU's does it take to do a logical right shift?
-A:	33.  1 to hold the bits and 32 to push the register.
+In India, "cold weather" is merely a conventional phrase and has come into
+use through the necessity of having some way to distinguish between weather
+which will melt a brass door-knob and weather which will only make it mushy.
+		-- Mark Twain
