@@ -1,2 +1,8 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+The bone-chilling scream split the warm summer night in two, the first
+half being before the scream when it was fairly balmy and calm and
+pleasant, the second half still balmy and quite pleasant for those who
+hadn't heard the scream at all, but not calm or balmy or even very nice
+for those who did hear the scream, discounting the little period of time
+during the actual scream itself when your ears might have been hearing it
+but your brain wasn't reacting yet to let you know.
+		-- Winning sentence, 1986 Bulwer-Lytton bad fiction contest.
