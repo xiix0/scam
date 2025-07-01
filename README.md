@@ -1,2 +1,1 @@
-You may worry about your hair-do today, but tomorrow much peanut butter will
-be sold.
+You will step on the night soil of many countries.
