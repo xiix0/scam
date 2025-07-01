@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+You are a fluke of the universe; you have no right to be here.
