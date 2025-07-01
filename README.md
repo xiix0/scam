@@ -1,1 +1,3 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
