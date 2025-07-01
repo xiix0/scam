@@ -1,1 +1,2 @@
-You will soon forget this.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
