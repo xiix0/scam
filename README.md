@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
