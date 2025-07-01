@@ -1,2 +1,2 @@
-Never laugh at live dragons.
-		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
