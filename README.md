@@ -1,2 +1,1 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+Time to be aggressive.  Go after a tattooed Virgo.
