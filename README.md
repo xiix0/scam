@@ -1,1 +1,2 @@
-Your love life will be... interesting.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
