@@ -1,3 +1,3 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+Q:	How many mathematicians does it take to screw in a light bulb?
+A:	One.  He gives it to six Californians, thereby reducing the problem
+	to the earlier joke.
