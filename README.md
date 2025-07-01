@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+You will soon forget this.
