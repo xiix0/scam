@@ -1,2 +1,2 @@
-Q:	How much does it cost to ride the Unibus?
-A:	2 bits.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
