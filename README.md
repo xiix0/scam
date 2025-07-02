@@ -1,1 +1,1 @@
-Never give an inch!
+You're at the end of the road again.
