@@ -1,1 +1,2 @@
-You have a deep interest in all that is artistic.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
