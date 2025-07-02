@@ -1,4 +1,3 @@
-F.S. Fitzgerald to Hemingway:
-	"Ernest, the rich are different from us."
-Hemingway:
-	"Yes.  They have more money."
+Q:	Why is Christmas just like a day at the office?
+A:	You do all of the work and the fat guy in the suit
+	gets all the credit.
