@@ -1,1 +1,1 @@
-Your sister swims out to meet troop ships.
+You are going to have a new love affair.
