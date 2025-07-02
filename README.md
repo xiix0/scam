@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+Think twice before speaking, but don't say "think think click click".
