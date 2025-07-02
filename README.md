@@ -1,2 +1,2 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+You are destined to become the commandant of the fighting men of the
+department of transportation.
