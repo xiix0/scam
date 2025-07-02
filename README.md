@@ -1,2 +1,2 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+Q:	What's the difference between a duck and an elephant?
+A:	You can't get down off an elephant.
