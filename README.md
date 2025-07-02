@@ -1,1 +1,1 @@
-You will have long and healthy life.
+Don't read everything you believe.
