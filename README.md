@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+Don't look back, the lemmings are gaining on you.
