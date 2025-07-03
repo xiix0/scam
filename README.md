@@ -1,1 +1,2 @@
-You have a deep interest in all that is artistic.
+Q:	How many marketing people does it take to change a light bulb?
+A:	I'll have to get back to you on that.
