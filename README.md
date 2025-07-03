@@ -1,1 +1,1 @@
-Among the lucky, you are the chosen one.
+Let me put it this way: today is going to be a learning experience.
