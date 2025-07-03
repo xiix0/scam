@@ -1,1 +1,2 @@
-You're almost as happy as you think you are.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
