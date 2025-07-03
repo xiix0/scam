@@ -1,1 +1,2 @@
-After your lover has gone you will still have PEANUT BUTTER!
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
