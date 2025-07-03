@@ -1,3 +1,2 @@
-Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
-as intelligent as ever.
-		-- Samuel Beckett, "Endgame"
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
