@@ -1,1 +1,2 @@
-Are you making all this up as you go along?
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
