@@ -1,3 +1,3 @@
-Q:	What looks like a cat, flies like a bat, brays like a donkey, and
-	plays like a monkey?
-A:	Nothing.
+When I reflect upon the number of disagreeable people who I know who have gone
+to a better world, I am moved to lead a different life.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
