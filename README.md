@@ -1,2 +1,1 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+Your business will go through a period of considerable expansion.
