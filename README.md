@@ -1,3 +1,3 @@
-Q:	What do you call a principal female opera singer whose high C
-	is lower than those of other principal female opera singers?
-A:	A deep C diva.
+A classic is something that everyone wants to have read
+and nobody wants to read.
+		-- Mark Twain, "The Disappearance of Literature"
