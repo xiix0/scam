@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+Perfect day for scrubbing the floor and other exciting things.
