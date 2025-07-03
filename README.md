@@ -1,2 +1,4 @@
-Q:	How many marketing people does it take to change a light bulb?
-A:	I'll have to get back to you on that.
+In Marseilles they make half the toilet soap we consume in America, but
+the Marseillaise only have a vague theoretical idea of its use, which they
+have obtained from books of travel.
+		-- Mark Twain
