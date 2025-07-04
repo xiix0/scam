@@ -1,1 +1,1 @@
-Chicken Little was right.
+Good day for overcoming obstacles.  Try a steeplechase.
