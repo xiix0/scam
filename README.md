@@ -1,5 +1,2 @@
-Q:	How do you catch a unique rabbit?
-A:	Unique up on it!
-
-Q:	How do you catch a tame rabbit?
-A:	The tame way!
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
