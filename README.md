@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+You will visit the Dung Pits of Glive soon.
