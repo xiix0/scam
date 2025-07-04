@@ -1,1 +1,1 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
