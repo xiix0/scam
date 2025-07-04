@@ -1,1 +1,2 @@
-Don't read any sky-writing for the next two weeks.
+This night methinks is but the daylight sick.
+		-- William Shakespeare, "The Merchant of Venice"
