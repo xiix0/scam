@@ -1,2 +1,2 @@
-Don't worry.  Life's too long.
-		-- Vincent Sardi, Jr.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
