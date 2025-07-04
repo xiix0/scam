@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+Day of inquiry.  You will be subpoenaed.
