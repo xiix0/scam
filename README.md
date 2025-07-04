@@ -1,2 +1,2 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
