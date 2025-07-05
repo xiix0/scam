@@ -1,2 +1,2 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
+		-- Sherlock Holmes
