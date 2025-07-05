@@ -1,1 +1,3 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Zounds!  I was never so bethumped with words
+since I first called my brother's father dad.
+		-- William Shakespeare, "Kind John"
