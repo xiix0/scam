@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+Never be led astray onto the path of virtue.
