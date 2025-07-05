@@ -1,2 +1,1 @@
-No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
-		-- Sherlock Holmes
+Are you making all this up as you go along?
