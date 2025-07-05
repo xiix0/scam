@@ -1,1 +1,1 @@
-Ships are safe in harbor, but they were never meant to stay there.
+You will be a winner today.  Pick a fight with a four-year-old.
