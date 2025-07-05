@@ -1,1 +1,3 @@
-Tonight you will pay the wages of sin; Don't forget to leave a tip.
+Training is everything.  The peach was once a bitter almond; cauliflower is
+nothing but cabbage with a college education.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
