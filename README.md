@@ -1,2 +1,1 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+Look afar and see the end from the beginning.
