@@ -1,1 +1,2 @@
-Never be led astray onto the path of virtue.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
