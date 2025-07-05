@@ -1,1 +1,2 @@
-You are only young once, but you can stay immature indefinitely.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
