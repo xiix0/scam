@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+Tonight you will pay the wages of sin; Don't forget to leave a tip.
