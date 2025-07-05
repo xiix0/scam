@@ -1,1 +1,2 @@
-Look afar and see the end from the beginning.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
