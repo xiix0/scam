@@ -1,1 +1,2 @@
-You will visit the Dung Pits of Glive soon.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
