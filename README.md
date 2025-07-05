@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
