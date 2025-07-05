@@ -1,2 +1,2 @@
-No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
-		-- Sherlock Holmes
+Q:	Why did Menachem Begin invade Lebanon?
+A:	To impress Jodie Foster.
