@@ -1,2 +1,2 @@
-He that breaks a thing to find out what it is has left the path of wisdom.
-		-- J.R.R. Tolkien
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
