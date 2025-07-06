@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
