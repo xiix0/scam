@@ -1,2 +1,2 @@
-You will lose your present job and have to become a door to door mayonnaise
-salesman.
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
