@@ -1,1 +1,3 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+Consider well the proportions of things.  It is better to be a young June-bug
+than an old bird of paradise.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
