@@ -1,2 +1,2 @@
-Small things make base men proud.
-		-- William Shakespeare, "Henry VI"
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
