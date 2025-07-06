@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+You're ugly and your mother dresses you funny.
