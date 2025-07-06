@@ -1,2 +1,2 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
