@@ -1,1 +1,1 @@
-What happened last night can happen again.
+You have a truly strong individuality.
