@@ -1,2 +1,1 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+Things will be bright in P.M.  A cop will shine a light in your face.
