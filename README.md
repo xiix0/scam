@@ -1,1 +1,2 @@
-You will become rich and famous unless you don't.
+He is now rising from affluence to poverty.
+		-- Mark Twain
