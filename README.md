@@ -1,1 +1,2 @@
-Don't read any sky-writing for the next two weeks.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
