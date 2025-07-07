@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+You will give someone a piece of your mind, which you can ill afford.
