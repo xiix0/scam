@@ -1,1 +1,1 @@
-There is a 20% chance of tomorrow.
+Do something unusual today.  Pay a bill.
