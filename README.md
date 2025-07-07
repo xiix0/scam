@@ -1,1 +1,1 @@
-You will give someone a piece of your mind, which you can ill afford.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
