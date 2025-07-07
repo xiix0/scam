@@ -1,2 +1,1 @@
-The first thing we do, let's kill all the lawyers.
-		-- Wm. Shakespeare, "Henry VI", Part IV
+An exotic journey in downtown Newark is in your future.
