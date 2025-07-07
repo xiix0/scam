@@ -1,1 +1,2 @@
-You will meet an important person who will help you advance professionally.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
