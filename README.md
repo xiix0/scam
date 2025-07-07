@@ -1,3 +1,3 @@
-Noise proves nothing.  Often a hen who has merely laid an egg cackles
-as if she laid an asteroid.
+Work consists of whatever a body is obliged to do.
+Play consists of whatever a body is not obliged to do.
 		-- Mark Twain
