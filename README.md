@@ -1,3 +1,1 @@
-Questionable day.
-
-Ask somebody something.
+Blow it out your ear.
