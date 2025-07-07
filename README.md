@@ -1,1 +1,3 @@
-You are dishonest, but never to the point of hurting a friend.
+Noise proves nothing.  Often a hen who has merely laid an egg cackles
+as if she laid an asteroid.
+		-- Mark Twain
