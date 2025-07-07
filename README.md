@@ -1,1 +1,1 @@
-You have a strong desire for a home and your family interests come first.
+Give him an evasive answer.
