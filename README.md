@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Courage is your greatest present need.
