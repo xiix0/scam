@@ -1,2 +1,2 @@
-Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
-A:	Trustworthy.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
