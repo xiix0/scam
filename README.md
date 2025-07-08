@@ -1,1 +1,1 @@
-Many changes of mind and mood; do not hesitate too long.
+You are only young once, but you can stay immature indefinitely.
