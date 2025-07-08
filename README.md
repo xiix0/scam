@@ -1,2 +1,2 @@
-Q:	What do agnostic, insomniac dyslexics do at night?
-A:	Stay awake and wonder if there's a dog.
+Q:	What do little WASPs want to be when they grow up?
+A:	The very best person they can possibly be.
