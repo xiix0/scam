@@ -1,2 +1,1 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+Good news from afar can bring you a welcome visitor.
