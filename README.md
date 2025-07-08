@@ -1,3 +1,2 @@
-Q:	What do you call the money you pay to the government when
-	you ride into the country on the back of an elephant?
-A:	A howdah duty.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
