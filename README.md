@@ -1,1 +1,1 @@
-Your heart is pure, and your mind clear, and your soul devout.
+You will become rich and famous unless you don't.
