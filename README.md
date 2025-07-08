@@ -1,1 +1,2 @@
-You will be married within a year.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
