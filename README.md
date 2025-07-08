@@ -1,1 +1,1 @@
-You are only young once, but you can stay immature indefinitely.
+You will have domestic happiness and faithful friends.
