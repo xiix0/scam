@@ -1,1 +1,1 @@
-Your lucky color has faded.
+You will inherit some money or a small piece of land.
