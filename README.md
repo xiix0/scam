@@ -1,1 +1,1 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+There is a 20% chance of tomorrow.
