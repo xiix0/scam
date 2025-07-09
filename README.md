@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+You have taken yourself too seriously.
