@@ -1,4 +1,2 @@
-O, it is excellent
-To have a giant's strength; but it is tyrannous
-To use it like a giant.
-		-- Shakespeare, "Measure for Measure", II, 2
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
