@@ -1,1 +1,1 @@
-You look tired.
+Abandon the search for Truth; settle for a good fantasy.
