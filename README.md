@@ -1,1 +1,2 @@
-You will step on the night soil of many countries.
+The Public is merely a multiplied "me."
+		-- Mark Twain
