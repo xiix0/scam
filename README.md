@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+Increased knowledge will help you now.  Have mate's phone bugged.
