@@ -1,1 +1,2 @@
-The time is right to make new friends.
+No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
+		-- Sherlock Holmes
