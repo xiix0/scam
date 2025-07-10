@@ -1,1 +1,1 @@
-Your fly might be open (but don't check it just now).
+You have an ability to sense and know higher truth.
