@@ -1,1 +1,1 @@
-Break into jail and claim police brutality.
+You are only young once, but you can stay immature indefinitely.
