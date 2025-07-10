@@ -1,2 +1,2 @@
-The smallest worm will turn being trodden on.
-		-- William Shakespeare, "Henry VI"
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
