@@ -1,1 +1,2 @@
-Caution: Keep out of reach of children.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
