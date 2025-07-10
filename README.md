@@ -1,2 +1,2 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+You'll wish that you had done some of the hard things when they were easier
+to do.
