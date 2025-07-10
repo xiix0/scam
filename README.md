@@ -1,2 +1,6 @@
-Q:	How many supply-siders does it take to change a light bulb?
-A:	None.  The darkness will cause the light bulb to change by itself.
+Q:	How do you shoot a blue elephant?
+A:	With a blue-elephant gun.
+
+Q:	How do you shoot a pink elephant?
+A:	Twist its trunk until it turns blue, then shoot it with
+	a blue-elephant gun.
