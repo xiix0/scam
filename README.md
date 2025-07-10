@@ -1,1 +1,2 @@
-You have an ability to sense and know higher truth.
+Conscience doth make cowards of us all.
+		-- Shakespeare
