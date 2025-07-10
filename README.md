@@ -1,2 +1,2 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
