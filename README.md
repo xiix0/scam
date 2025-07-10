@@ -1,1 +1,2 @@
-You have a strong appeal for members of your own sex.
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
