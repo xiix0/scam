@@ -1,2 +1,4 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
