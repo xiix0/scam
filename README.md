@@ -1,1 +1,3 @@
-Be cautious in your daily affairs.
+Questionable day.
+
+Ask somebody something.
