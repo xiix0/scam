@@ -1,2 +1,1 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+You're working under a slight handicap.  You happen to be human.
