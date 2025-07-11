@@ -1,3 +1,3 @@
-Q:	How many psychiatrists does it take to change a light bulb?
-A:	Only one, but it takes a long time, and the light bulb has
-	to really want to change.
+Perilous to all of us are the devices of an art deeper than we ourselves
+possess.
+		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
