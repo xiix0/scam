@@ -1,1 +1,2 @@
-Tonight's the night: Sleep in a eucalyptus tree.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
