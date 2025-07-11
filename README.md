@@ -1,1 +1,1 @@
-You will be run over by a bus.
+You have a strong desire for a home and your family interests come first.
