@@ -1,1 +1,1 @@
-A day for firm decisions!!!!!  Or is it?
+Give him an evasive answer.
