@@ -1,1 +1,3 @@
-You're working under a slight handicap.  You happen to be human.
+If one cannot enjoy reading a book over and over again, there is no use
+in reading it at all.
+		-- Oscar Wilde
