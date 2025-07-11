@@ -1,2 +1,1 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+Tonight's the night: Sleep in a eucalyptus tree.
