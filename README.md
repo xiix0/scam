@@ -1,1 +1,2 @@
-Give him an evasive answer.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
