@@ -1,2 +1,2 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+Q:	What's hard going in and soft and sticky coming out?
+A:	Chewing gum.
