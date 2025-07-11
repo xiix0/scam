@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
