@@ -1,3 +1,1 @@
-Perilous to all of us are the devices of an art deeper than we ourselves
-possess.
-		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
+You never know how many friends you have until you rent a house on the beach.
