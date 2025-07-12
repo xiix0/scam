@@ -1,1 +1,2 @@
-Lady Luck brings added income today.  Lady friend takes it away tonight.
+You had some happiness once, but your parents moved away, and you had to
+leave it behind.
