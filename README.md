@@ -1,2 +1,2 @@
-Q:	What's the difference betweeen USL and the Graf Zeppelin?
-A:	The Graf Zeppelin represented cutting edge technology for its time.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
