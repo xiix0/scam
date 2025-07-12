@@ -1,1 +1,1 @@
-Don't hate yourself in the morning -- sleep till noon.
+A vivid and creative mind characterizes you.
