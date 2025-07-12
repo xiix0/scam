@@ -1,1 +1,2 @@
-Generosity and perfection are your everlasting goals.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
