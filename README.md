@@ -1,2 +1,2 @@
-Q:	Why don't lawyers go to the beach?
-A:	The cats keep trying to bury them.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
