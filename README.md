@@ -1,2 +1,2 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
