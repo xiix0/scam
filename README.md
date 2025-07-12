@@ -1,1 +1,2 @@
-You will be advanced socially, without any special effort on your part.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
