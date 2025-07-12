@@ -1,1 +1,1 @@
-Your lucky number has been disconnected.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
