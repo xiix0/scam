@@ -1,1 +1,3 @@
-You have an unusual understanding of the problems of human relationships.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
