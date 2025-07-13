@@ -1,1 +1,1 @@
-Bank error in your favor.  Collect $200.
+You are so boring that when I see you my feet go to sleep.
