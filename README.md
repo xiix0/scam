@@ -1,2 +1,3 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #15
+A:	The Royal Canadian Mounted Police.
+Q:	What was the greatest achievement in taxidermy?
