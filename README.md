@@ -1,1 +1,1 @@
-You have an unusual understanding of the problems of human relationships.
+You plan things that you do not even attempt because of your extreme caution.
