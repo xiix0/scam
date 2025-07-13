@@ -1,1 +1,2 @@
-You will have a long and unpleasant discussion with your supervisor.
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
