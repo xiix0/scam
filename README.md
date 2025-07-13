@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+Bank error in your favor.  Collect $200.
