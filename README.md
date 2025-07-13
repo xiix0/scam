@@ -1,2 +1,2 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
