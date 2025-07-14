@@ -1,3 +1,2 @@
-It has long been an axiom of mine that the little things are infinitely
-the most important.
-		-- Sir Arthur Conan Doyle, "A Case of Identity"
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
