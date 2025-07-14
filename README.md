@@ -1,2 +1,3 @@
-Q:	What's the difference between a duck and an elephant?
-A:	You can't get down off an elephant.
+In a museum in Havana, there are two skulls of Christopher Columbus,
+"one when he was a boy and one when he was a man."
+		-- Mark Twain
