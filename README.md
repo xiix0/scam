@@ -1,1 +1,2 @@
-All the troubles you have will pass away very quickly.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
