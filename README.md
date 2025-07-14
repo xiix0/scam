@@ -1,1 +1,3 @@
-You'd like to do it instantaneously, but that's too slow.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
