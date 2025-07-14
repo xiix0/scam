@@ -1,1 +1,2 @@
-Don't you feel more like you do now than you did when you came in?
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
