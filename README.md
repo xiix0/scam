@@ -1,1 +1,1 @@
-You don't become a failure until you're satisfied with being one.
+Don't you feel more like you do now than you did when you came in?
