@@ -1,2 +1,3 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+Questionable day.
+
+Ask somebody something.
