@@ -1,1 +1,1 @@
-You will be awarded some great honor.
+You'd like to do it instantaneously, but that's too slow.
