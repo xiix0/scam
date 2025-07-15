@@ -1,2 +1,2 @@
-The fashion wears out more apparel than the man.
-		-- William Shakespeare, "Much Ado About Nothing"
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
