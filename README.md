@@ -1,3 +1,2 @@
-A long-forgotten loved one will appear soon.
-
-Buy the negatives at any price.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
