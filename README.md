@@ -1,2 +1,2 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
