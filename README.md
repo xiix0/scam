@@ -1,1 +1,1 @@
-You will be advanced socially, without any special effort on your part.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
