@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+You will hear good news from one you thought unfriendly to you.
