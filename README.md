@@ -1,2 +1,2 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
