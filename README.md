@@ -1,1 +1,1 @@
-Is this really happening?
+Try the Moo Shu Pork.  It is especially good today.
