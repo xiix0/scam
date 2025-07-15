@@ -1,1 +1,2 @@
-Slow day.  Practice crawling.
+Fine day for friends.
+So-so day for you.
