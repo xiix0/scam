@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+You're almost as happy as you think you are.
