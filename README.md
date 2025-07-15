@@ -1,1 +1,2 @@
-The time is right to make new friends.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
