@@ -1,1 +1,2 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
