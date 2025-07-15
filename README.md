@@ -1,1 +1,1 @@
-You will hear good news from one you thought unfriendly to you.
+Your heart is pure, and your mind clear, and your soul devout.
