@@ -1,1 +1,1 @@
-Be careful!  Is it classified?
+Your talents will be recognized and suitably rewarded.
