@@ -1,1 +1,1 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Do not overtax your powers.
