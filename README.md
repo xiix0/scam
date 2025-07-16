@@ -1,2 +1,1 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+Love is in the offing.  Be affectionate to one who adores you.
