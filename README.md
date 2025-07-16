@@ -1,2 +1,2 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
