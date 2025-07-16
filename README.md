@@ -1,1 +1,2 @@
-You have taken yourself too seriously.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
