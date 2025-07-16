@@ -1,2 +1,1 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+You are a fluke of the universe; you have no right to be here.
