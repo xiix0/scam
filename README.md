@@ -1,1 +1,1 @@
-Give him an evasive answer.
+Never reveal your best argument.
