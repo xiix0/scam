@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
