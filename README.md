@@ -1,2 +1,2 @@
-The naked truth of it is, I have no shirt.
-		-- William Shakespeare, "Love's Labour's Lost"
+All generalizations are false, including this one.
+		-- Mark Twain
