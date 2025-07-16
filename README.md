@@ -1,1 +1,5 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+April 1
+
+This is the day upon which we are reminded of what we are on the other three
+hundred and sixty-four.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
