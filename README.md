@@ -1,1 +1,2 @@
-You two ought to be more careful--your love could drag on for years and years.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
