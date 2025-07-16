@@ -1,1 +1,3 @@
-There was a phone call for you.
+Consider well the proportions of things.  It is better to be a young June-bug
+than an old bird of paradise.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
