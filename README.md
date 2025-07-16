@@ -1,1 +1,2 @@
-Don't plan any hasty moves.  You'll be evicted soon anyway.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
