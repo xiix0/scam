@@ -1,4 +1,1 @@
-	You will remember, Watson, how the dreadful business of the
-Abernetty family was first brought to my notice by the depth which the
-parsley had sunk into the butter upon a hot day.
-		-- Sherlock Holmes
+This will be a memorable month -- no matter how hard you try to forget it.
