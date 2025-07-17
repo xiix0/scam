@@ -1,1 +1,3 @@
-You have a will that can be influenced by all with whom you come in contact.
+There is no hunting like the hunting of man, and those who have hunted
+armed men long enough and liked it, never care for anything else thereafter.
+		-- Ernest Hemingway
