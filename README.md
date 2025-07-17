@@ -1,3 +1,2 @@
-The difference between a Miracle and a Fact is exactly the difference
-between a mermaid and a seal.
-		-- Mark Twain
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
