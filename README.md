@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+You need more time; and you probably always will.
