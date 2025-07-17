@@ -1,3 +1,1 @@
-You may my glories and my state dispose,
-But not my griefs; still am I king of those.
-		-- William Shakespeare, "Richard II"
+You have an unusual equipment for success.  Be sure to use it properly.
