@@ -1,1 +1,2 @@
-Look afar and see the end from the beginning.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
