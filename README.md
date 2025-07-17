@@ -1,1 +1,1 @@
-You are going to have a new love affair.
+Give your very best today.  Heaven knows it's little enough.
