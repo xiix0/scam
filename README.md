@@ -1,6 +1,8 @@
-The bay-trees in our country are all wither'd
-And meteors fright the fixed stars of heaven;
-The pale-faced moon looks bloody on the earth
-And lean-look'd prophets whisper fearful change.
-These signs forerun the death or fall of kings.
-		-- Wm. Shakespeare, "Richard II"
+In the space of one hundred and seventy-six years the Mississippi has
+shortened itself two hundred and forty-two miles.  Therefore ... in the Old
+Silurian Period the Mississippi River was upward of one million three hundred
+thousand miles long ... seven hundred and forty-two years from now the
+Mississippi will be only a mile and three-quarters long.  ... There is
+something fascinating about science.  One gets such wholesome returns of
+conjecture out of such a trifling investment of fact.
+		-- Mark Twain
