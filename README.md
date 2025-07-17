@@ -1,1 +1,2 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
