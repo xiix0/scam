@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
