@@ -1,3 +1,3 @@
-Perilous to all of us are the devices of an art deeper than we ourselves
-possess.
-		-- Gandalf the Grey [J.R.R. Tolkien, "Lord of the Rings"]
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
