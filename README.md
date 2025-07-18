@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+Your lover will never wish to leave you.
