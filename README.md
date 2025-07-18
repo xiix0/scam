@@ -1,1 +1,2 @@
-You will be recognized and honored as a community leader.
+Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
+A:	Trustworthy.
