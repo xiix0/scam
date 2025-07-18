@@ -1,1 +1,1 @@
-You have an ability to sense and know higher truth.
+Your own qualities will help prevent your advancement in the world.
