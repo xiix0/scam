@@ -1,1 +1,1 @@
-Your love life will be... interesting.
+You have an ambitious nature and may make a name for yourself.
