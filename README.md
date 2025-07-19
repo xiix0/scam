@@ -1,5 +1,2 @@
-Q:	How many existentialists does it take to screw in a light bulb?
-A:	Two.  One to screw it in and one to observe how the light bulb
-	itself symbolizes a single incandescent beacon of subjective
-	reality in a netherworld of endless absurdity reaching out toward a
-	maudlin cosmos of nothingness.
+After all, all he did was string together a lot of old, well-known quotations.
+		-- H. L. Mencken, on Shakespeare
