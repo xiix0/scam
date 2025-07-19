@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+Be security conscious -- National defense is at stake.
