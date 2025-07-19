@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+Look afar and see the end from the beginning.
