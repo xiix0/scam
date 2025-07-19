@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+Tuesday After Lunch is the cosmic time of the week.
