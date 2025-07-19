@@ -1,2 +1,5 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
+
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
