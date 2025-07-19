@@ -1,1 +1,2 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
