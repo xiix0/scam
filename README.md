@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+Slow day.  Practice crawling.
