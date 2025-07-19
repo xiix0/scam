@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+Best of all is never to have been born.  Second best is to die soon.
