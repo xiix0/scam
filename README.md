@@ -1,3 +1,2 @@
-Q:	What does a WASP Mom make for dinner?
-A:	A crisp salad, a hearty soup, a lovely entree, followed by
-	a delicious dessert.
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
