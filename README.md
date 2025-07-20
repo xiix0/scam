@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+You are sick, twisted and perverted.  I like that in a person.
