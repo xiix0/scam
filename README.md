@@ -1,2 +1,2 @@
-It is a wise father that knows his own child.
-		-- William Shakespeare, "The Merchant of Venice"
+The surest protection against temptation is cowardice.
+		-- Mark Twain
