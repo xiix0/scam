@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
