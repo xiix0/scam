@@ -1,1 +1,2 @@
-You can rent this space for only $5 a week.
+The better part of valor is discretion.
+		-- William Shakespeare, "Henry IV"
