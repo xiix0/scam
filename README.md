@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
