@@ -1,1 +1,2 @@
-You're almost as happy as you think you are.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
