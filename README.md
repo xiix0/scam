@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+Don't get stuck in a closet -- wear yourself out.
