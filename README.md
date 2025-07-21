@@ -1,2 +1,1 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+Artistic ventures highlighted.  Rob a museum.
