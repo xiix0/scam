@@ -1,2 +1,2 @@
-When you are about to die, a wombat is better than no company at all.
-		-- Roger Zelazny, "Doorways in the Sand"
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
