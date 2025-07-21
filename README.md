@@ -1,1 +1,1 @@
-You own a dog, but you can only feed a cat.
+An exotic journey in downtown Newark is in your future.
