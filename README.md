@@ -1,2 +1,1 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+You could live a better life, if you had a better mind and a better body.
