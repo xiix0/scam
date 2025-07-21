@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+You will visit the Dung Pits of Glive soon.
