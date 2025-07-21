@@ -1,1 +1,2 @@
-You will get what you deserve.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
