@@ -1,1 +1,2 @@
-You are a very redundant person, that's what kind of person you are.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
