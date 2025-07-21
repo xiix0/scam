@@ -1,1 +1,3 @@
-You are fighting for survival in your own sweet and gentle way.
+Someone is speaking well of you.
+
+How unusual!
