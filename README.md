@@ -1,1 +1,2 @@
-You will reach the highest possible point in your business or profession.
+When you are about to die, a wombat is better than no company at all.
+		-- Roger Zelazny, "Doorways in the Sand"
