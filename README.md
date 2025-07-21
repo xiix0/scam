@@ -1,5 +1,3 @@
-Q:	What do you call 15 blondes in a circle?
-A:	A dope ring.
-
-Q:	Why do blondes put their hair in ponytails?
-A:	To cover up the valve stem.
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
