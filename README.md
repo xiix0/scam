@@ -1,1 +1,1 @@
-You have a strong appeal for members of your own sex.
+You are fighting for survival in your own sweet and gentle way.
