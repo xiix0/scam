@@ -1,1 +1,2 @@
-Beware of a tall blond man with one black shoe.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
