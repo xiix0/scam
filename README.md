@@ -1,1 +1,1 @@
-You will pass away very quickly.
+You're a card which will have to be dealt with.
