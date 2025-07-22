@@ -1,1 +1,1 @@
-You love peace.
+Your present plans will be successful.
