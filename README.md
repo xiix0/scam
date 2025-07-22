@@ -1,1 +1,2 @@
-You have a deep interest in all that is artistic.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
