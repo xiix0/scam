@@ -1,1 +1,1 @@
-You are the only person to ever get this message.
+You have an unusual understanding of the problems of human relationships.
