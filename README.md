@@ -1,1 +1,1 @@
-You recoil from the crude; you tend naturally toward the exquisite.
+Change your thoughts and you change your world.
