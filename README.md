@@ -1,2 +1,2 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
