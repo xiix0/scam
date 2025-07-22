@@ -1,5 +1,7 @@
-Q:	How many existentialists does it take to screw in a light bulb?
-A:	Two.  One to screw it in and one to observe how the light bulb
-	itself symbolizes a single incandescent beacon of subjective
-	reality in a netherworld of endless absurdity reaching out toward a
-	maudlin cosmos of nothingness.
+Sheriff Chameleotoptor sighed with an air of weary sadness, and then
+turned to Doppelgutt and said 'The Senator must really have been on a
+bender this time -- he left a party in Cleveland, Ohio, at 11:30 last
+night, and they found his car this morning in the smokestack of a British
+aircraft carrier in the Formosa Straits.'
+		-- Grand Panjandrum's Special Award, 1985 Bulwer-Lytton
+		   bad fiction contest.
