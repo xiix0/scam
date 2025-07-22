@@ -1,1 +1,1 @@
-You will remember something that you should not have forgotten.
+You will always get the greatest recognition for the job you least like.
