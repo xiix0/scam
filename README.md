@@ -1,1 +1,1 @@
-Accent on helpful side of your nature.  Drain the moat.
+Your supervisor is thinking about you.
