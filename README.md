@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Do something unusual today.  Pay a bill.
