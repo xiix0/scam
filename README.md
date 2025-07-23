@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+You will live to see your grandchildren.
