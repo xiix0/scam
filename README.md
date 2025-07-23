@@ -1,1 +1,5 @@
-Your mode of life will be changed for the better because of new developments.
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
