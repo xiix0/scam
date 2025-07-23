@@ -1,2 +1,2 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+For courage mounteth with occasion.
+		-- William Shakespeare, "King John"
