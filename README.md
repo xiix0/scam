@@ -1,1 +1,8 @@
-Good day to let down old friends who need help.
+October.
+
+This is one of the peculiarly dangerous months to speculate in stocks in.
+
+The others are July, January, September, April, November, May, March, June,
+December, August, and February.
+
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
