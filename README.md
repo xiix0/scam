@@ -1,1 +1,1 @@
-You will live to see your grandchildren.
+The time is right to make new friends.
