@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
