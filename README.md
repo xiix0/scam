@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
