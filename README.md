@@ -1,6 +1,9 @@
-The countdown had stalled at 'T' minus 69 seconds when Desiree, the first
-female ape to go up in space, winked at me slyly and pouted her thick,
-rubbery lips unmistakably -- the first of many such advances during what
-would prove to be the longest, and most memorable, space voyage of my
-career.
-		-- Winning sentence, 1985 Bulwer-Lytton bad fiction contest.
+Q:	How many DEC repairman does it take to fix a flat?
+A:	Five; four to hold the car up and one to swap tires.
+
+Q:	How long does it take?
+A:	It's indeterminate.
+	It will depend upon how many flats they've brought with them.
+
+Q:	What happens if you've got TWO flats?
+A:	They replace your generator.
