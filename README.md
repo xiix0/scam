@@ -1,1 +1,1 @@
-Future looks spotty.  You will spill soup in late evening.
+You love your home and want it to be beautiful.
