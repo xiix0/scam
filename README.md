@@ -1,1 +1,2 @@
-You are fighting for survival in your own sweet and gentle way.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
