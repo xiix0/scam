@@ -1,3 +1,2 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
