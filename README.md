@@ -1,1 +1,2 @@
-You love your home and want it to be beautiful.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
