@@ -1,1 +1,3 @@
-You work very hard.  Don't try to think as well.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
