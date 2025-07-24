@@ -1,3 +1,3 @@
-I must have a prodigious quantity of mind; it takes me as much as a
-week sometimes to make it up.
-		-- Mark Twain, "The Innocents Abroad"
+Whenever you find that you are on the side of the majority, it is time
+to reform.
+		-- Mark Twain
