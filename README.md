@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Future looks spotty.  You will spill soup in late evening.
