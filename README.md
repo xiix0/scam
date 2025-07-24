@@ -1,1 +1,2 @@
-Never reveal your best argument.
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
