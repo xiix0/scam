@@ -1,2 +1,1 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+Don't read any sky-writing for the next two weeks.
