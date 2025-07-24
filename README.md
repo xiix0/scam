@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+Live in a world of your own, but always welcome visitors.
