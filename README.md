@@ -1,1 +1,3 @@
-Don't look now, but the man in the moon is laughing at you.
+I must have a prodigious quantity of mind; it takes me as much as a
+week sometimes to make it up.
+		-- Mark Twain, "The Innocents Abroad"
