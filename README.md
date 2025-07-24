@@ -1,1 +1,2 @@
-You are deeply attached to your friends and acquaintances.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
