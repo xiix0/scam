@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Never be led astray onto the path of virtue.
