@@ -1,1 +1,1 @@
-You two ought to be more careful--your love could drag on for years and years.
+Try to value useful qualities in one who loves you.
