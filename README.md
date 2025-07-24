@@ -1,2 +1,1 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+Love is in the offing.  Be affectionate to one who adores you.
