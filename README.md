@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+You will be held hostage by a radical group.
