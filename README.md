@@ -1,1 +1,2 @@
-Your aim is high and to the right.
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
