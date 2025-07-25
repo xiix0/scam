@@ -1,1 +1,2 @@
-You will be held hostage by a radical group.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
