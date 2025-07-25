@@ -1,1 +1,2 @@
-It's all in the mind, ya know.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
