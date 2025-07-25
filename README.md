@@ -1,3 +1,3 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
-A:	Dr. Livingston I. Presume.
-Q:	What's Dr. Presume's full name?
+Q:	How do you play religious roulette?
+A:	You stand around in a circle and blaspheme and see who gets
+	struck by lightning first.
