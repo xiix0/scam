@@ -1,2 +1,2 @@
-question = ( to ) ? be : ! be;
-		-- Wm. Shakespeare
+Kiss me, Kate, we will be married o' Sunday.
+		-- William Shakespeare, "The Taming of the Shrew"
