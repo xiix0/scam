@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+Your aim is high and to the right.
