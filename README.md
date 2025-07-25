@@ -1,2 +1,5 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Q:	Why do ducks have big flat feet?
+A:	To stamp out forest fires.
+
+Q:	Why do elephants have big flat feet?
+A:	To stamp out flaming ducks.
