@@ -1,1 +1,2 @@
-You work very hard.  Don't try to think as well.
+He is now rising from affluence to poverty.
+		-- Mark Twain
