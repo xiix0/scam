@@ -1,1 +1,2 @@
-Beauty and harmony are as necessary to you as the very breath of life.
+Your analyst has you mixed up with another patient.  Don't believe a
+thing he tells you.
