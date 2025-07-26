@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+Don't read everything you believe.
