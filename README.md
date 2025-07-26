@@ -1,1 +1,2 @@
-You will gain money by an illegal action.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
