@@ -1,2 +1,3 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+Work consists of whatever a body is obliged to do.
+Play consists of whatever a body is not obliged to do.
+		-- Mark Twain
