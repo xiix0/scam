@@ -1,2 +1,2 @@
-Q:	How many WASPs does it take to change a light bulb?
-A:	One.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
