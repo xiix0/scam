@@ -1,1 +1,1 @@
-Don't read everything you believe.
+You seek to shield those you love and you like the role of the provider.
