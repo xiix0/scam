@@ -1,1 +1,1 @@
-You will win success in whatever calling you adopt.
+You will be surprised by a loud noise.
