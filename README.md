@@ -1,2 +1,2 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
