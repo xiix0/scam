@@ -1,2 +1,2 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
