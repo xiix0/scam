@@ -1,1 +1,1 @@
-You may be recognized soon.  Hide.
+Don't go surfing in South Dakota for a while.
