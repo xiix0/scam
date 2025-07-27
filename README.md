@@ -1,1 +1,2 @@
-Someone whom you reject today, will reject you tomorrow.
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
