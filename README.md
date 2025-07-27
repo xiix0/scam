@@ -1,1 +1,1 @@
-You may be recognized soon.  Hide.
+Someone whom you reject today, will reject you tomorrow.
