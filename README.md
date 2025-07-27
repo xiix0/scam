@@ -1,2 +1,2 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+Just because the message may never be received does not mean it is
+not worth sending.
