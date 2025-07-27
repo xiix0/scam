@@ -1,2 +1,1 @@
-Just because the message may never be received does not mean it is
-not worth sending.
+Expect the worst, it's the least you can do.
