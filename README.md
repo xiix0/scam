@@ -1,2 +1,2 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
