@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+It's lucky you're going so slowly, because you're going in the wrong direction.
