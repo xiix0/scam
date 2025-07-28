@@ -1,2 +1,2 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+Q:	What's tiny and yellow and very, very, dangerous?
+A:	A canary with the super-user password.
