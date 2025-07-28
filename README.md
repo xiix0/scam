@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+Never be led astray onto the path of virtue.
