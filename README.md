@@ -1,1 +1,2 @@
-Tuesday After Lunch is the cosmic time of the week.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
