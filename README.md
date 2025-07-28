@@ -1,3 +1,4 @@
-Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
-A:	That's proprietary information.  Answer available from AT&T on payment
-	of license fee (binary only).
+You mentioned your name as if I should recognize it, but beyond the
+obvious facts that you are a bachelor, a solicitor, a freemason, and
+an asthmatic, I know nothing whatever about you.
+		-- Sherlock Holmes, "The Norwood Builder"
