@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+You are magnetic in your bearing.
