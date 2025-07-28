@@ -1,2 +1,2 @@
-You will pay for your sins.  If you have already paid, please disregard
-this message.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
