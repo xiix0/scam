@@ -1,1 +1,1 @@
-Many pages make a thick book.
+Do nothing unless you must, and when you must act -- hesitate.
