@@ -1,1 +1,2 @@
-You will be the last person to buy a Chrysler.
+A is for Apple.
+		-- Hester Pryne
