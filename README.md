@@ -1,1 +1,2 @@
-You will be reincarnated as a toad; and you will be much happier.
+Q:	What do you get when you cross the Godfather with an attorney?
+A:	An offer you can't understand.
