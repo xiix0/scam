@@ -1,2 +1,1 @@
-Q:	What do you get when you cross the Godfather with an attorney?
-A:	An offer you can't understand.
+It may or may not be worthwhile, but it still has to be done.
