@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+Generosity and perfection are your everlasting goals.
