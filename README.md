@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+Your object is to save the world, while still leading a pleasant life.
