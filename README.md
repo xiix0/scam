@@ -1,1 +1,2 @@
-You have a truly strong individuality.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
