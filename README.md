@@ -1,3 +1,5 @@
-It has long been an axiom of mine that the little things are infinitely
-the most important.
-		-- Sir Arthur Conan Doyle, "A Case of Identity"
+April 1
+
+This is the day upon which we are reminded of what we are on the other three
+hundred and sixty-four.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
