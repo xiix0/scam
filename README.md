@@ -1,4 +1,3 @@
-O, it is excellent
-To have a giant's strength; but it is tyrannous
-To use it like a giant.
-		-- Shakespeare, "Measure for Measure", II, 2
+Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
+that think they are truffles.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
