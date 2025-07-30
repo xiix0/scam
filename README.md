@@ -1,1 +1,1 @@
-Advancement in position.
+Your true value depends entirely on what you are compared with.
