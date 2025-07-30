@@ -1,1 +1,2 @@
-Excellent day for putting Slinkies on an escalator.
+Extreme fear can neither fight nor fly.
+		-- William Shakespeare, "The Rape of Lucrece"
