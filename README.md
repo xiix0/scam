@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+You shall be rewarded for a dastardly deed.
