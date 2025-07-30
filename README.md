@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+Future looks spotty.  You will spill soup in late evening.
