@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You don't become a failure until you're satisfied with being one.
