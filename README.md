@@ -1,1 +1,2 @@
-Don't let your mind wander -- it's too little to be let out alone.
+Too much is just enough.
+		-- Mark Twain, on whiskey
