@@ -1,2 +1,3 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
