@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Q:	How do you keep a moron in suspense?
