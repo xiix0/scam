@@ -1,1 +1,1 @@
-Chicken Little was right.
+Live in a world of your own, but always welcome visitors.
