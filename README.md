@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+You're not my type.  For that matter, you're not even my species!!!
