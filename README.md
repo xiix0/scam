@@ -1,1 +1,2 @@
-You teach best what you most need to learn.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
