@@ -1,2 +1,2 @@
-It usually takes more than three weeks to prepare a good impromptu speech.
-		-- Mark Twain
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
