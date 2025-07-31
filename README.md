@@ -1,3 +1,2 @@
-The difference between the right word and the almost right word is the
-difference between lightning and the lightning bug.
-		-- Mark Twain
+After all, all he did was string together a lot of old, well-known quotations.
+		-- H. L. Mencken, on Shakespeare
