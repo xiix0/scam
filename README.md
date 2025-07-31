@@ -1,3 +1,3 @@
-Anyone who has had a bull by the tail knows five or six more things
-than someone who hasn't.
-		-- Mark Twain
+Q:	How many mathematicians does it take to screw in a light bulb?
+A:	One.  He gives it to six Californians, thereby reducing the problem
+	to the earlier joke.
