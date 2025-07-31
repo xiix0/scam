@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+Don't look back, the lemmings are gaining on you.
