@@ -1,2 +1,2 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
