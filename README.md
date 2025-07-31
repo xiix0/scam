@@ -1,1 +1,2 @@
-Hope that the day after you die is a nice day.
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
