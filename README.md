@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+The time is right to make new friends.
