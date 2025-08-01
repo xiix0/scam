@@ -1,2 +1,2 @@
-Q:	What is purple and commutes?
-A:	An Abelian grape.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
