@@ -1,1 +1,1 @@
-You dialed 5483.
+Stay away from hurricanes for a while.
