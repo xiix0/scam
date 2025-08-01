@@ -1,1 +1,2 @@
-You will always have good luck in your personal affairs.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
