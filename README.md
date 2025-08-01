@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+You will gain money by a speculation or lottery.
