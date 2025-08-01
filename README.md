@@ -1,1 +1,2 @@
-A visit to a fresh place will bring strange work.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
