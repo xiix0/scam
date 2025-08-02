@@ -1,1 +1,1 @@
-Future looks spotty.  You will spill soup in late evening.
+Just to have it is enough.
