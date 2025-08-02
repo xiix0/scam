@@ -1,1 +1,3 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
+for you and me."
+		-- J. R. R. Tolkien
