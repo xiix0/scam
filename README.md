@@ -1,1 +1,2 @@
-You will give someone a piece of your mind, which you can ill afford.
+Big book, big bore.
+		-- Callimachus
