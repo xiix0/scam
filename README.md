@@ -1,3 +1,2 @@
-Q:	Know what the difference between your latest project
-	and putting wings on an elephant is?
-A:	Who knows?  The elephant *might* fly, heh, heh...
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
