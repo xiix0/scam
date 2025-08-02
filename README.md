@@ -1,1 +1,2 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
