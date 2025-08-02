@@ -1,3 +1,2 @@
-Soap and education are not as sudden as a massacre, but they are more
-deadly in the long run.
+It usually takes more than three weeks to prepare a good impromptu speech.
 		-- Mark Twain
