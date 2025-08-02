@@ -1,1 +1,1 @@
-There is a fly on your nose.
+Future looks spotty.  You will spill soup in late evening.
