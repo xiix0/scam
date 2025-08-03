@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+Tempt not a desperate man.
+		-- William Shakespeare, "Romeo and Juliet"
