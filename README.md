@@ -1,3 +1,3 @@
-Q:	Know what the difference between your latest project
-	and putting wings on an elephant is?
-A:	Who knows?  The elephant *might* fly, heh, heh...
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
