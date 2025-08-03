@@ -1,2 +1,2 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	One.  Only it's his light bulb when he's done.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
