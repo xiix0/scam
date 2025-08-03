@@ -1,2 +1,2 @@
-Tempt not a desperate man.
-		-- William Shakespeare, "Romeo and Juliet"
+Q:	Are we not men?
+A:	We are Vaxen.
