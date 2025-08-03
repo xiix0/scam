@@ -1,2 +1,1 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+Beware the one behind you.
