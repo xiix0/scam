@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
