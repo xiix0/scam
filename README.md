@@ -1,2 +1,1 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+You will obey or molten silver will be poured into your ears.
