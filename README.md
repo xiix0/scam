@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+Lay on, MacDuff, and curs'd be him who first cries, "Hold, enough!".
+		-- Shakespeare
