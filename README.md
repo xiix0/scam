@@ -1,1 +1,2 @@
-You will be married within a year.
+It's a very *__UN*lucky week in which to be took dead.
+		-- Churchy La Femme
