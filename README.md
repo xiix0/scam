@@ -1,2 +1,2 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+Q:	Why did the lone ranger kill Tonto?
+A:	He found out what "kimosabe" really means.
