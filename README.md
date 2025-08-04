@@ -1,1 +1,2 @@
-Try the Moo Shu Pork.  It is especially good today.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
