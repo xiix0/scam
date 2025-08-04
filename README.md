@@ -1,2 +1,1 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
