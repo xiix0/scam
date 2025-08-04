@@ -1,3 +1,2 @@
-It is often the case that the man who can't tell a lie thinks he is the best
-judge of one.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
