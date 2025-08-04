@@ -1,2 +1,3 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+It is by the fortune of God that, in this country, we have three benefits:
+freedom of speech, freedom of thought, and the wisdom never to use either.
+		-- Mark Twain
