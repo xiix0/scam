@@ -1,2 +1,2 @@
-A is for Apple.
-		-- Hester Pryne
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
