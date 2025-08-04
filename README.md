@@ -1,3 +1,1 @@
-Q:	What do you call the money you pay to the government when
-	you ride into the country on the back of an elephant?
-A:	A howdah duty.
+Be careful!  UGLY strikes 9 out of 10!
