@@ -1,5 +1,6 @@
-October 12, the Discovery.
+For there are moments when one can neither think nor feel.  And if one can
+neither think nor feel, she thought, where is one?
+		-- Virginia Woolf, "To the Lighthouse"
 
-It was wonderful to find America, but it would have been more wonderful to miss
-it.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+	[Quoted in "VMS Internals and Data Structures", V4.4, when
+	 referring to powerfail recovery.]
