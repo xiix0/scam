@@ -1,1 +1,1 @@
-You are number 6!  Who is number one?
+Expect the worst, it's the least you can do.
