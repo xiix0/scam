@@ -1,2 +1,2 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
