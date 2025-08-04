@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+Do not sleep in a eucalyptus tree tonight.
