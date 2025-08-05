@@ -1,1 +1,1 @@
-You have many friends and very few living enemies.
+Don't read any sky-writing for the next two weeks.
