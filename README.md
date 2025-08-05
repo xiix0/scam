@@ -1,3 +1,2 @@
-You never have to change anything you got up in the middle of the night
-to write.
-		-- Saul Bellow
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
