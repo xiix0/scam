@@ -1,2 +1,2 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+Wagner's music is better than it sounds.
+		-- Mark Twain
