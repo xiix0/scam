@@ -1,2 +1,3 @@
-The Public is merely a multiplied "me."
-		-- Mark Twain
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
