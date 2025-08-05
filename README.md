@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
