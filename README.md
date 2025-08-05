@@ -1,1 +1,2 @@
-You will obey or molten silver will be poured into your ears.
+Tell the truth or trump--but get the trick.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
