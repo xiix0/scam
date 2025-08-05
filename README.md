@@ -1,2 +1,1 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You will live a long, healthy, happy life and make bags of money.
