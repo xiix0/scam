@@ -1,2 +1,2 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
