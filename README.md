@@ -1,1 +1,1 @@
-You are magnetic in your bearing.
+A gift of a flower will soon be made to you.
