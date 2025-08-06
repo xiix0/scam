@@ -1,1 +1,1 @@
-Your step will soil many countries.
+Your boss is a few sandwiches short of a picnic.
