@@ -1,1 +1,2 @@
-You have a strong appeal for members of the opposite sex.
+"You have been in Afghanistan, I perceive."
+		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
