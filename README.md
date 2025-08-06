@@ -1,2 +1,1 @@
-When angry, count four; when very angry, swear.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You have a will that can be influenced by all with whom you come in contact.
