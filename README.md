@@ -1,5 +1,3 @@
-Q:	Where's the Lone Ranger take his garbage?
-A:	To the dump, to the dump, to the dump dump dump!
-
-Q:	What's the Pink Panther say when he steps on an ant hill?
-A:	Dead ant, dead ant, dead ant dead ant dead ant...
+Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
+A:	That's proprietary information.  Answer available from AT&T on payment
+	of license fee (binary only).
