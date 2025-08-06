@@ -1,1 +1,1 @@
-Day of inquiry.  You will be subpoenaed.
+You are magnetic in your bearing.
