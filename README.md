@@ -1,2 +1,2 @@
-Never laugh at live dragons.
-		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
+Wrinkles should merely indicate where smiles have been.
+		-- Mark Twain
