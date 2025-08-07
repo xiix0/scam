@@ -1,2 +1,2 @@
-Be careful of reading health books, you might die of a misprint.
-		-- Mark Twain
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
