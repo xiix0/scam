@@ -1,1 +1,2 @@
-Many changes of mind and mood; do not hesitate too long.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain
