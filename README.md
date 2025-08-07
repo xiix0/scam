@@ -1,2 +1,1 @@
-Fine day for friends.
-So-so day for you.
+You will receive a legacy which will place you above want.
