@@ -1,2 +1,2 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+A horse!  A horse!  My kingdom for a horse!
+		-- Wm. Shakespeare, "Richard III"
