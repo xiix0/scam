@@ -1,1 +1,1 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+Many changes of mind and mood; do not hesitate too long.
