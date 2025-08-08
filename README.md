@@ -1,1 +1,3 @@
-You will experience a strong urge to do good; but it will pass.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
