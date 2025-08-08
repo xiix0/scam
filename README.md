@@ -1,2 +1,1 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+You will be recognized and honored as a community leader.
