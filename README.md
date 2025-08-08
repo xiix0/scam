@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+You never hesitate to tackle the most difficult problems.
