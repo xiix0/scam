@@ -1,1 +1,1 @@
-You never hesitate to tackle the most difficult problems.
+Communicate!  It can't make things any worse.
