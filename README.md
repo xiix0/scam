@@ -1,1 +1,1 @@
-Best of all is never to have been born.  Second best is to die soon.
+You have an ability to sense and know higher truth.
