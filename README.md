@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+You will be a winner today.  Pick a fight with a four-year-old.
