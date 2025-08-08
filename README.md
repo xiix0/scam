@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+You'd like to do it instantaneously, but that's too slow.
