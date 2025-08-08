@@ -1,1 +1,2 @@
-You will have domestic happiness and faithful friends.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
