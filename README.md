@@ -1,1 +1,1 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+Good day to let down old friends who need help.
