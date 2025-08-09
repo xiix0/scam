@@ -1,2 +1,3 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
