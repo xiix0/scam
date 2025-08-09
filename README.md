@@ -1,1 +1,2 @@
-An avocado-tone refrigerator would look good on your resume.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
