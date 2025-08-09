@@ -1,1 +1,1 @@
-Try to have as good a life as you can under the circumstances.
+An avocado-tone refrigerator would look good on your resume.
