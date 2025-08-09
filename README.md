@@ -1,3 +1,2 @@
-If one cannot enjoy reading a book over and over again, there is no use
-in reading it at all.
-		-- Oscar Wilde
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
