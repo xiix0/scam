@@ -1,1 +1,2 @@
-Everything will be just tickety-boo today.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
