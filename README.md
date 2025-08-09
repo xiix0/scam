@@ -1,1 +1,2 @@
-You will soon forget this.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
