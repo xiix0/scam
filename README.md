@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Your aim is high and to the right.
