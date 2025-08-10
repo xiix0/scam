@@ -1,1 +1,1 @@
-You have a truly strong individuality.
+You possess a mind not merely twisted, but actually sprained.
