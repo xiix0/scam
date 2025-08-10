@@ -1,2 +1,2 @@
-Q:	Why do mountain climbers rope themselves together?
-A:	To prevent the sensible ones from going home.
+Nothing so needs reforming as other people's habits.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
