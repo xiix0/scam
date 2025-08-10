@@ -1,1 +1,2 @@
-Beware of low-flying butterflies.
+A light wife doth make a heavy husband.
+		-- Wm. Shakespeare, "The Merchant of Venice"
