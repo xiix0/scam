@@ -1,2 +1,1 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Make a wish, it might come true.
