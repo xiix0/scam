@@ -1,2 +1,1 @@
-Better hope the life-inspector doesn't come around while you have your
-life in such a mess.
+You have the power to influence all with whom you come in contact.
