@@ -1,1 +1,1 @@
-You will remember something that you should not have forgotten.
+You will not be elected to public office this year.
