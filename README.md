@@ -1,2 +1,2 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
