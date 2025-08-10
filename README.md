@@ -1,1 +1,1 @@
-You possess a mind not merely twisted, but actually sprained.
+You will remember something that you should not have forgotten.
