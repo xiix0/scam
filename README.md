@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+You can create your own opportunities this week.  Blackmail a senior executive.
