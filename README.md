@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+Among the lucky, you are the chosen one.
