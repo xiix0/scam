@@ -1,1 +1,2 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
