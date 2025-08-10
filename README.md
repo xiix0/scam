@@ -1,2 +1,2 @@
-Q:	Why did the tachyon cross the road?
-A:	Because it was on the other side.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
