@@ -1,3 +1,2 @@
-Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
-as intelligent as ever.
-		-- Samuel Beckett, "Endgame"
+If you tell the truth you don't have to remember anything.
+		-- Mark Twain
