@@ -1,1 +1,2 @@
-You love your home and want it to be beautiful.
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
