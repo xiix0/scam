@@ -1,1 +1,1 @@
-Stay away from hurricanes for a while.
+Cheer Up!  Things are getting worse at a slower rate.
