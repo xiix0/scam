@@ -1,2 +1,2 @@
-He jests at scars who never felt a wound.
-		-- Shakespeare, "Romeo and Juliet, II. 2"
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
