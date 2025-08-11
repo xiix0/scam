@@ -1,1 +1,2 @@
-If you sow your wild oats, hope for a crop failure.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
