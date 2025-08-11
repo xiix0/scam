@@ -1,1 +1,1 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+You love your home and want it to be beautiful.
