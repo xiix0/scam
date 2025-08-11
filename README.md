@@ -1,1 +1,2 @@
-You will be advanced socially, without any special effort on your part.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
