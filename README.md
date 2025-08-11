@@ -1,1 +1,2 @@
-You are going to have a new love affair.
+For a light heart lives long.
+		-- Shakespeare, "Love's Labour's Lost"
