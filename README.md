@@ -1,2 +1,2 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+Your goose is cooked.
+(Your current chick is burned up too!)
