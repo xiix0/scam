@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+A visit to a strange place will bring fresh work.
