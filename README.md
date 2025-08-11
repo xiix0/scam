@@ -1,2 +1,1 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+Bridge ahead.  Pay troll.
