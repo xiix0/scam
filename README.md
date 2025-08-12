@@ -1,1 +1,2 @@
-Avoid reality at all costs.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
