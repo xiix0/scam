@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+You will give someone a piece of your mind, which you can ill afford.
