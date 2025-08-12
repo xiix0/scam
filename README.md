@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
