@@ -1,2 +1,1 @@
-Q:	What's the difference between an Irish wedding and an Irish wake?
-A:	One less drunk.
+Perfect day for scrubbing the floor and other exciting things.
