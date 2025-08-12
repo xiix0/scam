@@ -1,1 +1,2 @@
-Tuesday is the Wednesday of the rest of your life.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
