@@ -1,1 +1,1 @@
-You will be honored for contributing your time and skill to a worthy cause.
+And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
