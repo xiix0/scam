@@ -1,2 +1,2 @@
-Q:	What's hard going in and soft and sticky coming out?
-A:	Chewing gum.
+Q:	Why do firemen wear red suspenders?
+A:	To conform with departmental regulations concerning uniform dress.
