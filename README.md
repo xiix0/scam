@@ -1,1 +1,1 @@
-Perfect day for scrubbing the floor and other exciting things.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
