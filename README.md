@@ -1,1 +1,2 @@
-You will give someone a piece of your mind, which you can ill afford.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
