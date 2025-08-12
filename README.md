@@ -1,2 +1,2 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
