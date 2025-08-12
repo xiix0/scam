@@ -1,2 +1,1 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+You plan things that you do not even attempt because of your extreme caution.
