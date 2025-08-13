@@ -1,1 +1,2 @@
-You will gain money by an immoral action.
+Q:	Why did the astrophysicist order three hamburgers?
+A:	Because he was hungry.
