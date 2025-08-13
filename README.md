@@ -1,1 +1,2 @@
-Be careful!  Is it classified?
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
