@@ -1,1 +1,1 @@
-You love your home and want it to be beautiful.
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
