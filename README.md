@@ -1,3 +1,3 @@
-You may my glories and my state dispose,
-But not my griefs; still am I king of those.
-		-- William Shakespeare, "Richard II"
+This is the first age that's paid much attention to the future, which is a
+little ironic since we may not have one.
+		-- Arthur Clarke
