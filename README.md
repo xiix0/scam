@@ -1,1 +1,2 @@
-Don't hate yourself in the morning -- sleep till noon.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
