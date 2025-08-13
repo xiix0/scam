@@ -1,1 +1,1 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+Your mode of life will be changed for the better because of good news soon.
