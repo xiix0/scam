@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+You will step on the night soil of many countries.
