@@ -1,2 +1,3 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+Zounds!  I was never so bethumped with words
+since I first called my brother's father dad.
+		-- William Shakespeare, "Kind John"
