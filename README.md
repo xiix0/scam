@@ -1,1 +1,1 @@
-You will probably marry after a very brief courtship.
+Good news from afar can bring you a welcome visitor.
