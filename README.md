@@ -1,1 +1,2 @@
-Beware the one behind you.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
