@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
