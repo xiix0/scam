@@ -1,1 +1,2 @@
-You will have good luck and overcome many hardships.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
