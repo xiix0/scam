@@ -1,2 +1,2 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
