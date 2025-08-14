@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+You are confused; but this is your normal state.
