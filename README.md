@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+You will forget that you ever knew me.
