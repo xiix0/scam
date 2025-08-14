@@ -1,1 +1,1 @@
-You will forget that you ever knew me.
+Just to have it is enough.
