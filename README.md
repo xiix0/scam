@@ -1,1 +1,2 @@
-You will be the victim of a bizarre joke.
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
