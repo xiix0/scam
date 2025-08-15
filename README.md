@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+You will be the victim of a bizarre joke.
