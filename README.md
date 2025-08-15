@@ -1,1 +1,1 @@
-You too can wear a nose mitten.
+So this is it.  We're going to die.
