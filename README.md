@@ -1,2 +1,1 @@
-Always do right.  This will gratify some people and astonish the rest.
-		-- Mark Twain
+Good day to let down old friends who need help.
