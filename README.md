@@ -1,3 +1,3 @@
-I don't know half of you half as well as I should like; and I like less
-than half of you half as well as you deserve.
-		-- J. R. R. Tolkien
+In a museum in Havana, there are two skulls of Christopher Columbus,
+"one when he was a boy and one when he was a man."
+		-- Mark Twain
