@@ -1,1 +1,1 @@
-Caution: Keep out of reach of children.
+Don't get stuck in a closet -- wear yourself out.
