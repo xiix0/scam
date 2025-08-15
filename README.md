@@ -1,1 +1,2 @@
-Don't get stuck in a closet -- wear yourself out.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
