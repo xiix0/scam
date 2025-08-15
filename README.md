@@ -1,3 +1,1 @@
-In a museum in Havana, there are two skulls of Christopher Columbus,
-"one when he was a boy and one when he was a man."
-		-- Mark Twain
+You will be reincarnated as a toad; and you will be much happier.
