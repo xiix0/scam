@@ -1,2 +1,2 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+You will pay for your sins.  If you have already paid, please disregard
+this message.
