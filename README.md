@@ -1,1 +1,2 @@
-You would if you could but you can't so you won't.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
