@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
-A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
-Q:	Who were the Democratic presidential candidates?
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
