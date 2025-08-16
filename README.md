@@ -1,2 +1,2 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+Clothes make the man.  Naked people have little or no influence on society.
+		-- Mark Twain
