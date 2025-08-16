@@ -1,1 +1,2 @@
-You will gain money by a speculation or lottery.
+He is now rising from affluence to poverty.
+		-- Mark Twain
