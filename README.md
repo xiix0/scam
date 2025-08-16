@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Your love life will be... interesting.
