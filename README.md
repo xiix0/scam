@@ -1,1 +1,2 @@
-Are you making all this up as you go along?
+Try to relax and enjoy the crisis.
+		-- Ashleigh Brilliant
