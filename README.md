@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Look afar and see the end from the beginning.
