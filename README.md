@@ -1,1 +1,2 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Q:	Are we not men?
+A:	We are Vaxen.
