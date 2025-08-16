@@ -1,2 +1,2 @@
-Familiarity breeds contempt -- and children.
-		-- Mark Twain
+You tread upon my patience.
+		-- William Shakespeare, "Henry IV"
