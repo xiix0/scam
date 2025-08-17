@@ -1,1 +1,1 @@
-You will gain money by a speculation or lottery.
+Your aims are high, and you are capable of much.
