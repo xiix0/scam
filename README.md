@@ -1,1 +1,1 @@
-Don't relax!  It's only your tension that's holding you together.
+A visit to a fresh place will bring strange work.
