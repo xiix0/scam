@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+Abandon the search for Truth; settle for a good fantasy.
