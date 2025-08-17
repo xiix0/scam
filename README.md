@@ -1,1 +1,1 @@
-You will never know hunger.
+Everything will be just tickety-boo today.
