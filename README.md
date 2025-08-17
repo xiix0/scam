@@ -1,1 +1,2 @@
-If you sow your wild oats, hope for a crop failure.
+When angry, count four; when very angry, swear.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
