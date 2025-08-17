@@ -1,14 +1,8 @@
-Gone With The Wind LITE(tm)
-	-- by Margaret Mitchell
-
-	A woman only likes men she can't have and the South gets trashed.
-
-Gift of the Magi LITE(tm)
-	-- by O. Henry
-
-	A husband and wife forget to register their gift preferences.
-
-The Old Man and the Sea LITE(tm)
-	-- by Ernest Hemingway
-
-	An old man goes fishing, but doesn't have much luck.
+Delores breezed along the surface of her life like a flat stone forever
+skipping along smooth water, rippling reality sporadically but oblivious
+to it consistently, until she finally lost momentum, sank, and due to an
+overdose of flouride as a child which caused her to suffer from chronic
+apathy, doomed herself to lie forever on the floor of her life as useless
+as an appendix and as lonely as a five-hundred pound barbell in a
+steroid-free fitness center.
+		-- Winning sentence, 1990 Bulwer-Lytton bad fiction contest.
