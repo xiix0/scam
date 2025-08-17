@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+You have an unusual equipment for success.  Be sure to use it properly.
