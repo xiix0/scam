@@ -1,1 +1,3 @@
-You're working under a slight handicap.  You happen to be human.
+Questionable day.
+
+Ask somebody something.
