@@ -1,1 +1,2 @@
-You have an unusual equipment for success.  Be sure to use it properly.
+He that breaks a thing to find out what it is has left the path of wisdom.
+		-- J.R.R. Tolkien
