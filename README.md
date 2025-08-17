@@ -1,1 +1,1 @@
-Caution: breathing may be hazardous to your health.
+You recoil from the crude; you tend naturally toward the exquisite.
