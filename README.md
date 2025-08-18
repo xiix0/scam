@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Tonight's the night: Sleep in a eucalyptus tree.
