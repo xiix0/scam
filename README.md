@@ -1,1 +1,1 @@
-You may be gone tomorrow, but that doesn't mean that you weren't here today.
+Good news.  Ten weeks from Friday will be a pretty good day.
