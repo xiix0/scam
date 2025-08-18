@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+Learn to pause -- or nothing worthwhile can catch up to you.
