@@ -1,8 +1,3 @@
-To be or not to be.
-		-- Shakespeare
-To do is to be.
-		-- Nietzsche
-To be is to do.
-		-- Sartre
-Do be do be do.
-		-- Sinatra
+In the first place, God made idiots; this was for practice; then he made
+school boards.
+		-- Mark Twain
