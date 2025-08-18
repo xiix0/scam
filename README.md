@@ -1,1 +1,1 @@
-Learn to pause -- or nothing worthwhile can catch up to you.
+Go to a movie tonight.  Darkness becomes you.
