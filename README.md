@@ -1,1 +1,2 @@
-You will soon meet a person who will play an important role in your life.
+There is always one thing to remember: writers are always selling somebody out.
+		-- Joan Didion, "Slouching Towards Bethlehem"
