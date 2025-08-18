@@ -1,1 +1,2 @@
-You like to form new friendships and make new acquaintances.
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
