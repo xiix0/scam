@@ -1,1 +1,2 @@
-You have Egyptian flu: you're going to be a mummy.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
