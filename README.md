@@ -1,3 +1,1 @@
-Consider well the proportions of things.  It is better to be a young June-bug
-than an old bird of paradise.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+You have a strong appeal for members of your own sex.
