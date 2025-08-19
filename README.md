@@ -1,1 +1,1 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+Let me put it this way: today is going to be a learning experience.
