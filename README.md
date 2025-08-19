@@ -1,1 +1,1 @@
-You will live a long, healthy, happy life and make bags of money.
+Beware the one behind you.
