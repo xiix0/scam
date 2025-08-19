@@ -1,1 +1,2 @@
-You have a will that can be influenced by all with whom you come in contact.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
