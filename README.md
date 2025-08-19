@@ -1,1 +1,1 @@
-Living your life is a task so difficult, it has never been attempted before.
+You will live a long, healthy, happy life and make bags of money.
