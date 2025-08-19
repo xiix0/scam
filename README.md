@@ -1,1 +1,1 @@
-You have a strong appeal for members of your own sex.
+You'll never be the man your mother was!
