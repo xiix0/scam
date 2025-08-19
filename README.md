@@ -1,2 +1,1 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+Good day for overcoming obstacles.  Try a steeplechase.
