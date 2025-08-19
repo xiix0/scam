@@ -1,1 +1,1 @@
-Excellent day for putting Slinkies on an escalator.
+Don't plan any hasty moves.  You'll be evicted soon anyway.
