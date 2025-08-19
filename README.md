@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+Your mode of life will be changed for the better because of new developments.
