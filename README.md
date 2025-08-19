@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+You will be honored for contributing your time and skill to a worthy cause.
