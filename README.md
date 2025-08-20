@@ -1,1 +1,2 @@
-You never hesitate to tackle the most difficult problems.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
