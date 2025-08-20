@@ -1,3 +1,2 @@
-Don't go around saying the world owes you a living.  The world owes you
-nothing.  It was here first.
-		-- Mark Twain
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
