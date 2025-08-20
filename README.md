@@ -1,1 +1,1 @@
-Don't let your mind wander -- it's too little to be let out alone.
+You'll feel much better once you've given up hope.
