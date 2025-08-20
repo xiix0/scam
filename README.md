@@ -1,1 +1,1 @@
-This will be a memorable month -- no matter how hard you try to forget it.
+Don't let your mind wander -- it's too little to be let out alone.
