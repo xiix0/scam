@@ -1,1 +1,2 @@
-You will have long and healthy life.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
