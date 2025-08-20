@@ -1,1 +1,1 @@
-Don't get to bragging.
+You're currently going through a difficult transition period called "Life."
