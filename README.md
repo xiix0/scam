@@ -1,1 +1,2 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
