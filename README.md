@@ -1,1 +1,3 @@
-Your nature demands love and your happiness depends on it.
+Fame is a vapor; popularity an accident; the only earthly certainty is
+oblivion.
+		-- Mark Twain
