@@ -1,1 +1,1 @@
-You'll feel much better once you've given up hope.
+Your nature demands love and your happiness depends on it.
