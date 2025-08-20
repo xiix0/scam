@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+You have been selected for a secret mission.
