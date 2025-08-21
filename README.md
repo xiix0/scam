@@ -1,1 +1,3 @@
-Best of all is never to have been born.  Second best is to die soon.
+I don't know half of you half as well as I should like; and I like less
+than half of you half as well as you deserve.
+		-- J. R. R. Tolkien
