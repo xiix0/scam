@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+You can rent this space for only $5 a week.
