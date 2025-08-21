@@ -1,8 +1,3 @@
-To be or not to be.
-		-- Shakespeare
-To do is to be.
-		-- Nietzsche
-To be is to do.
-		-- Sartre
-Do be do be do.
-		-- Sinatra
+If you pick up a starving dog and make him prosperous, he will not bite you.
+This is the principal difference between a dog and a man.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
