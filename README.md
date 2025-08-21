@@ -1,3 +1,3 @@
-I don't know half of you half as well as I should like; and I like less
-than half of you half as well as you deserve.
-		-- J. R. R. Tolkien
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #31
+A:	Chicken Teriyaki.
+Q:	What is the name of the world's oldest kamikaze pilot?
