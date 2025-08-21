@@ -1,1 +1,2 @@
-You will meet an important person who will help you advance professionally.
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
