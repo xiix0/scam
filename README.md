@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+You will meet an important person who will help you advance professionally.
