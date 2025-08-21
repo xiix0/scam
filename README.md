@@ -1,1 +1,1 @@
-You will be successful in love.
+All the troubles you have will pass away very quickly.
