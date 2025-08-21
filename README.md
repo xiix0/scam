@@ -1,1 +1,2 @@
-You will outgrow your usefulness.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
