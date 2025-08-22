@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
