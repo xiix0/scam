@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Be cautious in your daily affairs.
