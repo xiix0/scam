@@ -1,1 +1,2 @@
-Caution: Keep out of reach of children.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
