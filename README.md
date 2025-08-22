@@ -1,6 +1,4 @@
-Stop!  There was first a game of blindman's buff.  Of course there was.
-And I no more believe Topper was really blind than I believe he had eyes
-in his boots.  My opinion is, that it was a done thing between him and
-Scrooge's nephew; and that the Ghost of Christmas Present knew it.  The
-way he went after that plump sister in the lace tucker, was an outrage
-on the credulity of human nature.
+Behold, the fool saith, "Put not all thine eggs in the one basket"--which is
+but a manner of saying, "Scatter your money and your attention;" but the wise
+man saith, "Put all your eggs in the one basket and--WATCH THAT BASKET."
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
