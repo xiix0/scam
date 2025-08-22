@@ -1,1 +1,2 @@
-You will always have good luck in your personal affairs.
+question = ( to ) ? be : ! be;
+		-- Wm. Shakespeare
