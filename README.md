@@ -1,1 +1,2 @@
-Abandon the search for Truth; settle for a good fantasy.
+Writing is turning one's worst moments into money.
+		-- J.P. Donleavy
