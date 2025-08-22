@@ -1,1 +1,1 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
