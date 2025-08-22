@@ -1,2 +1,1 @@
-You learn to write as if to someone else because NEXT YEAR YOU WILL BE
-"SOMEONE ELSE."
+A gift of a flower will soon be made to you.
