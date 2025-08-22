@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+Tuesday is the Wednesday of the rest of your life.
