@@ -1,6 +1,5 @@
-For there are moments when one can neither think nor feel.  And if one can
-neither think nor feel, she thought, where is one?
-		-- Virginia Woolf, "To the Lighthouse"
-
-	[Quoted in "VMS Internals and Data Structures", V4.4, when
-	 referring to powerfail recovery.]
+We should be careful to get out of an experience only the wisdom that is
+in it - and stay there, lest we be like the cat that sits down on a hot
+stove-lid.  She will never sit down on a hot stove-lid again - and that
+is well; but also she will never sit down on a cold one any more.
+		-- Mark Twain
