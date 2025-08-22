@@ -1,2 +1,2 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
