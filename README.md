@@ -1,2 +1,1 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+You're almost as happy as you think you are.
