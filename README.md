@@ -1,1 +1,1 @@
-Tuesday is the Wednesday of the rest of your life.
+You will always have good luck in your personal affairs.
