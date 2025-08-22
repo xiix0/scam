@@ -1,1 +1,3 @@
-Be security conscious -- National defense is at stake.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
