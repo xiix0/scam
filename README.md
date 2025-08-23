@@ -1,1 +1,1 @@
-It may or may not be worthwhile, but it still has to be done.
+Don't look now, but there is a multi-legged creature on your shoulder.
