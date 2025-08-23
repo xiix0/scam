@@ -1,2 +1,1 @@
-Good night to spend with family, but avoid arguments with your mate's
-new lover.
+Let me put it this way: today is going to be a learning experience.
