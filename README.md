@@ -1,1 +1,2 @@
-Don't look now, but there is a multi-legged creature on your shoulder.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
