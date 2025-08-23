@@ -1,1 +1,3 @@
-This life is yours.  Some of it was given to you; the rest, you made yourself.
+Q:	Why haven't you graduated yet?
+A:	Well, Dad, I could have finished years ago, but I wanted
+	my dissertation to rhyme.
