@@ -1,5 +1,1 @@
-Q:	How do you catch a unique rabbit?
-A:	Unique up on it!
-
-Q:	How do you catch a tame rabbit?
-A:	The tame way!
+This life is yours.  Some of it was given to you; the rest, you made yourself.
