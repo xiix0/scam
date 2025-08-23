@@ -1,1 +1,1 @@
-You will be run over by a bus.
+You teach best what you most need to learn.
