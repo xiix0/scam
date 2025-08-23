@@ -1,2 +1,3 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
