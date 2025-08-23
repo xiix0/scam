@@ -1,1 +1,2 @@
-Are you ever going to do the dishes?  Or will you change your major to biology?
+Good night to spend with family, but avoid arguments with your mate's
+new lover.
