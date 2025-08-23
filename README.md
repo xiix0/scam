@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+You get along very well with everyone except animals and people.
