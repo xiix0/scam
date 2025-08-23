@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+You will be run over by a bus.
