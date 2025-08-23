@@ -1,1 +1,2 @@
-Your lucky number is 3552664958674928.  Watch for it everywhere.
+Go not to the elves for counsel, for they will say both yes and no.
+		-- J.R.R. Tolkien
