@@ -1,2 +1,5 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+Q:	How do you catch a unique rabbit?
+A:	Unique up on it!
+
+Q:	How do you catch a tame rabbit?
+A:	The tame way!
