@@ -1,2 +1,1 @@
-Go not to the elves for counsel, for they will say both yes and no.
-		-- J.R.R. Tolkien
+Beauty and harmony are as necessary to you as the very breath of life.
