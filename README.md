@@ -1,1 +1,1 @@
-You enjoy the company of other people.
+Cheer Up!  Things are getting worse at a slower rate.
