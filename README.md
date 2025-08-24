@@ -1,1 +1,2 @@
-Your society will be sought by people of taste and refinement.
+"... all the modern inconveniences ..."
+		-- Mark Twain
