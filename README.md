@@ -1,2 +1,2 @@
-Your best consolation is the hope that the things you failed to get weren't
-really worth having.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
