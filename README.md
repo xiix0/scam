@@ -1,1 +1,1 @@
-Day of inquiry.  You will be subpoenaed.
+Of course you have a purpose -- to find a purpose.
