@@ -1,1 +1,2 @@
-You have a deep interest in all that is artistic.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
