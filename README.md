@@ -1,2 +1,5 @@
-You can do very well in speculation where land or anything to do with dirt
-is concerned.
+April 1
+
+This is the day upon which we are reminded of what we are on the other three
+hundred and sixty-four.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
