@@ -1,2 +1,1 @@
-Harp not on that string.
-		-- William Shakespeare, "Henry VI"
+Best of all is never to have been born.  Second best is to die soon.
