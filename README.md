@@ -1,2 +1,2 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
-		-- Mark Twain
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
