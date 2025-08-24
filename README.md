@@ -1,1 +1,2 @@
-You will be honored for contributing your time and skill to a worthy cause.
+What no spouse of a writer can ever understand is that a writer is working
+when he's staring out the window.
