@@ -1,3 +1,1 @@
-Q:	What does a WASP Mom make for dinner?
-A:	A crisp salad, a hearty soup, a lovely entree, followed by
-	a delicious dessert.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
