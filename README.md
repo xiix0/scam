@@ -1,1 +1,2 @@
-If you can read this, you're too close.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
