@@ -1,2 +1,2 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
