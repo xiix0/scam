@@ -1,1 +1,2 @@
-You will be held hostage by a radical group.
+Small things make base men proud.
+		-- William Shakespeare, "Henry VI"
