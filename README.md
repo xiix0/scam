@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+Don't look now, but there is a multi-legged creature on your shoulder.
