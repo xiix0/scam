@@ -1,1 +1,5 @@
-Let me put it this way: today is going to be a learning experience.
+Q:	Why did the chicken cross the road?
+A:	To see his friend Gregory peck.
+
+Q:	Why did the chicken cross the playground?
+A:	To get to the other slide.
