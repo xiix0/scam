@@ -1,1 +1,1 @@
-Day of inquiry.  You will be subpoenaed.
+Your life would be very empty if you had nothing to regret.
