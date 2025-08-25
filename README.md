@@ -1,1 +1,1 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+Your domestic life may be harmonious.
