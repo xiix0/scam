@@ -1,1 +1,2 @@
-Don't get stuck in a closet -- wear yourself out.
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
