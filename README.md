@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+You have a deep appreciation of the arts and music.
