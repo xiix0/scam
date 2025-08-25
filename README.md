@@ -1,1 +1,1 @@
-Many pages make a thick book.
+Increased knowledge will help you now.  Have mate's phone bugged.
