@@ -1,1 +1,2 @@
-You will be singled out for promotion in your work.
+The whole world is a tuxedo and you are a pair of brown shoes.
+		-- George Gobel
