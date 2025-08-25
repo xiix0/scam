@@ -1,2 +1,2 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+Q:	How many supply-siders does it take to change a light bulb?
+A:	None.  The darkness will cause the light bulb to change by itself.
