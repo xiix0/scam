@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+What I tell you three times is true.
+		-- Lewis Carroll
