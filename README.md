@@ -1,2 +1,5 @@
-Q:	How many supply-siders does it take to change a light bulb?
-A:	None.  The darkness will cause the light bulb to change by itself.
+Steady movement is more important than speed, much of the time.  So long
+as there is a regular progression of stimuli to get your mental hooks
+into, there is room for lateral movement.  Once this begins, its rate is
+a matter of discretion.
+		-- Corwin, Prince of Amber
