@@ -1,2 +1,1 @@
-Must I hold a candle to my shames?
-		-- William Shakespeare, "The Merchant of Venice"
+People are beginning to notice you.  Try dressing before you leave the house.
