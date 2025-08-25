@@ -1,2 +1,3 @@
-The whole world is a tuxedo and you are a pair of brown shoes.
-		-- George Gobel
+There is no hunting like the hunting of man, and those who have hunted
+armed men long enough and liked it, never care for anything else thereafter.
+		-- Ernest Hemingway
