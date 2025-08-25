@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
