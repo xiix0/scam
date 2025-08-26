@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+Time to be aggressive.  Go after a tattooed Virgo.
