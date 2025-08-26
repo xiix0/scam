@@ -1,2 +1,3 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+Q:	How do you play religious roulette?
+A:	You stand around in a circle and blaspheme and see who gets
+	struck by lightning first.
