@@ -1,2 +1,1 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+An avocado-tone refrigerator would look good on your resume.
