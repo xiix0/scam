@@ -1,2 +1,3 @@
-Big book, big bore.
-		-- Callimachus
+Someone is speaking well of you.
+
+How unusual!
