@@ -1,1 +1,1 @@
-Do nothing unless you must, and when you must act -- hesitate.
+Just to have it is enough.
