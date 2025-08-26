@@ -1,1 +1,1 @@
-A visit to a fresh place will bring strange work.
+Do nothing unless you must, and when you must act -- hesitate.
