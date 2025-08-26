@@ -1,1 +1,2 @@
-Break into jail and claim police brutality.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
