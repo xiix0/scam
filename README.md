@@ -1,2 +1,2 @@
-You're growing out of some of your problems, but there are others that
-you're growing into.
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
