@@ -1,1 +1,2 @@
-You'd like to do it instantaneously, but that's too slow.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
