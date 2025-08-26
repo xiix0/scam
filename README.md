@@ -1,2 +1,2 @@
-Q:	What's the difference between a Mac and an Etch-a-Sketch?
-A:	You don't have to shake the Mac to clear the screen.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
