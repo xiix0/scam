@@ -1,1 +1,2 @@
-You will attract cultured and artistic people to your home.
+Your goose is cooked.
+(Your current chick is burned up too!)
