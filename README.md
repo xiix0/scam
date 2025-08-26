@@ -1,1 +1,1 @@
-Do what comes naturally.  Seethe and fume and throw a tantrum.
+You'd like to do it instantaneously, but that's too slow.
