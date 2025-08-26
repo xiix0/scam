@@ -1,1 +1,1 @@
-Generosity and perfection are your everlasting goals.
+If you can read this, you're too close.
