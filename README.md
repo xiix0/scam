@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Generosity and perfection are your everlasting goals.
