@@ -1,3 +1,1 @@
-Seeing that death, a necessary end,
-Will come when it will come.
-		-- William Shakespeare, "Julius Caesar"
+Many changes of mind and mood; do not hesitate too long.
