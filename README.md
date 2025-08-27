@@ -1,1 +1,2 @@
-If you can read this, you're too close.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
