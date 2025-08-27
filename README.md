@@ -1,1 +1,3 @@
-Don't read everything you believe.
+Someone is speaking well of you.
+
+How unusual!
