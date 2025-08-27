@@ -1,1 +1,1 @@
-You look like a million dollars.  All green and wrinkled.
+Your supervisor is thinking about you.
