@@ -1,1 +1,2 @@
-You enjoy the company of other people.
+Fine day for friends.
+So-so day for you.
