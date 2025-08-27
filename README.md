@@ -1,3 +1,2 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+Q:	How many college football players does it take to screw in a light bulb?
+A:	Only one, but he gets three credits for it.
