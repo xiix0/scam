@@ -1,1 +1,2 @@
-Many changes of mind and mood; do not hesitate too long.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
