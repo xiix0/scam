@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
