@@ -1,2 +1,3 @@
-You're growing out of some of your problems, but there are others that
-you're growing into.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
