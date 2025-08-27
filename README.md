@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+Don't read everything you believe.
