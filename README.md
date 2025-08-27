@@ -1,1 +1,1 @@
-Your business will assume vast proportions.
+Today is what happened to yesterday.
