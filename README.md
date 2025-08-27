@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You prefer the company of the opposite sex, but are well liked by your own.
