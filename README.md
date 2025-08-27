@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You look like a million dollars.  All green and wrinkled.
