@@ -1,2 +1,1 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+Things will be bright in P.M.  A cop will shine a light in your face.
