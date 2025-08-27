@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+Time to be aggressive.  Go after a tattooed Virgo.
