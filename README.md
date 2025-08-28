@@ -1,1 +1,1 @@
-Try the Moo Shu Pork.  It is especially good today.
+All the troubles you have will pass away very quickly.
