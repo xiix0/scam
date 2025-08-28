@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Truth is the most valuable thing we have -- so let us economize it.
+		-- Mark Twain
