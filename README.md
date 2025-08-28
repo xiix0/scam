@@ -1,2 +1,2 @@
-There's small choice in rotten apples.
-		-- William Shakespeare, "The Taming of the Shrew"
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
