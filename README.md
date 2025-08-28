@@ -1,2 +1,1 @@
-The secret source of humor is not joy but sorrow; there is no humor in Heaven.
-		-- Mark Twain
+Lady Luck brings added income today.  Lady friend takes it away tonight.
