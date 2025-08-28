@@ -1,1 +1,2 @@
-You have an unusual understanding of the problems of human relationships.
+Patch griefs with proverbs.
+		-- William Shakespeare, "Much Ado About Nothing"
