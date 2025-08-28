@@ -1,1 +1,2 @@
-Fine day to work off excess energy.  Steal something heavy.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
