@@ -1,1 +1,1 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+Try the Moo Shu Pork.  It is especially good today.
