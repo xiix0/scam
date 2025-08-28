@@ -1,2 +1,2 @@
-Patch griefs with proverbs.
-		-- William Shakespeare, "Much Ado About Nothing"
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
