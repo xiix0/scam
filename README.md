@@ -1,1 +1,1 @@
-You will be honored for contributing your time and skill to a worthy cause.
+You have a strong desire for a home and your family interests come first.
