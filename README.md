@@ -1,1 +1,1 @@
-You're ugly and your mother dresses you funny.
+You will be honored for contributing your time and skill to a worthy cause.
