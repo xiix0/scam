@@ -1,3 +1,2 @@
-Q:	What do you call the money you pay to the government when
-	you ride into the country on the back of an elephant?
-A:	A howdah duty.
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
