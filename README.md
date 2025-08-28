@@ -1,1 +1,1 @@
-If you think last Tuesday was a drag, wait till you see what happens tomorrow!
+Your sister swims out to meet troop ships.
