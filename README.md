@@ -1,2 +1,2 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
