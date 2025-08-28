@@ -1,2 +1,1 @@
-The first thing we do, let's kill all the lawyers.
-		-- Wm. Shakespeare, "Henry VI", Part IV
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
