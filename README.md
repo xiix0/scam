@@ -1,1 +1,2 @@
-Is that really YOU that is reading this?
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
