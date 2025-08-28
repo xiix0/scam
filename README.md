@@ -1,2 +1,1 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+Best of all is never to have been born.  Second best is to die soon.
