@@ -1,2 +1,2 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+Q:	Why did the programmer call his mother long distance?
+A:	Because that was her name.
