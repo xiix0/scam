@@ -1,2 +1,2 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+The secret source of humor is not joy but sorrow; there is no humor in Heaven.
+		-- Mark Twain
