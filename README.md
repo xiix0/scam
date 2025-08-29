@@ -1,2 +1,3 @@
-Q:	Why did the programmer call his mother long distance?
-A:	Because that was her name.
+Q:	What's the difference between a dead dog in the road and a dead
+	lawyer in the road?
+A:	There are skid marks in front of the dog.
