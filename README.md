@@ -1,2 +1,2 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
