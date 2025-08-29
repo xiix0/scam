@@ -1,1 +1,2 @@
-Think twice before speaking, but don't say "think think click click".
+I was gratified to be able to answer promptly, and I did. I said I didn't know.
+		-- Mark Twain
