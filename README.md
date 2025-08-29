@@ -1,1 +1,1 @@
-Save energy: be apathetic.
+You never hesitate to tackle the most difficult problems.
