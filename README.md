@@ -1,1 +1,2 @@
-You never hesitate to tackle the most difficult problems.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
