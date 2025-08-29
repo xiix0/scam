@@ -1,1 +1,2 @@
-You have a will that can be influenced by all with whom you come in contact.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
