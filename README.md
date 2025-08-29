@@ -1,1 +1,1 @@
-You have a deep appreciation of the arts and music.
+Your lucky color has faded.
