@@ -1,2 +1,2 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
