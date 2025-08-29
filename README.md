@@ -1,3 +1,1 @@
-Soap and education are not as sudden as a massacre, but they are more
-deadly in the long run.
-		-- Mark Twain
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
