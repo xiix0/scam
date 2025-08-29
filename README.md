@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+Blow it out your ear.
