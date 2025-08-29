@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
