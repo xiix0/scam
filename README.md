@@ -1,1 +1,2 @@
-You would if you could but you can't so you won't.
+You'll wish that you had done some of the hard things when they were easier
+to do.
