@@ -1,2 +1,2 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
