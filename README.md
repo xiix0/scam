@@ -1,1 +1,1 @@
-Of course you have a purpose -- to find a purpose.
+You have been selected for a secret mission.
