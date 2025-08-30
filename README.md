@@ -1,2 +1,1 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+Things will be bright in P.M.  A cop will shine a light in your face.
