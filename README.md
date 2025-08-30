@@ -1,2 +1,2 @@
-Nothing so needs reforming as other people's habits.
-		-- Mark Twain
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
