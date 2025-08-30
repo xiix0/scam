@@ -1,5 +1,6 @@
-I got a hint of things to come when I overheard my boss lamenting, 'The
-books are done and we still don't have an author! I must sign someone
-today!
-		-- Tamim Ansary, "Edutopia Magazine, Issue 2, November 2004"
-		   on the topic of school textbooks
+A morgue is a morgue is a morgue.  They can paint the walls with aggressively
+cheerful primary colors and splashy bold graphics, but it's still a holding
+place for the dead until they can be parted out to organ banks.  Not that I
+would have cared normally but my viewpoint was skewed.  The relentless
+pleasance of the room I sat in seemed only grotesque.
+		-- Pat Cadigan, "Mindplayers"
