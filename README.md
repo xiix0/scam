@@ -1,2 +1,2 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
