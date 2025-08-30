@@ -1,1 +1,2 @@
-There is a 20% chance of tomorrow.
+All generalizations are false, including this one.
+		-- Mark Twain
