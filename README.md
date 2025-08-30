@@ -1,1 +1,2 @@
-Go to a movie tonight.  Darkness becomes you.
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
