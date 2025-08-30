@@ -1,2 +1,2 @@
-Many pages make a thick book, except for pocket Bibles which are on very
-very thin paper.
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
