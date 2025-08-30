@@ -1,2 +1,1 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+This life is yours.  Some of it was given to you; the rest, you made yourself.
