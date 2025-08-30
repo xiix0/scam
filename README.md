@@ -1,2 +1,1 @@
-Troubled day for virgins over 16 who are beautiful and wealthy and live
-in eucalyptus trees.
+You attempt things that you do not even plan because of your extreme stupidity.
