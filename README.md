@@ -1,1 +1,1 @@
-Your object is to save the world, while still leading a pleasant life.
+You attempt things that you do not even plan because of your extreme stupidity.
