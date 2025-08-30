@@ -1,2 +1,3 @@
-What no spouse of a writer can ever understand is that a writer is working
-when he's staring out the window.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
