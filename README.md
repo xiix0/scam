@@ -1,2 +1,3 @@
-Your analyst has you mixed up with another patient.  Don't believe a
-thing he tells you.
+Q:	What looks like a cat, flies like a bat, brays like a donkey, and
+	plays like a monkey?
+A:	Nothing.
