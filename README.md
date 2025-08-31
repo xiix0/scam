@@ -1,1 +1,2 @@
-Avert misunderstanding by calm, poise, and balance.
+Don't worry.  Life's too long.
+		-- Vincent Sardi, Jr.
