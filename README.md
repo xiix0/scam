@@ -1,1 +1,2 @@
-Executive ability is prominent in your make-up.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
