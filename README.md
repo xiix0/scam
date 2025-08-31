@@ -1,1 +1,1 @@
-You love peace.
+You teach best what you most need to learn.
