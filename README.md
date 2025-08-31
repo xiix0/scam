@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+What good is an obscenity trial except to popularize literature?
+		-- Nero Wolfe, "The League of Frightened Men"
