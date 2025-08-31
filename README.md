@@ -1,1 +1,1 @@
-You have been selected for a secret mission.
+Don't tell any big lies today.  Small ones can be just as effective.
