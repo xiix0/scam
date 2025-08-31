@@ -1,2 +1,2 @@
-An honest tale speeds best being plainly told.
-		-- William Shakespeare, "Henry VI"
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
