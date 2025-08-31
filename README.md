@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+You will forget that you ever knew me.
