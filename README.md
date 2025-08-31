@@ -1,1 +1,1 @@
-Never look up when dragons fly overhead.
+Stay away from flying saucers today.
