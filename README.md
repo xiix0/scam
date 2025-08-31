@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+Q:	What is purple and commutes?
+A:	An Abelian grape.
