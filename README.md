@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+You recoil from the crude; you tend naturally toward the exquisite.
