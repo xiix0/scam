@@ -1,2 +1,2 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
