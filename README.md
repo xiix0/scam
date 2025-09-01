@@ -1,1 +1,2 @@
-You are a very redundant person, that's what kind of person you are.
+A is for Apple.
+		-- Hester Pryne
