@@ -1,1 +1,1 @@
-You are sick, twisted and perverted.  I like that in a person.
+You will be honored for contributing your time and skill to a worthy cause.
