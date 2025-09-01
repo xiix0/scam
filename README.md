@@ -1,1 +1,1 @@
-You single-handedly fought your way into this hopeless mess.
+You are sick, twisted and perverted.  I like that in a person.
