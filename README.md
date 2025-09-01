@@ -1,1 +1,3 @@
-Future looks spotty.  You will spill soup in late evening.
+Seeing that death, a necessary end,
+Will come when it will come.
+		-- William Shakespeare, "Julius Caesar"
