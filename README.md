@@ -1,2 +1,1 @@
-No group of professionals meets except to conspire against the public at large.
-		-- Mark Twain
+You will have good luck and overcome many hardships.
