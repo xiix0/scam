@@ -1,2 +1,2 @@
-After all, all he did was string together a lot of old, well-known quotations.
-		-- H. L. Mencken, on Shakespeare
+You will stop at nothing to reach your objective, but only because your
+brakes are defective.
