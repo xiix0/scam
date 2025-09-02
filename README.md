@@ -1,2 +1,2 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+I think we are in Rats' Alley where the dead men lost their bones.
+		-- T.S. Eliot
