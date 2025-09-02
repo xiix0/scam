@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
