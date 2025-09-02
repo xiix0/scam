@@ -1,1 +1,2 @@
-You will always get the greatest recognition for the job you least like.
+I do desire we may be better strangers.
+		-- William Shakespeare, "As You Like It"
