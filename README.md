@@ -1,2 +1,2 @@
-Q:	What do you call a boomerang that doesn't come back?
-A:	A stick.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
