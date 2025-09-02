@@ -1,1 +1,1 @@
-You will not be elected to public office this year.
+Don't you feel more like you do now than you did when you came in?
