@@ -1,1 +1,1 @@
-You are taking yourself far too seriously.
+There will be big changes for you but you will be happy.
