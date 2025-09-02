@@ -1,2 +1,2 @@
-Q:	What's the difference between USL and the Titanic?
-A:	The Titanic had a band.
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
