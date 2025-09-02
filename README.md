@@ -1,2 +1,2 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+Q:	How was Thomas J. Watson buried?
+A:	9 edge down.
