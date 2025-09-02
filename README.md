@@ -1,1 +1,1 @@
-You never know how many friends you have until you rent a house on the beach.
+Your mode of life will be changed for the better because of good news soon.
