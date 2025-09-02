@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Don't tell any big lies today.  Small ones can be just as effective.
