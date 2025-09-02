@@ -1,1 +1,1 @@
-You will have long and healthy life.
+Write yourself a threatening letter and pen a defiant reply.
