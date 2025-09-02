@@ -1,1 +1,2 @@
-Your heart is pure, and your mind clear, and your soul devout.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
