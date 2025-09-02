@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+You shall be rewarded for a dastardly deed.
