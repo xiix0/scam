@@ -1,1 +1,3 @@
-You will be imprisoned for contributing your time and skill to a bank robbery.
+You may my glories and my state dispose,
+But not my griefs; still am I king of those.
+		-- William Shakespeare, "Richard II"
