@@ -1,2 +1,3 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
