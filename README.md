@@ -1,1 +1,2 @@
-There will be big changes for you but you will be happy.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
