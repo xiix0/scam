@@ -1,1 +1,2 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
