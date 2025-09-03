@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
