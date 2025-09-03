@@ -1,2 +1,2 @@
-You may be infinitely smaller than some things, but you're infinitely
-larger than others.
+The first thing we do, let's kill all the lawyers.
+		-- Wm. Shakespeare, "Henry VI", Part IV
