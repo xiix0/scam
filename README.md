@@ -1,2 +1,2 @@
-As to the Adjective: when in doubt, strike it out.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many marketing people does it take to change a light bulb?
+A:	I'll have to get back to you on that.
