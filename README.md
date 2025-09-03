@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Don't let your mind wander -- it's too little to be let out alone.
