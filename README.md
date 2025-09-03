@@ -1,1 +1,2 @@
-Your nature demands love and your happiness depends on it.
+Better hope the life-inspector doesn't come around while you have your
+life in such a mess.
