@@ -1,6 +1,6 @@
-There is no character, howsoever good and fine, but it can be destroyed by
-ridicule, howsoever poor and witless.  Observe the ass, for instance: his
-character is about perfect, he is the choicest spirit among all the humbler
-animals, yet see what ridicule has brought him to.  Instead of feeling
-complimented when we are called an ass, we are left in doubt.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Stop!  There was first a game of blindman's buff.  Of course there was.
+And I no more believe Topper was really blind than I believe he had eyes
+in his boots.  My opinion is, that it was a done thing between him and
+Scrooge's nephew; and that the Ghost of Christmas Present knew it.  The
+way he went after that plump sister in the lace tucker, was an outrage
+on the credulity of human nature.
