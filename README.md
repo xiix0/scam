@@ -1,1 +1,2 @@
-You own a dog, but you can only feed a cat.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
