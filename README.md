@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+You are confused; but this is your normal state.
