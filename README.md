@@ -1,1 +1,2 @@
-Beware of a tall black man with one blond shoe.
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
