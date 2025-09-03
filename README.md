@@ -1,1 +1,1 @@
-You may get an opportunity for advancement today.  Watch it!
+You're a card which will have to be dealt with.
