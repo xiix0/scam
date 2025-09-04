@@ -1,1 +1,2 @@
-You will always get the greatest recognition for the job you least like.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
