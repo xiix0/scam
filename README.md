@@ -1,2 +1,4 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+	You will remember, Watson, how the dreadful business of the
+Abernetty family was first brought to my notice by the depth which the
+parsley had sunk into the butter upon a hot day.
+		-- Sherlock Holmes
