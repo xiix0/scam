@@ -1,2 +1,2 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
-		-- Mark Twain
+Always the dullness of the fool is the whetstone of the wits.
+		-- William Shakespeare, "As You Like It"
