@@ -1,2 +1,1 @@
-How apt the poor are to be proud.
-		-- William Shakespeare, "Twelfth-Night"
+You will be Told about it Tomorrow.  Go Home and Prepare Thyself.
