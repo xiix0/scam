@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+You will be held hostage by a radical group.
