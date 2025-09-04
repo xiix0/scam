@@ -1,1 +1,2 @@
-You will get what you deserve.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
