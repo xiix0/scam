@@ -1,1 +1,2 @@
-Good day for overcoming obstacles.  Try a steeplechase.
+How apt the poor are to be proud.
+		-- William Shakespeare, "Twelfth-Night"
