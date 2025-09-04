@@ -1,2 +1,2 @@
-He that is giddy thinks the world turns round.
-		-- William Shakespeare, "The Taming of the Shrew"
+Your motives for doing whatever good deed you may have in mind will be
+misinterpreted by somebody.
