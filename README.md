@@ -1,2 +1,2 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
