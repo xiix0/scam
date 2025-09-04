@@ -1,1 +1,1 @@
-Love is in the offing.  Be affectionate to one who adores you.
+If you stand on your head, you will get footprints in your hair.
