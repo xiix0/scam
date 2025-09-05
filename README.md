@@ -1,1 +1,2 @@
-You are a fluke of the universe; you have no right to be here.
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
