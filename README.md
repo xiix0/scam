@@ -1,2 +1,1 @@
-O, what a tangled web we weave, When first we practice to deceive.
-		-- Sir Walter Scott, "Marmion"
+Don't go surfing in South Dakota for a while.
