@@ -1,1 +1,1 @@
-You will triumph over your enemy.
+You are taking yourself far too seriously.
