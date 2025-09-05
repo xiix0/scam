@@ -1,1 +1,2 @@
-Don't kiss an elephant on the lips today.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
