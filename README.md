@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+Don't read everything you believe.
