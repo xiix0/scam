@@ -1,3 +1,2 @@
-Soap and education are not as sudden as a massacre, but they are more
-deadly in the long run.
-		-- Mark Twain
+Q:	What do you say to a New Yorker with a job?
+A:	Big Mac, fries and a Coke, please!
