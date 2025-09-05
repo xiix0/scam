@@ -1,1 +1,1 @@
-If you can read this, you're too close.
+Truth will out this morning.  (Which may really mess things up.)
