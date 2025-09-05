@@ -1,2 +1,2 @@
-English literature's performing flea.
-		-- Sean O'Casey on P. G. Wodehouse
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
