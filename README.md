@@ -1,2 +1,3 @@
-If you learn one useless thing every day, in a single year you'll learn
-365 useless things.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
