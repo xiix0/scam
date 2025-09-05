@@ -1,2 +1,1 @@
-You are destined to become the commandant of the fighting men of the
-department of transportation.
+Try to value useful qualities in one who loves you.
