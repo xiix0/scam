@@ -1,1 +1,2 @@
-Never reveal your best argument.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
