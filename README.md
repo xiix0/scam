@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+Truth will out this morning.  (Which may really mess things up.)
