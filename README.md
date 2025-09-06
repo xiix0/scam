@@ -1,1 +1,2 @@
-You will not be elected to public office this year.
+Q:	What's the difference between Bell Labs and the Boy Scouts of America?
+A:	The Boy Scouts have adult supervision.
