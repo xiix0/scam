@@ -1,1 +1,2 @@
-Never look up when dragons fly overhead.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
