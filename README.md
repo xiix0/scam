@@ -1,2 +1,2 @@
-Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
-A:	Trustworthy.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
