@@ -1,1 +1,1 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+Your nature demands love and your happiness depends on it.
