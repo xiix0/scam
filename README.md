@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+You recoil from the crude; you tend naturally toward the exquisite.
