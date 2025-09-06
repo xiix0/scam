@@ -1,1 +1,1 @@
-What happened last night can happen again.
+Increased knowledge will help you now.  Have mate's phone bugged.
