@@ -1,3 +1,2 @@
-Q:	"What is the burning question on the mind of every dyslexic
-	existentialist?"
-A:	"Is there a dog?"
+The very ink with which all history is written is merely fluid prejudice.
+		-- Mark Twain
