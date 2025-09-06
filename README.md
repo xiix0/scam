@@ -1,2 +1,1 @@
-Big book, big bore.
-		-- Callimachus
+Cold hands, no gloves.
