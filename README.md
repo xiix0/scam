@@ -1,1 +1,3 @@
-Tuesday is the Wednesday of the rest of your life.
+Q:	"What is the burning question on the mind of every dyslexic
+	existentialist?"
+A:	"Is there a dog?"
