@@ -1,1 +1,1 @@
-Be careful!  UGLY strikes 9 out of 10!
+Alimony and bribes will engage a large share of your wealth.
