@@ -1,1 +1,1 @@
-Go to a movie tonight.  Darkness becomes you.
+Be careful!  UGLY strikes 9 out of 10!
