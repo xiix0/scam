@@ -1,1 +1,1 @@
-Truth will out this morning.  (Which may really mess things up.)
+Never reveal your best argument.
