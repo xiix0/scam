@@ -1,2 +1,2 @@
-The very ink with which all history is written is merely fluid prejudice.
-		-- Mark Twain
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
