@@ -1,1 +1,1 @@
-You dialed 5483.
+You will not be elected to public office this year.
