@@ -1,1 +1,1 @@
-You will soon forget this.
+You will be singled out for promotion in your work.
