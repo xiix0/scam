@@ -1,1 +1,1 @@
-Your nature demands love and your happiness depends on it.
+Love is in the offing.  Be affectionate to one who adores you.
