@@ -1,2 +1,5 @@
-Be cheerful while you are alive.
-		-- Phathotep, 24th Century B.C.
+Q:	What do you call a blind pre-historic animal?
+A:	Diyathinkhesaurus.
+
+Q:	What do you call a blind pre-historic animal with a dog?
+A:	Diyathinkhesaurus Rex.
