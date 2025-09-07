@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+Your society will be sought by people of taste and refinement.
