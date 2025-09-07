@@ -1,1 +1,1 @@
-You will be singled out for promotion in your work.
+Fine day to work off excess energy.  Steal something heavy.
