@@ -1,1 +1,2 @@
-Your supervisor is thinking about you.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
