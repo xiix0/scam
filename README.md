@@ -1,1 +1,1 @@
-You work very hard.  Don't try to think as well.
+Don't relax!  It's only your tension that's holding you together.
