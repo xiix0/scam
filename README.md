@@ -1,1 +1,2 @@
-You will wish you hadn't.
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
