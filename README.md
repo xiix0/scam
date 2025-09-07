@@ -1,1 +1,3 @@
-You prefer the company of the opposite sex, but are well liked by your own.
+... A solemn, unsmiling, sanctimonious old iceberg who looked like he
+was waiting for a vacancy in the Trinity.
+		-- Mark Twain
