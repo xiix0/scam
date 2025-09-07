@@ -1,1 +1,1 @@
-You will overcome the attacks of jealous associates.
+Try to value useful qualities in one who loves you.
