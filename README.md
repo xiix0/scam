@@ -1,5 +1,5 @@
-Q:	How many existentialists does it take to screw in a light bulb?
-A:	Two.  One to screw it in and one to observe how the light bulb
-	itself symbolizes a single incandescent beacon of subjective
-	reality in a netherworld of endless absurdity reaching out toward a
-	maudlin cosmos of nothingness.
+	"You have heard me speak of Professor Moriarty?"
+	"The famous scientific criminal, as famous among crooks as --"
+	"My blushes, Watson," Holmes murmured, in a deprecating voice.
+	"I was about to say 'as he is unknown to the public.'"
+		-- A. Conan Doyle, "The Valley of Fear"
