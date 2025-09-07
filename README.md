@@ -1,2 +1,2 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
