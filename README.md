@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+If you laid all of our laws end to end, there would be no end.
+		-- Mark Twain
