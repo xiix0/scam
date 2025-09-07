@@ -1,3 +1,2 @@
-The difference between a Miracle and a Fact is exactly the difference
-between a mermaid and a seal.
-		-- Mark Twain
+There's small choice in rotten apples.
+		-- William Shakespeare, "The Taming of the Shrew"
