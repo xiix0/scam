@@ -1,3 +1,3 @@
-Writing is easy; all you do is sit staring at the blank sheet of paper until
-drops of blood form on your forehead.
-		-- Gene Fowler
+The difference between a Miracle and a Fact is exactly the difference
+between a mermaid and a seal.
+		-- Mark Twain
