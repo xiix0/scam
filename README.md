@@ -1,2 +1,1 @@
-He that is giddy thinks the world turns round.
-		-- William Shakespeare, "The Taming of the Shrew"
+There will be big changes for you but you will be happy.
