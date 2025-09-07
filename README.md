@@ -1,1 +1,1 @@
-Stay the curse.
+You will be singled out for promotion in your work.
