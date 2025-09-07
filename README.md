@@ -1,3 +1,2 @@
-FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #13
-A:	Doc, Happy, Bashful, Dopey, Sneezy, Sleepy, & Grumpy
-Q:	Who were the Democratic presidential candidates?
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
