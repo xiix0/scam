@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Time to be aggressive.  Go after a tattooed Virgo.
