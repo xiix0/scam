@@ -1,2 +1,2 @@
-Q:	What's yellow, and equivalent to the Axiom of Choice?
-A:	Zorn's Lemon.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
