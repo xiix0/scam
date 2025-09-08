@@ -1,1 +1,2 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Q:	How many lawyers does it take to change a light bulb?
+A:	One.  Only it's his light bulb when he's done.
