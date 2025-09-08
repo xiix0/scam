@@ -1,2 +1,2 @@
-Q:	How many lawyers does it take to change a light bulb?
-A:	One.  Only it's his light bulb when he's done.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
