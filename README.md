@@ -1,2 +1,2 @@
-Q:	How do you save a drowning lawyer?
-A:	Throw him a rock.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
