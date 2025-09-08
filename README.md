@@ -1,1 +1,1 @@
-You will get what you deserve.
+Many changes of mind and mood; do not hesitate too long.
