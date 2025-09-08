@@ -1,1 +1,3 @@
-You are not dead yet.  But watch for further reports.
+Let us endeavor so to live that when we come to die even the undertaker will be
+sorry.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
