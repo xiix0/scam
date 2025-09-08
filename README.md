@@ -1,1 +1,1 @@
-You are a bundle of energy, always on the go.
+You plan things that you do not even attempt because of your extreme caution.
