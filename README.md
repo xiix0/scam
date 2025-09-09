@@ -1,1 +1,3 @@
-Courage is your greatest present need.
+Questionable day.
+
+Ask somebody something.
