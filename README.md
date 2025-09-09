@@ -1,1 +1,1 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+Your life would be very empty if you had nothing to regret.
