@@ -1,2 +1,2 @@
-All things that are, are with more spirit chased than enjoyed.
-		-- Shakespeare, "Merchant of Venice"
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
