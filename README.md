@@ -1,1 +1,2 @@
-Your fly might be open (but don't check it just now).
+The fashion wears out more apparel than the man.
+		-- William Shakespeare, "Much Ado About Nothing"
