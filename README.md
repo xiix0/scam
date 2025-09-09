@@ -1,1 +1,1 @@
-You will pioneer the first Martian colony.
+This will be a memorable month -- no matter how hard you try to forget it.
