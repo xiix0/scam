@@ -1,2 +1,2 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
+Clothes make the man.  Naked people have little or no influence on society.
 		-- Mark Twain
