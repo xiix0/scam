@@ -1,1 +1,1 @@
-You will inherit millions of dollars.
+Your step will soil many countries.
