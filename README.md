@@ -1,1 +1,1 @@
-Tuesday is the Wednesday of the rest of your life.
+Do something unusual today.  Pay a bill.
