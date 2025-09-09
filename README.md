@@ -1,1 +1,2 @@
-There is a fly on your nose.
+You'll never see all the places, or read all the books, but fortunately,
+they're not all recommended.
