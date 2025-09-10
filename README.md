@@ -1,1 +1,1 @@
-You will never know hunger.
+You will always get the greatest recognition for the job you least like.
