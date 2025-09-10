@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+You will be reincarnated as a toad; and you will be much happier.
