@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+Your boss is a few sandwiches short of a picnic.
