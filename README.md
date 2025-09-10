@@ -1,1 +1,1 @@
-Good news.  Ten weeks from Friday will be a pretty good day.
+A visit to a strange place will bring fresh work.
