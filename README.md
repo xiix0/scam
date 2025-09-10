@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+Beware of a dark-haired man with a loud tie.
