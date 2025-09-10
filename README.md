@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+Every cloud engenders not a storm.
+		-- William Shakespeare, "Henry VI"
