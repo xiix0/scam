@@ -1,2 +1,1 @@
-You are scrupulously honest, frank, and straightforward.  Therefore you
-have few friends.
+Cheer Up!  Things are getting worse at a slower rate.
