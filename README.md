@@ -1,1 +1,2 @@
-You are number 6!  Who is number one?
+He hath eaten me out of house and home.
+		-- William Shakespeare, "Henry IV"
