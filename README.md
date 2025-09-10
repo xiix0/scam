@@ -1,1 +1,1 @@
-Cheer Up!  Things are getting worse at a slower rate.
+You have had a long-term stimulation relative to business.
