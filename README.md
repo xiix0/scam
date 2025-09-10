@@ -1,2 +1,1 @@
-Q:	What's a WASP's idea of open-mindedness?
-A:	Dating a Canadian.
+You are number 6!  Who is number one?
