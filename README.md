@@ -1,3 +1,2 @@
-"... an experienced, industrious, ambitious, and often quite often
-picturesque liar."
+Repartee is something we think of twenty-four hours too late.
 		-- Mark Twain
