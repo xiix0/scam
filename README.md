@@ -1,2 +1,2 @@
-Things past redress and now with me past care.
-		-- William Shakespeare, "Richard II"
+You will pay for your sins.  If you have already paid, please disregard
+this message.
