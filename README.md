@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+Your talents will be recognized and suitably rewarded.
