@@ -1,2 +1,1 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+You attempt things that you do not even plan because of your extreme stupidity.
