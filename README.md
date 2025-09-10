@@ -1,2 +1,1 @@
-"... all the modern inconveniences ..."
-		-- Mark Twain
+Give your very best today.  Heaven knows it's little enough.
