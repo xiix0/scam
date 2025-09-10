@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+You will always get the greatest recognition for the job you least like.
