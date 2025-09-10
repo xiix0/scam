@@ -1,2 +1,3 @@
-Q:	What is orange and goes "click, click?"
-A:	A ball point carrot.
+"... an experienced, industrious, ambitious, and often quite often
+picturesque liar."
+		-- Mark Twain
