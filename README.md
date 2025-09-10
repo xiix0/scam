@@ -1,2 +1,2 @@
-Q:	Why do WASPs play golf ?
-A:	So they can dress like pimps.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
