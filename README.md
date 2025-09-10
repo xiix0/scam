@@ -1,1 +1,1 @@
-A visit to a strange place will bring fresh work.
+Time to be aggressive.  Go after a tattooed Virgo.
