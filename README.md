@@ -1,1 +1,1 @@
-You will be traveling and coming into a fortune.
+Perfect day for scrubbing the floor and other exciting things.
