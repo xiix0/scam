@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+You will be married within a year, and divorced within two.
