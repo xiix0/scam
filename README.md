@@ -1,1 +1,1 @@
-Don't look now, but the man in the moon is laughing at you.
+Another good night not to sleep in a eucalyptus tree.
