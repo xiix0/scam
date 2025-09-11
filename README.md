@@ -1,1 +1,2 @@
-Perfect day for scrubbing the floor and other exciting things.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
