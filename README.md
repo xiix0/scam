@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+Don't get stuck in a closet -- wear yourself out.
