@@ -1,1 +1,2 @@
-Your talents will be recognized and suitably rewarded.
+I'll burn my books.
+		-- Christopher Marlowe
