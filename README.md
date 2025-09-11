@@ -1,1 +1,1 @@
-Be different: conform.
+Time to be aggressive.  Go after a tattooed Virgo.
