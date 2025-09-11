@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+A day for firm decisions!!!!!  Or is it?
