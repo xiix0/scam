@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+Is that really YOU that is reading this?
