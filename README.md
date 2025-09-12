@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Do something unusual today.  Pay a bill.
