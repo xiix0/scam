@@ -1,1 +1,2 @@
-Never look up when dragons fly overhead.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
