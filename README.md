@@ -1,2 +1,2 @@
-A is for Apple.
-		-- Hester Pryne
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
