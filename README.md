@@ -1,1 +1,1 @@
-Let me put it this way: today is going to be a learning experience.
+You worry too much about your job.  Stop it.  You are not paid enough to worry.
