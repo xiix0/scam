@@ -1,2 +1,2 @@
-Q:	What do Winnie the Pooh and John the Baptist have in common?
-A:	The same middle name.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
