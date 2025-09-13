@@ -1,2 +1,2 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
-		-- Mark Twain
+He that is giddy thinks the world turns round.
+		-- William Shakespeare, "The Taming of the Shrew"
