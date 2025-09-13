@@ -1,1 +1,1 @@
-Increased knowledge will help you now.  Have mate's phone bugged.
+Artistic ventures highlighted.  Rob a museum.
