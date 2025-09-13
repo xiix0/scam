@@ -1,1 +1,1 @@
-Today is the first day of the rest of your life.
+Increased knowledge will help you now.  Have mate's phone bugged.
