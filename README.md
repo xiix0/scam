@@ -1,1 +1,2 @@
-You single-handedly fought your way into this hopeless mess.
+Q:	Why do WASPs play golf ?
+A:	So they can dress like pimps.
