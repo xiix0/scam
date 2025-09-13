@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+Alimony and bribes will engage a large share of your wealth.
