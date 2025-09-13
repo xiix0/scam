@@ -1,1 +1,1 @@
-Expect a letter from a friend who will ask a favor of you.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
