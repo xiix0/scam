@@ -1,3 +1,3 @@
-Q:	Why does Washington have the most lawyers per capita and
-	New Jersey the most toxic waste dumps?
-A:	God gave New Jersey first choice.
+Q:	How many lawyers does it take to change a light bulb?
+A:	You won't find a lawyer who can change a light bulb.  Now, if
+	you're looking for a lawyer to screw a light bulb...
