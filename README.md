@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+Q:	How do you keep a moron in suspense?
