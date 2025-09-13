@@ -1,2 +1,2 @@
-Q:	Why do WASPs play golf ?
-A:	So they can dress like pimps.
+Troubled day for virgins over 16 who are beautiful and wealthy and live
+in eucalyptus trees.
