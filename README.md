@@ -1,2 +1,2 @@
-Q:	Why do firemen wear red suspenders?
-A:	To conform with departmental regulations concerning uniform dress.
+Q:	Why did the chicken cross the road?
+A:	He was giving it last rites.
