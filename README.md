@@ -1,1 +1,2 @@
-You feel a whole lot more like you do now than you did when you used to.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
