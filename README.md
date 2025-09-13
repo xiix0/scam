@@ -1,1 +1,2 @@
-Do something unusual today.  Pay a bill.
+Alas, how love can trifle with itself!
+		-- William Shakespeare, "The Two Gentlemen of Verona"
