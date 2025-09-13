@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+You are sick, twisted and perverted.  I like that in a person.
