@@ -1,1 +1,2 @@
-You're at the end of the road again.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
