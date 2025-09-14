@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+What happened last night can happen again.
