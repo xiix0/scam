@@ -1,1 +1,2 @@
-There will be big changes for you but you will be happy.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
