@@ -1,1 +1,1 @@
-You will attract cultured and artistic people to your home.
+The time is right to make new friends.
