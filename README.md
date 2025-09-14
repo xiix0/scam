@@ -1,2 +1,1 @@
-Today's weirdness is tomorrow's reason why.
-		-- Hunter S. Thompson
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
