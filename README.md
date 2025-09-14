@@ -1,6 +1,4 @@
-The camel died quite suddenly on the second day, and Selena fretted
-sullenly and, buffing her already impeccable nails -- not for the first
-time since the journey begain -- pondered snidely if this would dissolve
-into a vignette of minor inconveniences like all the other holidays spent
-with Basil.
-		-- Winning sentence, 1983 Bulwer-Lytton bad fiction contest.
+Persons attempting to find a motive in this narrative will be prosecuted;
+persons attempting to find a moral in it will be banished; persons attempting
+to find a plot in it will be shot.  By Order of the Author
+		-- Mark Twain, "The Adventures of Huckleberry Finn"
