@@ -1,1 +1,1 @@
-Excellent day to have a rotten day.
+Don't look now, but the man in the moon is laughing at you.
