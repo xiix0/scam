@@ -1,2 +1,2 @@
-She is not refined.  She is not unrefined.  She keeps a parrot.
-		-- Mark Twain
+Your best consolation is the hope that the things you failed to get weren't
+really worth having.
