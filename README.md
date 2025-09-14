@@ -1,2 +1,2 @@
-Q:	How was Thomas J. Watson buried?
-A:	9 edge down.
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
