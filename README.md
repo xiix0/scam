@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+You will attract cultured and artistic people to your home.
