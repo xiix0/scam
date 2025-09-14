@@ -1,1 +1,1 @@
-The time is right to make new friends.
+Never reveal your best argument.
