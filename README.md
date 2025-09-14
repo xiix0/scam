@@ -1,1 +1,1 @@
-Keep emotionally active.  Cater to your favorite neurosis.
+Live in a world of your own, but always welcome visitors.
