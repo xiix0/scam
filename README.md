@@ -1,2 +1,2 @@
-I do desire we may be better strangers.
-		-- William Shakespeare, "As You Like It"
+You tread upon my patience.
+		-- William Shakespeare, "Henry IV"
