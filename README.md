@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+Your talents will be recognized and suitably rewarded.
