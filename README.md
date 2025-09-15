@@ -1,2 +1,1 @@
-Q:	Are we not men?
-A:	We are Vaxen.
+You will triumph over your enemy.
