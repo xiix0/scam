@@ -1,1 +1,2 @@
-You will not be elected to public office this year.
+Q:	How did you get into artificial intelligence?
+A:	Seemed logical -- I didn't have any real intelligence.
