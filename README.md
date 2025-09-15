@@ -1,2 +1,1 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+You will remember something that you should not have forgotten.
