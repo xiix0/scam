@@ -1,3 +1,2 @@
-In the Spring, I have counted 136 different kinds of weather inside of
-24 hours.
-		-- Mark Twain, on New England weather
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
