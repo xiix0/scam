@@ -1,1 +1,2 @@
-Don't look now, but the man in the moon is laughing at you.
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
