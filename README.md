@@ -1,1 +1,1 @@
-Try to value useful qualities in one who loves you.
+Your domestic life may be harmonious.
