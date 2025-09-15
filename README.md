@@ -1,1 +1,1 @@
-Don't relax!  It's only your tension that's holding you together.
+Everything that you know is wrong, but you can be straightened out.
