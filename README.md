@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+Too much is just enough.
+		-- Mark Twain, on whiskey
