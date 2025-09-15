@@ -1,1 +1,1 @@
-Everything that you know is wrong, but you can be straightened out.
+An avocado-tone refrigerator would look good on your resume.
