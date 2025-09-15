@@ -1,2 +1,2 @@
-Q:	What do you get when you cross the Godfather with an attorney?
-A:	An offer you can't understand.
+You have a reputation for being thoroughly reliable and trustworthy.
+A pity that it's totally undeserved.
