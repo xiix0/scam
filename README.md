@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
