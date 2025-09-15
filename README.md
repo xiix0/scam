@@ -1,1 +1,2 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
