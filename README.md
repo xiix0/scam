@@ -1,1 +1,1 @@
-Your reasoning powers are good, and you are a fairly good planner.
+You will hear good news from one you thought unfriendly to you.
