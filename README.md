@@ -1,1 +1,1 @@
-You like to form new friendships and make new acquaintances.
+Don't look now, but the man in the moon is laughing at you.
