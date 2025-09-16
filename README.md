@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
