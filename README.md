@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+You definitely intend to start living sometime soon.
