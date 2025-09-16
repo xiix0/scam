@@ -1,1 +1,1 @@
-Q:	How do you keep a moron in suspense?
+You will gain money by an illegal action.
