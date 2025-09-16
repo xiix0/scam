@@ -1,1 +1,2 @@
-You teach best what you most need to learn.
+Let me take you a button-hole lower.
+		-- William Shakespeare, "Love's Labour's Lost"
