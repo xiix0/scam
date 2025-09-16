@@ -1,1 +1,2 @@
-Cheer Up!  Things are getting worse at a slower rate.
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
