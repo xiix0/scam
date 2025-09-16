@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+Your lucky number is 3552664958674928.  Watch for it everywhere.
