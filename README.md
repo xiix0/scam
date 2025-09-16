@@ -1,2 +1,2 @@
-What I tell you three times is true.
-		-- Lewis Carroll
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
