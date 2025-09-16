@@ -1,1 +1,1 @@
-You are fairminded, just and loving.
+Caution: Keep out of reach of children.
