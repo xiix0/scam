@@ -1,2 +1,5 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+Q:	What do monsters eat?
+A:	Things.
+
+Q:	What do monsters drink?
+A:	Coke.  (Because Things go better with Coke.)
