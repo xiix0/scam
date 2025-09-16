@@ -1,1 +1,1 @@
-Chicken Little only has to be right once.
+You look like a million dollars.  All green and wrinkled.
