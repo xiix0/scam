@@ -1,1 +1,2 @@
-Your boss is a few sandwiches short of a picnic.
+An honest tale speeds best being plainly told.
+		-- William Shakespeare, "Henry VI"
