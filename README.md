@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+Don't get stuck in a closet -- wear yourself out.
