@@ -1,1 +1,1 @@
-You will be misunderstood by everyone.
+A visit to a fresh place will bring strange work.
