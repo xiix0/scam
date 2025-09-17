@@ -1,1 +1,1 @@
-Be security conscious -- National defense is at stake.
+You'll be called to a post requiring ability in handling groups of people.
