@@ -1,1 +1,2 @@
-You fill a much-needed gap.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
