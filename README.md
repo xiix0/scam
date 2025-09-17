@@ -1,1 +1,1 @@
-Never be led astray onto the path of virtue.
+Be careful!  Is it classified?
