@@ -1,1 +1,2 @@
-Future looks spotty.  You will spill soup in late evening.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
