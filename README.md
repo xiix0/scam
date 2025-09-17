@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+You'll be called to a post requiring ability in handling groups of people.
