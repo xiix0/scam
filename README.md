@@ -1,1 +1,1 @@
-Be careful!  Is it classified?
+Abandon the search for Truth; settle for a good fantasy.
