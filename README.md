@@ -1,1 +1,1 @@
-You will receive a legacy which will place you above want.
+Be security conscious -- National defense is at stake.
