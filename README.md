@@ -1,1 +1,2 @@
-Try to value useful qualities in one who loves you.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
