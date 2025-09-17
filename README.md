@@ -1,1 +1,1 @@
-You'll be called to a post requiring ability in handling groups of people.
+Among the lucky, you are the chosen one.
