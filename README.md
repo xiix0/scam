@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+Is this really happening?
