@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+Time to be aggressive.  Go after a tattooed Virgo.
