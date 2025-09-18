@@ -1,2 +1,1 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+Be cautious in your daily affairs.
