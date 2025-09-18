@@ -1,2 +1,2 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
