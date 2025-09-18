@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+Domestic happiness and faithful friends.
