@@ -1,1 +1,2 @@
-Good day to let down old friends who need help.
+I'll burn my books.
+		-- Christopher Marlowe
