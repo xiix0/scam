@@ -1,2 +1,1 @@
-I'll burn my books.
-		-- Christopher Marlowe
+An avocado-tone refrigerator would look good on your resume.
