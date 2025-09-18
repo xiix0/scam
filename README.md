@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+Are you making all this up as you go along?
