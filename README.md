@@ -1,1 +1,1 @@
-You have no real enemies.
+Give your very best today.  Heaven knows it's little enough.
