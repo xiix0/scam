@@ -1,1 +1,1 @@
-Do not sleep in a eucalyptus tree tonight.
+You work very hard.  Don't try to think as well.
