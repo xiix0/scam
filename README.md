@@ -1,1 +1,2 @@
-Caution: breathing may be hazardous to your health.
+Water, taken in moderation cannot hurt anybody.
+		-- Mark Twain
