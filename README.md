@@ -1,1 +1,3 @@
-You have a strong appeal for members of your own sex.
+Hain't we got all the fools in town on our side?  And hain't that a big
+enough majority in any town?
+		-- Mark Twain, "Huckleberry Finn"
