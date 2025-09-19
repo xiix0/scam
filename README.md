@@ -1,1 +1,1 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+Look afar and see the end from the beginning.
