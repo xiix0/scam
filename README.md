@@ -1,1 +1,1 @@
-Make a wish, it might come true.
+You will be given a post of trust and responsibility.
