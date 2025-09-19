@@ -1,1 +1,1 @@
-Beware of low-flying butterflies.
+Do not sleep in a eucalyptus tree tonight.
