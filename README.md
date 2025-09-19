@@ -1,1 +1,1 @@
-If you sow your wild oats, hope for a crop failure.
+You may get an opportunity for advancement today.  Watch it!
