@@ -1,2 +1,1 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+You have a strong appeal for members of your own sex.
