@@ -1,1 +1,1 @@
-You are dishonest, but never to the point of hurting a friend.
+If you sow your wild oats, hope for a crop failure.
