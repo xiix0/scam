@@ -1,2 +1,1 @@
-Big book, big bore.
-		-- Callimachus
+Beware of low-flying butterflies.
