@@ -1,2 +1,1 @@
-Q:	What is the sound of one cat napping?
-A:	Mu.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
