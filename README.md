@@ -1,1 +1,1 @@
-Avert misunderstanding by calm, poise, and balance.
+You don't become a failure until you're satisfied with being one.
