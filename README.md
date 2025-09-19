@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+Ships are safe in harbor, but they were never meant to stay there.
