@@ -1,1 +1,1 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+Expect a letter from a friend who will ask a favor of you.
