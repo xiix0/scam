@@ -1,2 +1,2 @@
-I was gratified to be able to answer promptly, and I did. I said I didn't know.
-		-- Mark Twain
+Q:	What's yellow, and equivalent to the Axiom of Choice?
+A:	Zorn's Lemon.
