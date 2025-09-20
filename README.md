@@ -1,1 +1,2 @@
-Communicate!  It can't make things any worse.
+If you learn one useless thing every day, in a single year you'll learn
+365 useless things.
