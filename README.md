@@ -1,3 +1,1 @@
-There are more things in heaven and earth,
-Horatio, than are dreamt of in your philosophy.
-		-- Wm. Shakespeare, "Hamlet"
+You have the capacity to learn from mistakes.  You'll learn a lot today.
