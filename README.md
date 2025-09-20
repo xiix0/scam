@@ -1,1 +1,2 @@
-Expect a letter from a friend who will ask a favor of you.
+The smallest worm will turn being trodden on.
+		-- William Shakespeare, "Henry VI"
