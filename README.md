@@ -1,2 +1,2 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
