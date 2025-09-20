@@ -1,2 +1,1 @@
-You will stop at nothing to reach your objective, but only because your
-brakes are defective.
+You will feel hungry again in another hour.
