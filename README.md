@@ -1,1 +1,1 @@
-Don't go surfing in South Dakota for a while.
+You are fighting for survival in your own sweet and gentle way.
