@@ -1,2 +1,2 @@
-Clothes make the man.  Naked people have little or no influence on society.
+Repartee is something we think of twenty-four hours too late.
 		-- Mark Twain
