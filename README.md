@@ -1,1 +1,2 @@
-You will gain money by a fattening action.
+There is no distinctly native American criminal class except Congress.
+		-- Mark Twain
