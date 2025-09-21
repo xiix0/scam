@@ -1,2 +1,1 @@
-But, for my own part, it was Greek to me.
-		-- William Shakespeare, "Julius Caesar"
+You will be married within a year, and divorced within two.
