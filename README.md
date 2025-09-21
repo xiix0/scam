@@ -1,1 +1,4 @@
-Give your very best today.  Heaven knows it's little enough.
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
