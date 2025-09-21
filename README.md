@@ -1,2 +1,2 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+You're growing out of some of your problems, but there are others that
+you're growing into.
