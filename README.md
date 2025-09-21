@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+Keep emotionally active.  Cater to your favorite neurosis.
