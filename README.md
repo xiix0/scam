@@ -1,3 +1,1 @@
-In a museum in Havana, there are two skulls of Christopher Columbus,
-"one when he was a boy and one when he was a man."
-		-- Mark Twain
+Give your very best today.  Heaven knows it's little enough.
