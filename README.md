@@ -1,1 +1,1 @@
-You are always busy.
+Executive ability is prominent in your make-up.
