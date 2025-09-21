@@ -1,1 +1,1 @@
-Your depth of comprehension may tend to make you lax in worldly ways.
+Don't look now, but the man in the moon is laughing at you.
