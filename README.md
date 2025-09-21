@@ -1,1 +1,1 @@
-Your boss is a few sandwiches short of a picnic.
+You are so boring that when I see you my feet go to sleep.
