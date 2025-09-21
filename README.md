@@ -1,1 +1,2 @@
-You will gain money by an illegal action.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
