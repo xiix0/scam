@@ -1,1 +1,2 @@
-You definitely intend to start living sometime soon.
+Q:	What's a WASP's idea of open-mindedness?
+A:	Dating a Canadian.
