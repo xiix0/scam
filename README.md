@@ -1,2 +1,2 @@
-Q:	What lies on the bottom of the ocean and twitches?
-A:	A nervous wreck.
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
