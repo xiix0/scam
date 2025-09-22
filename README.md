@@ -1,2 +1,1 @@
-The surest protection against temptation is cowardice.
-		-- Mark Twain
+An exotic journey in downtown Newark is in your future.
