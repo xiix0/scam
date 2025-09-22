@@ -1,2 +1,1 @@
-I have never let my schooling interfere with my education.
-		-- Mark Twain
+Abandon the search for Truth; settle for a good fantasy.
