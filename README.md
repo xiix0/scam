@@ -1,1 +1,2 @@
-You're a card which will have to be dealt with.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
