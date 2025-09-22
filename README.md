@@ -1,2 +1,2 @@
-Q:	What do you get when you cross the Godfather with an attorney?
-A:	An offer you can't understand.
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
