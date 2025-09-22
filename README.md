@@ -1,2 +1,2 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
