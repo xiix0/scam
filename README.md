@@ -1,1 +1,2 @@
-You'll be called to a post requiring ability in handling groups of people.
+The surest protection against temptation is cowardice.
+		-- Mark Twain
