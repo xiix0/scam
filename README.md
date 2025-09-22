@@ -1,2 +1,2 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
