@@ -1,2 +1,1 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+You'll be called to a post requiring ability in handling groups of people.
