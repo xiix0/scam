@@ -1,2 +1,5 @@
-Few things are harder to put up with than the annoyance of a good example.
-		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
+For years a secret shame destroyed my peace--
+I'd not read Eliot, Auden or MacNiece.
+But now I think a thought that brings me hope:
+Neither had Chaucer, Shakespeare, Milton, Pope.
+		-- Justin Richardson.
