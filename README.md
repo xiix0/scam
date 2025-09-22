@@ -1,1 +1,1 @@
-An avocado-tone refrigerator would look good on your resume.
+You will be the victim of a bizarre joke.
