@@ -1,2 +1,1 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+Are you ever going to do the dishes?  Or will you change your major to biology?
