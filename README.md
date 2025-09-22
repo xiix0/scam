@@ -1,2 +1,2 @@
-I think we are in Rats' Alley where the dead men lost their bones.
-		-- T.S. Eliot
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
