@@ -1,1 +1,2 @@
-Executive ability is prominent in your make-up.
+I have never let my schooling interfere with my education.
+		-- Mark Twain
