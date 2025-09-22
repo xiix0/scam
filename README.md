@@ -1,1 +1,2 @@
-An exotic journey in downtown Newark is in your future.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
