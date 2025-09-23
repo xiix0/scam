@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+You will be given a post of trust and responsibility.
