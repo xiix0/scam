@@ -1,2 +1,1 @@
-Truth is the most valuable thing we have -- so let us economize it.
-		-- Mark Twain
+Don't worry so loud, your roommate can't think.
