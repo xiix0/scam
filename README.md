@@ -1,1 +1,1 @@
-You are fighting for survival in your own sweet and gentle way.
+A vivid and creative mind characterizes you.
