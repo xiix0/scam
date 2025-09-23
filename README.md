@@ -1,1 +1,1 @@
-Avoid reality at all costs.
+You are fighting for survival in your own sweet and gentle way.
