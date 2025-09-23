@@ -1,1 +1,1 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
