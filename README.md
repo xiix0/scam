@@ -1,2 +1,2 @@
-Civilization is the limitless multiplication of unnecessary necessities.
-		-- Mark Twain
+O, what a tangled web we weave, When first we practice to deceive.
+		-- Sir Walter Scott, "Marmion"
