@@ -1,2 +1,2 @@
-Never laugh at live dragons.
-		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
+Give thought to your reputation.  Consider changing name and moving to
+a new town.
