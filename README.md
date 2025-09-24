@@ -1,2 +1,2 @@
-Hell is empty and all the devils are here.
-		-- Wm. Shakespeare, "The Tempest"
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
