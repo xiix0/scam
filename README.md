@@ -1,2 +1,2 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+Hell is empty and all the devils are here.
+		-- Wm. Shakespeare, "The Tempest"
