@@ -1,2 +1,5 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
