@@ -1,2 +1,1 @@
-Give thought to your reputation.  Consider changing name and moving to
-a new town.
+Your own qualities will help prevent your advancement in the world.
