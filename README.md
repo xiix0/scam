@@ -1,2 +1,1 @@
-Kindness is a language which the deaf can hear and the blind can read.
-		-- Mark Twain
+Your temporary financial embarrassment will be relieved in a surprising manner.
