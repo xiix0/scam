@@ -1,2 +1,3 @@
-Writing is turning one's worst moments into money.
-		-- J.P. Donleavy
+There is no hunting like the hunting of man, and those who have hunted
+armed men long enough and liked it, never care for anything else thereafter.
+		-- Ernest Hemingway
