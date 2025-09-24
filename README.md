@@ -1,1 +1,1 @@
-You have literary talent that you should take pains to develop.
+If you can read this, you're too close.
