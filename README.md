@@ -1,1 +1,3 @@
-Your aim is high and to the right.
+The human race is a race of cowards; and I am not only marching in that
+procession but carrying a banner.
+		-- Mark Twain
