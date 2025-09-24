@@ -1,2 +1,2 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
