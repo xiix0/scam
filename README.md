@@ -1,1 +1,1 @@
-Your own qualities will help prevent your advancement in the world.
+Bank error in your favor.  Collect $200.
