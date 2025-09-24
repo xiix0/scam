@@ -1,1 +1,1 @@
-Think twice before speaking, but don't say "think think click click".
+You are number 6!  Who is number one?
