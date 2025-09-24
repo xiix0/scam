@@ -1,1 +1,2 @@
-If you stand on your head, you will get footprints in your hair.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
