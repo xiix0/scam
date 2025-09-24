@@ -1,3 +1,3 @@
-There is no hunting like the hunting of man, and those who have hunted
-armed men long enough and liked it, never care for anything else thereafter.
-		-- Ernest Hemingway
+Q:	How many Zen masters does it take to screw in a light bulb?
+A:	None.  The Universe spins the bulb, and the Zen master stays out
+	of the way.
