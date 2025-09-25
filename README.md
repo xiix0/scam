@@ -1,2 +1,1 @@
-The naked truth of it is, I have no shirt.
-		-- William Shakespeare, "Love's Labour's Lost"
+Things will be bright in P.M.  A cop will shine a light in your face.
