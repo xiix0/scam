@@ -1,2 +1,2 @@
-I'll burn my books.
-		-- Christopher Marlowe
+She is not refined.  She is not unrefined.  She keeps a parrot.
+		-- Mark Twain
