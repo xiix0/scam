@@ -1,2 +1,2 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
