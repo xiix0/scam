@@ -1,3 +1,1 @@
-If more of us valued food and cheer and song above hoarded gold, it would
-be a merrier world.
-		-- J.R.R. Tolkien
+You never know how many friends you have until you rent a house on the beach.
