@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+The devil can cite Scripture for his purpose.
+		-- William Shakespeare, "The Merchant of Venice"
