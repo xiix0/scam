@@ -1,1 +1,5 @@
-You could live a better life, if you had a better mind and a better body.
+Q:	Why do ducks have big flat feet?
+A:	To stamp out forest fires.
+
+Q:	Why do elephants have big flat feet?
+A:	To stamp out flaming ducks.
