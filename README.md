@@ -1,3 +1,3 @@
-A banker is a fellow who lends you his umbrella when the sun is shining
-and wants it back the minute it begins to rain.
-		-- Mark Twain
+"Elves and Dragons!" I says to him.  "Cabbages and potatoes are better
+for you and me."
+		-- J. R. R. Tolkien
