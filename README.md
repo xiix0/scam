@@ -1,2 +1,3 @@
-Q:	What's the difference between Bell Labs and the Boy Scouts of America?
-A:	The Boy Scouts have adult supervision.
+Q:	What do you call the money you pay to the government when
+	you ride into the country on the back of an elephant?
+A:	A howdah duty.
