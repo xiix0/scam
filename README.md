@@ -1,2 +1,2 @@
-Q:	What is printed on the bottom of beer bottles in Minnesota?
-A:	Open other end.
+Every why hath a wherefore.
+		-- William Shakespeare, "A Comedy of Errors"
