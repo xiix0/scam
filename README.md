@@ -1,1 +1,2 @@
-You will receive a legacy which will place you above want.
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
