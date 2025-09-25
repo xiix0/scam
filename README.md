@@ -1,1 +1,2 @@
-Your supervisor is thinking about you.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
