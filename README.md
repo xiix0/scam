@@ -1,1 +1,2 @@
-Your temporary financial embarrassment will be relieved in a surprising manner.
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
