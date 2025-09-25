@@ -1,5 +1,6 @@
-I will honour Christmas in my heart, and try to keep it all the year.  I
-will live in the Past, the Present, and the Future.  The Spirits of all
-Three shall strive within me.  I will not shut out the lessons that they
-teach.  Oh, tell me that I may sponge away the writing on this stone!
-		-- Charles Dickens
+Q:	What did Tarzan say when he saw the elephants coming over the hill?
+A:	"The elephants are coming over the hill."
+
+Q:	What did he say when saw them coming over the hill wearing
+		sunglasses?
+A:	Nothing, for he didn't recognize them.
