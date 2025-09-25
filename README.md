@@ -1,1 +1,2 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Q:	How many WASPs does it take to change a light bulb?
+A:	One.
