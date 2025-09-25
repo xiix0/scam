@@ -1,2 +1,4 @@
-Q:	How many Marxists does it take to screw in a light bulb?
-A:	None:  The light bulb contains the seeds of its own revolution.
+Swerve me?  The path to my fixed purpose is laid with iron rails,
+whereon my soul is grooved to run.  Over unsounded gorges, through
+the rifled hearts of mountains, under torrents' beds, unerringly I rush!
+		-- Captain Ahab, "Moby Dick"
