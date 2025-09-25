@@ -1,2 +1,2 @@
-The devil can cite Scripture for his purpose.
-		-- William Shakespeare, "The Merchant of Venice"
+Q:	What's the difference between Bell Labs and the Boy Scouts of America?
+A:	The Boy Scouts have adult supervision.
