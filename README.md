@@ -1,1 +1,2 @@
-Beware of a dark-haired man with a loud tie.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
