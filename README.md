@@ -1,1 +1,3 @@
-If you sow your wild oats, hope for a crop failure.
+This is the first age that's paid much attention to the future, which is a
+little ironic since we may not have one.
+		-- Arthur Clarke
