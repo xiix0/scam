@@ -1,1 +1,1 @@
-Fine day to work off excess energy.  Steal something heavy.
+If you sow your wild oats, hope for a crop failure.
