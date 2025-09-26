@@ -1,1 +1,1 @@
-A vivid and creative mind characterizes you.
+Abandon the search for Truth; settle for a good fantasy.
