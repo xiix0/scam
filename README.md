@@ -1,1 +1,1 @@
-Don't feed the bats tonight.
+It was all so different before everything changed.
