@@ -1,6 +1,5 @@
-At once it struck me what quality went to form a man of achievement,
-especially in literature, and which Shakespeare possessed so enormously
--- I mean negative capability, that is, when a man is capable of being
-in uncertainties, mysteries, doubts, without any irritable reaching
-after fact and reason.
-		-- John Keats
+Steady movement is more important than speed, much of the time.  So long
+as there is a regular progression of stimuli to get your mental hooks
+into, there is room for lateral movement.  Once this begins, its rate is
+a matter of discretion.
+		-- Corwin, Prince of Amber
