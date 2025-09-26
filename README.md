@@ -1,2 +1,2 @@
-Q:	What is green and lives in the ocean?
-A:	Moby Pickle.
+Q:	What do they call the alphabet in Arkansas?
+A:	The impossible dream.
