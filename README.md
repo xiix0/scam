@@ -1,1 +1,1 @@
-Good news from afar can bring you a welcome visitor.
+Live in a world of your own, but always welcome visitors.
