@@ -1,1 +1,1 @@
-Your business will assume vast proportions.
+Time to be aggressive.  Go after a tattooed Virgo.
