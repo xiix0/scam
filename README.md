@@ -1,1 +1,2 @@
-Time to be aggressive.  Go after a tattooed Virgo.
+Q:	What is green and lives in the ocean?
+A:	Moby Pickle.
