@@ -1,1 +1,1 @@
-It was all so different before everything changed.
+Don't read everything you believe.
