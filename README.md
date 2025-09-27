@@ -1,1 +1,1 @@
-You are capable of planning your future.
+You'll feel much better once you've given up hope.
