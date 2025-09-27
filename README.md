@@ -1,3 +1,3 @@
-Q:	How many Bell Labs Vice Presidents does it take to change a light bulb?
-A:	That's proprietary information.  Answer available from AT&T on payment
-	of license fee (binary only).
+It has long been an axiom of mine that the little things are infinitely
+the most important.
+		-- Sir Arthur Conan Doyle, "A Case of Identity"
