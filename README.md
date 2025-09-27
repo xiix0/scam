@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Your lover will never wish to leave you.
