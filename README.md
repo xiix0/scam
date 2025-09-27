@@ -1,6 +1,4 @@
-I've touch'd the highest point of all my greatness;
-And from that full meridian of my glory
-I haste now to my setting.  I shall fall,
-Like a bright exhalation in the evening
-And no man see me more.
-		-- Shakespeare
+You mentioned your name as if I should recognize it, but beyond the
+obvious facts that you are a bachelor, a solicitor, a freemason, and
+an asthmatic, I know nothing whatever about you.
+		-- Sherlock Holmes, "The Norwood Builder"
