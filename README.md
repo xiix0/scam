@@ -1,1 +1,2 @@
-You will live a long, healthy, happy life and make bags of money.
+While you recently had your problems on the run, they've regrouped and
+are making another attack.
