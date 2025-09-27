@@ -1,2 +1,2 @@
-While you recently had your problems on the run, they've regrouped and
-are making another attack.
+Q:	What is printed on the bottom of beer bottles in Minnesota?
+A:	Open other end.
