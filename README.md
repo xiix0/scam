@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+You will forget that you ever knew me.
