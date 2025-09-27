@@ -1,1 +1,2 @@
-You'll feel much better once you've given up hope.
+Too much is just enough.
+		-- Mark Twain, on whiskey
