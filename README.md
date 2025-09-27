@@ -1,2 +1,7 @@
-You will be attacked by a beast who has the body of a wolf, the tail of
-a lion, and the face of Donald Duck.
+"What's this?  Trix?  Aunt!  Trix?  You?  You're after the prize!  What
+is it?"  He picked up the box and studied the back.  "A glow-in-the-dark
+squid!  Have you got it out of there yet?"  He tilted the box, angling the
+little colored balls of cereal so as to see the bottom, and nearly spilling
+them onto the table top.  "Here it is!"  He hauled out a little cream-colored,
+glitter-sprinkled squid, three-inches long and made out of rubbery plastic.
+		-- James P. Blaylock, "The Last Coin"
