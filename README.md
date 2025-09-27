@@ -1,1 +1,1 @@
-Your ignorance cramps my conversation.
+That secret you've been guarding, isn't.
