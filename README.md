@@ -1,1 +1,1 @@
-Good day for a change of scene.  Repaper the bedroom wall.
+Break into jail and claim police brutality.
