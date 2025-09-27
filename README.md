@@ -1,1 +1,1 @@
-Don't worry so loud, your roommate can't think.
+You attempt things that you do not even plan because of your extreme stupidity.
