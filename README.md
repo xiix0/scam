@@ -1,1 +1,1 @@
-All the troubles you have will pass away very quickly.
+You will be winged by an anti-aircraft battery.
