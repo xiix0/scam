@@ -1,1 +1,1 @@
-You will reach the highest possible point in your business or profession.
+You will be held hostage by a radical group.
