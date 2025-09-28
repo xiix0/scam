@@ -1,1 +1,1 @@
-An exotic journey in downtown Newark is in your future.
+Your heart is pure, and your mind clear, and your soul devout.
