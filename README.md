@@ -1,1 +1,1 @@
-You will have a long and unpleasant discussion with your supervisor.
+A visit to a fresh place will bring strange work.
