@@ -1,1 +1,2 @@
-You will be given a post of trust and responsibility.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
