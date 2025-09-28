@@ -1,1 +1,2 @@
-Try the Moo Shu Pork.  It is especially good today.
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
