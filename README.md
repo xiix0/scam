@@ -1,1 +1,1 @@
-Expect the worst, it's the least you can do.
+What happened last night can happen again.
