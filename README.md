@@ -1,1 +1,1 @@
-You are as I am with You.
+Fine day to work off excess energy.  Steal something heavy.
