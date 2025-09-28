@@ -1,1 +1,2 @@
-Your talents will be recognized and suitably rewarded.
+All generalizations are false, including this one.
+		-- Mark Twain
