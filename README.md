@@ -1,5 +1,5 @@
-Q:	Why is Poland just like the United States?
-A:	In the United States you can't buy anything for zlotys and in
-	Poland you can't either, while in the U.S. you can get whatever
-	you want for dollars, just as you can in Poland.
-		-- being told in Poland, 1987
+Q:	Where's the Lone Ranger take his garbage?
+A:	To the dump, to the dump, to the dump dump dump!
+
+Q:	What's the Pink Panther say when he steps on an ant hill?
+A:	Dead ant, dead ant, dead ant dead ant dead ant...
