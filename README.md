@@ -1,1 +1,3 @@
-And do you think (fop that I am) that I could be the Scarlet Pumpernickel?
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
