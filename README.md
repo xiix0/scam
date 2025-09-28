@@ -1,1 +1,2 @@
-A visit to a fresh place will bring strange work.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
