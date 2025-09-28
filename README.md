@@ -1,2 +1,2 @@
-Q:	Why do WASPs play golf ?
-A:	So they can dress like pimps.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
