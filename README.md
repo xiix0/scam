@@ -1,1 +1,1 @@
-Beware of a tall black man with one blond shoe.
+Don't read any sky-writing for the next two weeks.
