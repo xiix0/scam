@@ -1,2 +1,1 @@
-You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
-heel.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
