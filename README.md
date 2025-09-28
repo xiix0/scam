@@ -1,1 +1,1 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+Try the Moo Shu Pork.  It is especially good today.
