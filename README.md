@@ -1,1 +1,1 @@
-You will become rich and famous unless you don't.
+A tall, dark stranger will have more fun than you.
