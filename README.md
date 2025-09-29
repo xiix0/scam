@@ -1,2 +1,2 @@
-Conscience doth make cowards of us all.
-		-- Shakespeare
+Be cheerful while you are alive.
+		-- Phathotep, 24th Century B.C.
