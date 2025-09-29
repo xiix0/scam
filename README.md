@@ -1,1 +1,1 @@
-Keep it short for pithy sake.
+You will forget that you ever knew me.
