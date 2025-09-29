@@ -1,2 +1,3 @@
-Q:	What happens when four WASPs find themselves in the same room?
-A:	A dinner party.
+Q:	What looks like a cat, flies like a bat, brays like a donkey, and
+	plays like a monkey?
+A:	Nothing.
