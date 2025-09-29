@@ -1,1 +1,2 @@
-Write yourself a threatening letter and pen a defiant reply.
+Few things are harder to put up with than the annoyance of a good example.
+		-- "Mark Twain, Pudd'nhead Wilson's Calendar"
