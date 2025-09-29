@@ -1,1 +1,2 @@
-You will gain money by an immoral action.
+When in doubt, tell the truth.
+		-- Mark Twain
