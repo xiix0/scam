@@ -1,1 +1,1 @@
-You have a will that can be influenced by all with whom you come in contact.
+You could live a better life, if you had a better mind and a better body.
