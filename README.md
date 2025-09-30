@@ -1,2 +1,1 @@
-Q:	Why did the lone ranger kill Tonto?
-A:	He found out what "kimosabe" really means.
+If you stand on your head, you will get footprints in your hair.
