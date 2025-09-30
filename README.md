@@ -1,2 +1,2 @@
-It's a very *__UN*lucky week in which to be took dead.
-		-- Churchy La Femme
+Must I hold a candle to my shames?
+		-- William Shakespeare, "The Merchant of Venice"
