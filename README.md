@@ -1,2 +1,2 @@
-Q:	What's the difference between Bell Labs and the Boy Scouts of America?
-A:	The Boy Scouts have adult supervision.
+Repartee is something we think of twenty-four hours too late.
+		-- Mark Twain
