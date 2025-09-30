@@ -1,1 +1,2 @@
-You have literary talent that you should take pains to develop.
+You'll wish that you had done some of the hard things when they were easier
+to do.
