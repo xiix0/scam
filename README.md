@@ -1,2 +1,3 @@
-He was part of my dream, of course -- but then I was part of his dream too.
-		-- Lewis Carroll
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
