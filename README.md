@@ -1,1 +1,1 @@
-Tuesday After Lunch is the cosmic time of the week.
+You have literary talent that you should take pains to develop.
