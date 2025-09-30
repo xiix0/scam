@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+Don't worry so loud, your roommate can't think.
