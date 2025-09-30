@@ -1,1 +1,2 @@
-If you stand on your head, you will get footprints in your hair.
+Q:	What is the difference between a duck?
+A:	One leg is both the same.
