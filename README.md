@@ -1,3 +1,3 @@
-Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
-as intelligent as ever.
-		-- Samuel Beckett, "Endgame"
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
