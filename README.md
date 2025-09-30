@@ -1,2 +1,2 @@
-The human race has one really effective weapon, and that is laughter.
-		-- Mark Twain
+He was part of my dream, of course -- but then I was part of his dream too.
+		-- Lewis Carroll
