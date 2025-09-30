@@ -1,2 +1,2 @@
-Never laugh at live dragons.
-		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
+Q:	What's the difference between USL and the Titanic?
+A:	The Titanic had a band.
