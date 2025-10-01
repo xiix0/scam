@@ -1,1 +1,1 @@
-You need more time; and you probably always will.
+Exercise caution in your daily affairs.
