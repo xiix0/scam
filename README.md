@@ -1,1 +1,2 @@
-You will be awarded the Nobel Peace Prize... posthumously.
+I'll burn my books.
+		-- Christopher Marlowe
