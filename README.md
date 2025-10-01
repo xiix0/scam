@@ -1,2 +1,1 @@
-By trying we can easily learn to endure adversity.  Another man's, I mean.
-		-- Mark Twain
+You will be awarded the Nobel Peace Prize... posthumously.
