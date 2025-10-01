@@ -1,1 +1,1 @@
-You will be run over by a bus.
+It's lucky you're going so slowly, because you're going in the wrong direction.
