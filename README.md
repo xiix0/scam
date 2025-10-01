@@ -1,1 +1,1 @@
-You will be the last person to buy a Chrysler.
+After your lover has gone you will still have PEANUT BUTTER!
