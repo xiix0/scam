@@ -1,1 +1,2 @@
-You are farsighted, a good planner, an ardent lover, and a faithful friend.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
