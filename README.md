@@ -1,1 +1,1 @@
-Someone whom you reject today, will reject you tomorrow.
+Don't you feel more like you do now than you did when you came in?
