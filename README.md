@@ -1,1 +1,1 @@
-Exercise caution in your daily affairs.
+A day for firm decisions!!!!!  Or is it?
