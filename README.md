@@ -1,2 +1,5 @@
-Be free and open and breezy!  Enjoy!  Things won't get any better so
-get used to it.
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
