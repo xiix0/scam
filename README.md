@@ -1,1 +1,1 @@
-Your lover will never wish to leave you.
+You will be run over by a bus.
