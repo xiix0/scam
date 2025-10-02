@@ -1,1 +1,2 @@
-You will hear good news from one you thought unfriendly to you.
+If two people love each other, there can be no happy end to it.
+		-- Ernest Hemingway
