@@ -1,2 +1,2 @@
-You had some happiness once, but your parents moved away, and you had to
-leave it behind.
+You'll feel devilish tonight.  Toss dynamite caps under a flamenco dancer's
+heel.
