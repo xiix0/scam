@@ -1,1 +1,1 @@
-You have Egyptian flu: you're going to be a mummy.
+Do something unusual today.  Pay a bill.
