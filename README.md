@@ -1,2 +1,1 @@
-Q:	How can you tell when a Burroughs salesman is lying?
-A:	When his lips move.
+Your reasoning powers are good, and you are a fairly good planner.
