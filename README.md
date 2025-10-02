@@ -1,2 +1,2 @@
-Tell the truth or trump--but get the trick.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+The naked truth of it is, I have no shirt.
+		-- William Shakespeare, "Love's Labour's Lost"
