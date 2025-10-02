@@ -1,1 +1,2 @@
-Don't get stuck in a closet -- wear yourself out.
+Q:	Why did the tachyon cross the road?
+A:	Because it was on the other side.
