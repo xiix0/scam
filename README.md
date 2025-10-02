@@ -1,1 +1,1 @@
-Do something unusual today.  Pay a bill.
+You have a strong appeal for members of your own sex.
