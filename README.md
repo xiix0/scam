@@ -1,1 +1,2 @@
-Your present plans will be successful.
+Fine day for friends.
+So-so day for you.
