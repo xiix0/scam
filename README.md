@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+Don't get stuck in a closet -- wear yourself out.
