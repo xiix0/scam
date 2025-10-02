@@ -1,2 +1,1 @@
-Fine day for friends.
-So-so day for you.
+You have Egyptian flu: you're going to be a mummy.
