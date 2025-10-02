@@ -1,5 +1,8 @@
-Q:	Why do ducks have big flat feet?
-A:	To stamp out forest fires.
+For the fashion of Minas Tirith was such that it was built on seven levels,
+each delved into a hill, and about each was set a wall, and in each wall
+was a gate.
+		-- J.R.R. Tolkien, "The Return of the King"
 
-Q:	Why do elephants have big flat feet?
-A:	To stamp out flaming ducks.
+	[Quoted in "VMS Internals and Data Structures", V4.4, when
+	 referring to system overview.]
+
