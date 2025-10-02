@@ -1,1 +1,1 @@
-If your life was a horse, you'd have to shoot it.
+It may or may not be worthwhile, but it still has to be done.
