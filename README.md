@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+Beware the one behind you.
