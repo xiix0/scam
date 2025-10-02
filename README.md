@@ -1,1 +1,2 @@
-Your boss climbed the corporate ladder, wrong by wrong.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
