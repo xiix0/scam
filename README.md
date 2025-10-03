@@ -1,1 +1,1 @@
-You will be run over by a beer truck.
+You will be married within a year.
