@@ -1,2 +1,1 @@
-Q:	What do you call a blind, deaf-mute, quadraplegic Virginian?
-A:	Trustworthy.
+You look like a million dollars.  All green and wrinkled.
