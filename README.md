@@ -1,2 +1,1 @@
-"Life, loathe it or ignore it, you can't like it."
-		-- Marvin, "Hitchhiker's Guide to the Galaxy"
+You may be gone tomorrow, but that doesn't mean that you weren't here today.
