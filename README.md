@@ -1,1 +1,2 @@
-You will be a winner today.  Pick a fight with a four-year-old.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
