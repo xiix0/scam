@@ -1,2 +1,4 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+In India, "cold weather" is merely a conventional phrase and has come into
+use through the necessity of having some way to distinguish between weather
+which will melt a brass door-knob and weather which will only make it mushy.
+		-- Mark Twain
