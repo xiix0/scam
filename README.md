@@ -1,1 +1,2 @@
-Be different: conform.
+When in doubt, tell the truth.
+		-- Mark Twain
