@@ -1,1 +1,2 @@
-You never know how many friends you have until you rent a house on the beach.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
