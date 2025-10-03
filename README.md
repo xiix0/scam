@@ -1,1 +1,2 @@
-You will triumph over your enemy.
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
