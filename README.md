@@ -1,2 +1,3 @@
-When in doubt, tell the truth.
-		-- Mark Twain
+FORTUNE PROVIDES QUESTIONS FOR THE GREAT ANSWERS: #21
+A:	Dr. Livingston I. Presume.
+Q:	What's Dr. Presume's full name?
