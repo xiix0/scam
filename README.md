@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+You will be run over by a beer truck.
