@@ -1,1 +1,2 @@
-You will be called upon to help a friend in trouble.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
