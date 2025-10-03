@@ -1,3 +1,2 @@
-It is by the fortune of God that, in this country, we have three benefits:
-freedom of speech, freedom of thought, and the wisdom never to use either.
+It usually takes more than three weeks to prepare a good impromptu speech.
 		-- Mark Twain
