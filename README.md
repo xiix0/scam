@@ -1,1 +1,2 @@
-Try to have as good a life as you can under the circumstances.
+A is for Apple.
+		-- Hester Pryne
