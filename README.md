@@ -1,5 +1,5 @@
-When I was younger, I could remember anything, whether it had happened
-or not; but my faculties are decaying now and soon I shall be so I
-cannot remember any but the things that never happened.  It is sad to
-go to pieces like this but we all have to do it.
-		-- Mark Twain
+I will honour Christmas in my heart, and try to keep it all the year.  I
+will live in the Past, the Present, and the Future.  The Spirits of all
+Three shall strive within me.  I will not shut out the lessons that they
+teach.  Oh, tell me that I may sponge away the writing on this stone!
+		-- Charles Dickens
