@@ -1,1 +1,2 @@
-You should go home.
+"Not Hercules could have knock'd out his brains, for he had none."
+		-- Shakespeare
