@@ -1,2 +1,1 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+Don't kiss an elephant on the lips today.
