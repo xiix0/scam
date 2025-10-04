@@ -1,1 +1,1 @@
-Don't tell any big lies today.  Small ones can be just as effective.
+You have the body of a 19 year old.  Please return it before it gets wrinkled.
