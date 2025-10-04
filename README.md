@@ -1,1 +1,1 @@
-Don't kiss an elephant on the lips today.
+Don't read any sky-writing for the next two weeks.
