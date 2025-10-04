@@ -1,1 +1,1 @@
-You will outgrow your usefulness.
+You are capable of planning your future.
