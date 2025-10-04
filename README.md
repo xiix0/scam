@@ -1,1 +1,1 @@
-You teach best what you most need to learn.
+Don't tell any big lies today.  Small ones can be just as effective.
