@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+You will be attacked by a beast who has the body of a wolf, the tail of
+a lion, and the face of Donald Duck.
