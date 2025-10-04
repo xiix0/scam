@@ -1,1 +1,1 @@
-Chess tonight.
+You will outgrow your usefulness.
