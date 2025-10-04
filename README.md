@@ -1,2 +1,1 @@
-"Not Hercules could have knock'd out his brains, for he had none."
-		-- Shakespeare
+You'd like to do it instantaneously, but that's too slow.
