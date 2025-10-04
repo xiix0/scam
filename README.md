@@ -1,2 +1,1 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+You two ought to be more careful--your love could drag on for years and years.
