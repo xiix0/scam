@@ -1,1 +1,1 @@
-You're not my type.  For that matter, you're not even my species!!!
+Try to have as good a life as you can under the circumstances.
