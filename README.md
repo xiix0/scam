@@ -1,2 +1,2 @@
-A is for Apple.
-		-- Hester Pryne
+Let him choose out of my files, his projects to accomplish.
+		-- Shakespeare, "Coriolanus"
