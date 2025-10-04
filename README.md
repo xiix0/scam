@@ -1,1 +1,1 @@
-You enjoy the company of other people.
+Life is to you a dashing and bold adventure.
