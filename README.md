@@ -1,1 +1,1 @@
-Beware of a tall blond man with one black shoe.
+You recoil from the crude; you tend naturally toward the exquisite.
