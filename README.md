@@ -1,1 +1,2 @@
-Your mode of life will be changed for the better because of good news soon.
+Q:	Why do mountain climbers rope themselves together?
+A:	To prevent the sensible ones from going home.
