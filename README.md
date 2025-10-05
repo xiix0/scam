@@ -1,1 +1,2 @@
-Today is National Existential Ennui Awareness Day.
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
