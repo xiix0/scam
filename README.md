@@ -1,1 +1,1 @@
-Your business will go through a period of considerable expansion.
+Good day to deal with people in high places; particularly lonely stewardesses.
