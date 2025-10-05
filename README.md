@@ -1,1 +1,1 @@
-Don't get stuck in a closet -- wear yourself out.
+You have the capacity to learn from mistakes.  You'll learn a lot today.
