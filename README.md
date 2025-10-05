@@ -1,1 +1,1 @@
-You have a strong appeal for members of the opposite sex.
+You have a deep appreciation of the arts and music.
