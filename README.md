@@ -1,1 +1,2 @@
-You are sick, twisted and perverted.  I like that in a person.
+Today's weirdness is tomorrow's reason why.
+		-- Hunter S. Thompson
