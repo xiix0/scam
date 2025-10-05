@@ -1,1 +1,2 @@
-You are only young once, but you can stay immature indefinitely.
+Q:	What lies on the bottom of the ocean and twitches?
+A:	A nervous wreck.
