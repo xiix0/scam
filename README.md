@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+Q:	What's buried in Grant's tomb?
+A:	A corpse.
