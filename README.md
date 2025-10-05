@@ -1,1 +1,1 @@
-Good day to deal with people in high places; particularly lonely stewardesses.
+Future looks spotty.  You will spill soup in late evening.
