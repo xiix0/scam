@@ -1,3 +1,1 @@
-In a museum in Havana, there are two skulls of Christopher Columbus,
-"one when he was a boy and one when he was a man."
-		-- Mark Twain
+Good day to let down old friends who need help.
