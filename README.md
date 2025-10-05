@@ -1,1 +1,1 @@
-You shall be rewarded for a dastardly deed.
+You're being followed.  Cut out the hanky-panky for a few days.
