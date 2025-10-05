@@ -1,1 +1,1 @@
-You'll be called to a post requiring ability in handling groups of people.
+Write yourself a threatening letter and pen a defiant reply.
