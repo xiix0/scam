@@ -1,2 +1,2 @@
-This was the most unkindest cut of all.
-		-- William Shakespeare, "Julius Caesar"
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
