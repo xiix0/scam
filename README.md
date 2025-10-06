@@ -1,3 +1,4 @@
-There is an old time toast which is golden for its beauty.
-"When you ascend the hill of prosperity may you not meet a friend."
-		-- Mark Twain
+F.S. Fitzgerald to Hemingway:
+	"Ernest, the rich are different from us."
+Hemingway:
+	"Yes.  They have more money."
