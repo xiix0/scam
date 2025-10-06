@@ -1,1 +1,1 @@
-Be cautious in your daily affairs.
+You will attract cultured and artistic people to your home.
