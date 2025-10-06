@@ -1,5 +1,2 @@
-Knock, knock!
-	Who's there?
-Sam and Janet.
-	Sam and Janet who?
-Sam and Janet Evening...
+Rebellion lay in his way, and he found it.
+		-- William Shakespeare, "Henry IV"
