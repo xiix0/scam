@@ -1,5 +1,3 @@
-It is right that he too should have his little chronicle, his memories,
-his reason, and be able to recognize the good in the bad, the bad in the
-worst, and so grow gently old all down the unchanging days and die one
-day like any other day, only shorter.
-		-- Samuel Beckett, "Malone Dies"
+You never have to change anything you got up in the middle of the night
+to write.
+		-- Saul Bellow
