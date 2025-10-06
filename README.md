@@ -1,2 +1,2 @@
-Q:	How do you stop an elephant from charging?
-A:	Take away his credit cards.
+Man is the only animal that blushes -- or needs to.
+		-- Mark Twain
