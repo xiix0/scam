@@ -1,2 +1,3 @@
-Your motives for doing whatever good deed you may have in mind will be
-misinterpreted by somebody.
+The only way to keep your health is to eat what you don't want, drink what
+you don't like, and do what you'd rather not.
+		-- Mark Twain
