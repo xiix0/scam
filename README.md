@@ -1,1 +1,1 @@
-Write yourself a threatening letter and pen a defiant reply.
+After your lover has gone you will still have PEANUT BUTTER!
