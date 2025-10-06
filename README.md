@@ -1,1 +1,1 @@
-You will be honored for contributing your time and skill to a worthy cause.
+Today is the last day of your life so far.
