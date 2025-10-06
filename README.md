@@ -1,2 +1,2 @@
-Man is the only animal that blushes -- or needs to.
-		-- Mark Twain
+Q:	Why was Stonehenge abandoned?
+A:	It wasn't IBM compatible.
