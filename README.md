@@ -1,2 +1,1 @@
-Q:	Why was Stonehenge abandoned?
-A:	It wasn't IBM compatible.
+Beauty and harmony are as necessary to you as the very breath of life.
