@@ -1,2 +1,1 @@
-A is for Apple.
-		-- Hester Pryne
+After your lover has gone you will still have PEANUT BUTTER!
