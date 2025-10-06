@@ -1,2 +1,2 @@
-"You have been in Afghanistan, I perceive."
-		-- Sir Arthur Conan Doyle, "A Study in Scarlet"
+Q:	How do you stop an elephant from charging?
+A:	Take away his credit cards.
