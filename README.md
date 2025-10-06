@@ -1,2 +1,2 @@
-Rebellion lay in his way, and he found it.
-		-- William Shakespeare, "Henry IV"
+	A man was reading The Canterbury Tales one Saturday morning, when his
+wife asked "What have you got there?"  Replied he, "Just my cup and Chaucer."
