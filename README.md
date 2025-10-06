@@ -1,1 +1,1 @@
-Today is the last day of your life so far.
+Beware of a tall blond man with one black shoe.
