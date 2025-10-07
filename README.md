@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+You will have good luck and overcome many hardships.
