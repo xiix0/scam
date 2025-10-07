@@ -1,1 +1,2 @@
-Never be led astray onto the path of virtue.
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
