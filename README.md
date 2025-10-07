@@ -1,1 +1,1 @@
-There was a phone call for you.
+Executive ability is prominent in your make-up.
