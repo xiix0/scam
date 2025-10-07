@@ -1,2 +1,2 @@
-Let him choose out of my files, his projects to accomplish.
-		-- Shakespeare, "Coriolanus"
+I dote on his very absence.
+		-- William Shakespeare, "The Merchant of Venice"
