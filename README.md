@@ -1,1 +1,1 @@
-You have the power to influence all with whom you come in contact.
+Never commit yourself!  Let someone else commit you.
