@@ -1,2 +1,1 @@
-Don't Worry, Be Happy.
-		-- Meher Baba
+Cold hands, no gloves.
