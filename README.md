@@ -1,1 +1,1 @@
-Cold hands, no gloves.
+You will be successful in love.
