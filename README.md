@@ -1,1 +1,1 @@
-You will be successful in love.
+Lady Luck brings added income today.  Lady friend takes it away tonight.
