@@ -1,1 +1,1 @@
-Your life would be very empty if you had nothing to regret.
+Don't look now, but there is a multi-legged creature on your shoulder.
