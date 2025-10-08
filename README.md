@@ -1,3 +1,2 @@
-Remark of Dr. Baldwin's concerning upstarts: We don't care to eat toadstools
-that think they are truffles.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many Harvard MBA's does it take to screw in a light bulb?
+A:	Just one.  He grasps it firmly and the universe revolves around him.
