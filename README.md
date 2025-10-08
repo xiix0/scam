@@ -1,2 +1,2 @@
-As flies to wanton boys are we to the gods; they kill us for their sport.
-		-- Shakespeare, "King Lear"
+Many pages make a thick book, except for pocket Bibles which are on very
+very thin paper.
