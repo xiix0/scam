@@ -1,1 +1,5 @@
-You will be awarded a medal for disregarding safety in saving someone.
+Knock, knock!
+	Who's there?
+Sam and Janet.
+	Sam and Janet who?
+Sam and Janet Evening...
