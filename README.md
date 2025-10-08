@@ -1,1 +1,1 @@
-Stay the curse.
+Save energy: be apathetic.
