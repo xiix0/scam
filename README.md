@@ -1,1 +1,2 @@
-You're currently going through a difficult transition period called "Life."
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
