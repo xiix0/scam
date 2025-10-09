@@ -1,1 +1,1 @@
-Domestic happiness and faithful friends.
+You can create your own opportunities this week.  Blackmail a senior executive.
