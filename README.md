@@ -1,1 +1,1 @@
-You will meet an important person who will help you advance professionally.
+Do what comes naturally.  Seethe and fume and throw a tantrum.
