@@ -1,1 +1,2 @@
-You are going to have a new love affair.
+The last thing one knows in constructing a work is what to put first.
+		-- Blaise Pascal
