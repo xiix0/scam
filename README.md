@@ -1,2 +1,1 @@
-The last thing one knows in constructing a work is what to put first.
-		-- Blaise Pascal
+Your reasoning is excellent -- it's only your basic assumptions that are wrong.
