@@ -1,1 +1,2 @@
-You will get what you deserve.
+Civilization is the limitless multiplication of unnecessary necessities.
+		-- Mark Twain
