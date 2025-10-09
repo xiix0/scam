@@ -1,1 +1,2 @@
-Your reasoning is excellent -- it's only your basic assumptions that are wrong.
+You can do very well in speculation where land or anything to do with dirt
+is concerned.
