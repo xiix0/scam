@@ -1,1 +1,2 @@
-You have Egyptian flu: you're going to be a mummy.
+All things that are, are with more spirit chased than enjoyed.
+		-- Shakespeare, "Merchant of Venice"
