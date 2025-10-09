@@ -1,1 +1,1 @@
-You can create your own opportunities this week.  Blackmail a senior executive.
+Your temporary financial embarrassment will be relieved in a surprising manner.
