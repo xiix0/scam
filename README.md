@@ -1,1 +1,1 @@
-Love is in the offing.  Be affectionate to one who adores you.
+You will give someone a piece of your mind, which you can ill afford.
