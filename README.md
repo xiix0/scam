@@ -1,1 +1,1 @@
-You will gain money by an immoral action.
+Let me put it this way: today is going to be a learning experience.
