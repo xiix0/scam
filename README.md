@@ -1,1 +1,2 @@
-You're being followed.  Cut out the hanky-panky for a few days.
+Talkers are no good doers.
+		-- William Shakespeare, "Henry VI"
