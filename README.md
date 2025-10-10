@@ -1,3 +1,2 @@
-... A solemn, unsmiling, sanctimonious old iceberg who looked like he
-was waiting for a vacancy in the Trinity.
-		-- Mark Twain
+They have been at a great feast of languages, and stolen the scraps.
+		-- William Shakespeare, "Love's Labour's Lost"
