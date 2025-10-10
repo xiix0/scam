@@ -1,2 +1,3 @@
-They have been at a great feast of languages, and stolen the scraps.
-		-- William Shakespeare, "Love's Labour's Lost"
+Many a writer seems to think he is never profound except when he can't
+understand his own meaning.
+		-- George D. Prentice
