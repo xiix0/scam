@@ -1,2 +1,2 @@
-Q:	How many Martians does it take to screw in a light bulb?
-A:	One and a half.
+You are destined to become the commandant of the fighting men of the
+department of transportation.
