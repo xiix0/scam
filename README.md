@@ -1,1 +1,3 @@
-A few hours grace before the madness begins again.
+They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
+always spell better than they pronounce.
+		-- Mark Twain
