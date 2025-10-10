@@ -1,3 +1,2 @@
-He draweth out the thread of his verbosity finer than the staple of his
-argument.
-		-- William Shakespeare, "Love's Labour's Lost"
+Next Friday will not be your lucky day.  As a matter of fact, you don't
+have a lucky day this year.
