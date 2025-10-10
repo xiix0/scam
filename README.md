@@ -1,2 +1,2 @@
-Q:	What's tan and black and looks great on a lawyer?
-A:	A doberman.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
