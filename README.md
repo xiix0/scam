@@ -1,21 +1,28 @@
-Well, anyway, I was reading this James Bond book, and right away I realized
-that like most books, it had too many words.  The plot was the same one that
-all James Bond books have: An evil person tries to blow up the world, but
-James Bond kills him and his henchmen and makes love to several attractive
-women.  There, that's it: 24 words.  But the guy who wrote the book took
-*thousands* of words to say it.
-	Or consider "The Brothers Karamazov", by the famous Russian alcoholic
-Fyodor Dostoyevsky.  It's about these two brothers who kill their father.
-Or maybe only one of them kills the father.  It's impossible to tell because
-what they mostly do is talk for nearly a thousand pages.  If all Russians talk
-as much as the Karamazovs did, I don't see how they found time to become a
-major world power.
-	I'm told that Dostoyevsky wrote "The Brothers Karamazov" to raise
-the question of whether there is a God.  So why didn't he just come right
-out and say: "Is there a God? It sure beats the heck out of me."
-	Other famous works could easily have been summarized in a few words:
-
-* "Moby Dick" -- Don't mess around with large whales because they symbolize
-  nature and will kill you.
-* "A Tale of Two Cities" -- French people are crazy.
-		-- Dave Barry
+Q:	How many lawyers does it take to change a light bulb?
+A:	Whereas the party of the first part, also known as "Lawyer", and the
+party of the second part, also known as "Light Bulb", do hereby and forthwith
+agree to a transaction wherein the party of the second part shall be removed
+from the current position as a result of failure to perform previously agreed
+upon duties, i.e., the lighting, elucidation, and otherwise illumination of
+the area ranging from the front (north) door, through the entryway, terminating
+at an area just inside the primary living area, demarcated by the beginning of
+the carpet, any spillover illumination being at the option of the party of the
+second part and not required by the aforementioned agreement between the
+parties.
+	The aforementioned removal transaction shall include, but not be
+limited to, the following.  The party of the first part shall, with or without
+elevation at his option, by means of a chair, stepstool, ladder or any other
+means of elevation, grasp the party of the second part and rotate the party
+of the second part in a counter-clockwise direction, this point being tendered
+non-negotiable.  Upon reaching a point where the party of the second part
+becomes fully detached from the receptacle, the party of the first part shall
+have the option of disposing of the party of the second part in a manner
+consistent with all relevant and applicable local, state and federal statutes.
+Once separation and disposal have been achieved, the party of the first part
+shall have the option of beginning installation.  Aforesaid installation shall
+occur in a manner consistent with the reverse of the procedures described in
+step one of this self-same document, being careful to note that the rotation
+should occur in a clockwise direction, this point also being non-negotiable.
+The above described steps may be performed, at the option of the party of the
+first part, by any or all agents authorized by him, the objective being to
+produce the most possible revenue for the Partnership.
