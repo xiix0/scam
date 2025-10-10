@@ -1,3 +1,2 @@
-Q:	Why haven't you graduated yet?
-A:	Well, Dad, I could have finished years ago, but I wanted
-	my dissertation to rhyme.
+Q:	What's tan and black and looks great on a lawyer?
+A:	A doberman.
