@@ -1,2 +1,1 @@
-Next Friday will not be your lucky day.  As a matter of fact, you don't
-have a lucky day this year.
+You're being followed.  Cut out the hanky-panky for a few days.
