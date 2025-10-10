@@ -1,2 +1,2 @@
-There is no distinctly native American criminal class except Congress.
-		-- Mark Twain
+Q:	What happens when four WASPs find themselves in the same room?
+A:	A dinner party.
