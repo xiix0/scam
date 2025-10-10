@@ -1,1 +1,2 @@
-You will be honored for contributing your time and skill to a worthy cause.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
