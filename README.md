@@ -1,1 +1,1 @@
-What happened last night can happen again.
+You will soon meet a person who will play an important role in your life.
