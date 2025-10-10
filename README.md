@@ -1,1 +1,1 @@
-You will be the victim of a bizarre joke.
+Don't tell any big lies today.  Small ones can be just as effective.
