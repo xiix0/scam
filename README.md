@@ -1,1 +1,1 @@
-Beware of Bigfoot!
+Never look up when dragons fly overhead.
