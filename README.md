@@ -1,1 +1,1 @@
-Your supervisor is thinking about you.
+You will be awarded a medal for disregarding safety in saving someone.
