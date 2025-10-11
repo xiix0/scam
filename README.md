@@ -1,1 +1,2 @@
-You have an ambitious nature and may make a name for yourself.
+The human race has one really effective weapon, and that is laughter.
+		-- Mark Twain
