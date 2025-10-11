@@ -1,1 +1,1 @@
-You're a card which will have to be dealt with.
+Today is the tomorrow you worried about yesterday.
