@@ -1,1 +1,3 @@
-Your fly might be open (but don't check it just now).
+Zounds!  I was never so bethumped with words
+since I first called my brother's father dad.
+		-- William Shakespeare, "Kind John"
