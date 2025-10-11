@@ -1,2 +1,1 @@
-Q:	How many supply-siders does it take to change a light bulb?
-A:	None.  The darkness will cause the light bulb to change by itself.
+Best of all is never to have been born.  Second best is to die soon.
