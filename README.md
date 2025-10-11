@@ -1,1 +1,2 @@
-You don't become a failure until you're satisfied with being one.
+The abuse of greatness is when it disjoins remorse from power.
+		-- William Shakespeare, "Julius Caesar"
