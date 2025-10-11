@@ -1,1 +1,1 @@
-You will be held hostage by a radical group.
+You get along very well with everyone except animals and people.
