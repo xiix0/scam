@@ -1,2 +1,3 @@
-The ripest fruit falls first.
-		-- William Shakespeare, "Richard II"
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
