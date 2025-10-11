@@ -1,1 +1,2 @@
-Among the lucky, you are the chosen one.
+The ripest fruit falls first.
+		-- William Shakespeare, "Richard II"
