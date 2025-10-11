@@ -1,1 +1,2 @@
-You will experience a strong urge to do good; but it will pass.
+Q:	How can you tell when a Burroughs salesman is lying?
+A:	When his lips move.
