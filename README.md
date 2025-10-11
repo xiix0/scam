@@ -1,1 +1,1 @@
-You have had a long-term stimulation relative to business.
+If your life was a horse, you'd have to shoot it.
