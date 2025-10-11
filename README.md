@@ -1,1 +1,1 @@
-You will be surprised by a loud noise.
+Don't get stuck in a closet -- wear yourself out.
