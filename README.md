@@ -1,3 +1,2 @@
-Q:	How does a hacker fix a function which
-	doesn't work for all of the elements in its domain?
-A:	He changes the domain.
+Tomorrow, this will be part of the unchangeable past but fortunately,
+it can still be changed today.
