@@ -1,1 +1,1 @@
-A gift of a flower will soon be made to you.
+Afternoon very favorable for romance.  Try a single person for a change.
