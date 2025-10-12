@@ -1,1 +1,2 @@
-Never look up when dragons fly overhead.
+Something's rotten in the state of Denmark.
+		-- Shakespeare
