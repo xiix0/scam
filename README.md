@@ -1,2 +1,2 @@
-Q:	What does it say on the bottom of Coke cans in North Dakota?
-A:	Open other end.
+But, for my own part, it was Greek to me.
+		-- William Shakespeare, "Julius Caesar"
