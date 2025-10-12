@@ -1,1 +1,3 @@
-It may or may not be worthwhile, but it still has to be done.
+A long-forgotten loved one will appear soon.
+
+Buy the negatives at any price.
