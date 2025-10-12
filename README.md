@@ -1,1 +1,1 @@
-You are capable of planning your future.
+Good day for overcoming obstacles.  Try a steeplechase.
