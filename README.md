@@ -1,1 +1,2 @@
-An exotic journey in downtown Newark is in your future.
+"... all the modern inconveniences ..."
+		-- Mark Twain
