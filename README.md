@@ -1,2 +1,2 @@
-Lord, what fools these mortals be!
-		-- William Shakespeare, "A Midsummer-Night's Dream"
+Q:	What is the sound of one cat napping?
+A:	Mu.
