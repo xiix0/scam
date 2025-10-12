@@ -1,1 +1,3 @@
-You will receive a legacy which will place you above want.
+Q:	How does a hacker fix a function which
+	doesn't work for all of the elements in its domain?
+A:	He changes the domain.
