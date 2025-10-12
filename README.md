@@ -1,1 +1,1 @@
-You will be surrounded by luxury.
+You will be winged by an anti-aircraft battery.
