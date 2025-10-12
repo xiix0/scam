@@ -1,1 +1,1 @@
-Your talents will be recognized and suitably rewarded.
+You will receive a legacy which will place you above want.
