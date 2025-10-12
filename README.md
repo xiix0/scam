@@ -1,1 +1,2 @@
-You have the capacity to learn from mistakes.  You'll learn a lot today.
+Q:	What does it say on the bottom of Coke cans in North Dakota?
+A:	Open other end.
