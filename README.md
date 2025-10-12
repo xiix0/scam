@@ -1,2 +1,3 @@
-Tomorrow, this will be part of the unchangeable past but fortunately,
-it can still be changed today.
+Q:	What does a WASP Mom make for dinner?
+A:	A crisp salad, a hearty soup, a lovely entree, followed by
+	a delicious dessert.
