@@ -1,2 +1,1 @@
-Q:	Why did the WASP cross the road?
-A:	To get to the middle.
+Increased knowledge will help you now.  Have mate's phone bugged.
