@@ -1,3 +1,2 @@
-Questionable day.
-
-Ask somebody something.
+Lord, what fools these mortals be!
+		-- William Shakespeare, "A Midsummer-Night's Dream"
