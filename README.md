@@ -1,1 +1,1 @@
-You have a deep interest in all that is artistic.
+Don't look now, but the man in the moon is laughing at you.
