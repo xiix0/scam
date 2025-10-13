@@ -1,1 +1,1 @@
-People are beginning to notice you.  Try dressing before you leave the house.
+Beauty and harmony are as necessary to you as the very breath of life.
