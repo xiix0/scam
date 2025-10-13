@@ -1,1 +1,2 @@
-You will inherit some money or a small piece of land.
+No group of professionals meets except to conspire against the public at large.
+		-- Mark Twain
