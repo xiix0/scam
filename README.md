@@ -1,1 +1,1 @@
-You're almost as happy as you think you are.
+People are beginning to notice you.  Try dressing before you leave the house.
