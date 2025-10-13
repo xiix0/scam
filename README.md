@@ -1,1 +1,2 @@
-Don't get stuck in a closet -- wear yourself out.
+The Public is merely a multiplied "me."
+		-- Mark Twain
