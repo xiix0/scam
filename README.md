@@ -1,1 +1,2 @@
-You have the power to influence all with whom you come in contact.
+Q:	Why did the WASP cross the road?
+A:	To get to the middle.
