@@ -1,1 +1,1 @@
-So this is it.  We're going to die.
+You recoil from the crude; you tend naturally toward the exquisite.
