@@ -1,1 +1,2 @@
-It was all so different before everything changed.
+Q:	What do you call a boomerang that doesn't come back?
+A:	A stick.
