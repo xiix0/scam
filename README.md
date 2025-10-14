@@ -1,1 +1,2 @@
-You will gain money by a speculation or lottery.
+Never laugh at live dragons.
+		-- Bilbo Baggins [J.R.R. Tolkien, "The Hobbit"]
