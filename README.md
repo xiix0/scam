@@ -1,1 +1,1 @@
-Today is what happened to yesterday.
+You have the power to influence all with whom you come in contact.
