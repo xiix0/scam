@@ -1,1 +1,2 @@
-Things will be bright in P.M.  A cop will shine a light in your face.
+A kind of Batman of contemporary letters.
+		-- Philip Larkin on Anthony Burgess
