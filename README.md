@@ -1,2 +1,2 @@
-Q:	Why did the astrophysicist order three hamburgers?
-A:	Because he was hungry.
+By trying we can easily learn to endure adversity.  Another man's, I mean.
+		-- Mark Twain
