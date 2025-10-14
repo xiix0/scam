@@ -1,1 +1,1 @@
-Live in a world of your own, but always welcome visitors.
+A vivid and creative mind characterizes you.
