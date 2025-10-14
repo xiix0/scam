@@ -1,2 +1,3 @@
-Q:	What do little WASPs want to be when they grow up?
-A:	The very best person they can possibly be.
+If more of us valued food and cheer and song above hoarded gold, it would
+be a merrier world.
+		-- J.R.R. Tolkien
