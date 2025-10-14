@@ -1,1 +1,1 @@
-You will be aided greatly by a person whom you thought to be unimportant.
+Tuesday After Lunch is the cosmic time of the week.
