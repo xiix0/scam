@@ -1,3 +1,1 @@
-Q:	What do you call the scratches that you get when a female
-	sheep bites you?
-A:	Ewe nicks.
+You will have a long and unpleasant discussion with your supervisor.
