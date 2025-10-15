@@ -1,1 +1,2 @@
-Green light in A.M. for new projects.  Red light in P.M. for traffic tickets.
+You may worry about your hair-do today, but tomorrow much peanut butter will
+be sold.
