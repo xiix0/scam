@@ -1,1 +1,1 @@
-Try to get all of your posthumous medals in advance.
+Afternoon very favorable for romance.  Try a single person for a change.
