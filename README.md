@@ -1,1 +1,1 @@
-Love is in the offing.  Be affectionate to one who adores you.
+Celebrate Hannibal Day this year.  Take an elephant to lunch.
