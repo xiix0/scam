@@ -1,1 +1,2 @@
-Is that really YOU that is reading this?
+It is a wise father that knows his own child.
+		-- William Shakespeare, "The Merchant of Venice"
