@@ -1,2 +1,2 @@
-Your goose is cooked.
-(Your current chick is burned up too!)
+Q:	What is purple and conquered the world?
+A:	Alexander the Grape.
