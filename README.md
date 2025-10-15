@@ -1,1 +1,1 @@
-You display the wonderful traits of charm and courtesy.
+Your true value depends entirely on what you are compared with.
