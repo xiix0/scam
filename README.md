@@ -1,1 +1,1 @@
-You will wish you hadn't.
+Love is in the offing.  Be affectionate to one who adores you.
