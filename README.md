@@ -1,1 +1,1 @@
-Today is the first day of the rest of the mess.
+You love your home and want it to be beautiful.
