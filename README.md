@@ -1,1 +1,2 @@
-You will be given a post of trust and responsibility.
+When one burns one's bridges, what a very nice fire it makes.
+		-- Dylan Thomas
