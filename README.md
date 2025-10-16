@@ -1,2 +1,5 @@
-Q:	What's a light-year?
-A:	One-third less calories than a regular year.
+Q:	What do monsters eat?
+A:	Things.
+
+Q:	What do monsters drink?
+A:	Coke.  (Because Things go better with Coke.)
