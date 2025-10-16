@@ -1,1 +1,2 @@
-You're currently going through a difficult transition period called "Life."
+No violence, gentlemen -- no violence, I beg of you!  Consider the furniture!
+		-- Sherlock Holmes
