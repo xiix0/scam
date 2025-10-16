@@ -1,1 +1,1 @@
-You will feel hungry again in another hour.
+Another good night not to sleep in a eucalyptus tree.
