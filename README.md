@@ -1,2 +1,1 @@
-Q:	What do they call the alphabet in Arkansas?
-A:	The impossible dream.
+If you think last Tuesday was a drag, wait till you see what happens tomorrow!
