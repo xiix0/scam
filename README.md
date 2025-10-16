@@ -1,1 +1,1 @@
-You are deeply attached to your friends and acquaintances.
+Try the Moo Shu Pork.  It is especially good today.
