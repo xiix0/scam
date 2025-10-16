@@ -1,1 +1,2 @@
-Living your life is a task so difficult, it has never been attempted before.
+You learn to write as if to someone else because NEXT YEAR YOU WILL BE
+"SOMEONE ELSE."
