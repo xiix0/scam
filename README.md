@@ -1,1 +1,2 @@
-Ships are safe in harbor, but they were never meant to stay there.
+Kindness is a language which the deaf can hear and the blind can read.
+		-- Mark Twain
