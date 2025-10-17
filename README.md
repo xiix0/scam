@@ -1,1 +1,2 @@
-Never reveal your best argument.
+Q:	Do you know what the death rate around here is?
+A:	One per person.
