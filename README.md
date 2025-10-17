@@ -1,1 +1,1 @@
-Artistic ventures highlighted.  Rob a museum.
+Never reveal your best argument.
