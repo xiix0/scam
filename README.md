@@ -1,1 +1,2 @@
-Truth will out this morning.  (Which may really mess things up.)
+You should emulate your heros, but don't carry it too far.  Especially
+if they are dead.
