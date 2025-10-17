@@ -1,1 +1,2 @@
-Your life would be very empty if you had nothing to regret.
+Q:	Why did the germ cross the microscope?
+A:	To get to the other slide.
