@@ -1,3 +1,1 @@
-Someone is speaking well of you.
-
-How unusual!
+Your life would be very empty if you had nothing to regret.
