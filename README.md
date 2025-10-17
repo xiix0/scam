@@ -1,1 +1,1 @@
-You're at the end of the road again.
+You are fighting for survival in your own sweet and gentle way.
