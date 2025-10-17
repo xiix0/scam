@@ -1,2 +1,1 @@
-For courage mounteth with occasion.
-		-- William Shakespeare, "King John"
+You'd like to do it instantaneously, but that's too slow.
