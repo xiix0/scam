@@ -1,1 +1,1 @@
-Stay away from flying saucers today.
+You will obey or molten silver will be poured into your ears.
