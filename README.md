@@ -1,1 +1,1 @@
-It's all in the mind, ya know.
+Don't relax!  It's only your tension that's holding you together.
