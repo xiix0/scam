@@ -1,1 +1,3 @@
-Expect a letter from a friend who will ask a favor of you.
+Someone is speaking well of you.
+
+How unusual!
