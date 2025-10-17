@@ -1,1 +1,2 @@
-A visit to a strange place will bring fresh work.
+As flies to wanton boys are we to the gods; they kill us for their sport.
+		-- Shakespeare, "King Lear"
