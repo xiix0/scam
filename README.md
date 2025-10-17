@@ -1,1 +1,2 @@
-Afternoon very favorable for romance.  Try a single person for a change.
+You are scrupulously honest, frank, and straightforward.  Therefore you
+have few friends.
