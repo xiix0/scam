@@ -1,1 +1,1 @@
-You'd like to do it instantaneously, but that's too slow.
+You're at the end of the road again.
