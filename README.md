@@ -1,3 +1,1 @@
-Whenever you find that you are on the side of the majority, it is time
-to reform.
-		-- Mark Twain
+You are a fluke of the universe; you have no right to be here.
