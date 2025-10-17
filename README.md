@@ -1,1 +1,2 @@
-Your talents will be recognized and suitably rewarded.
+Q:	How do you save a drowning lawyer?
+A:	Throw him a rock.
