@@ -1,1 +1,3 @@
-You will attract cultured and artistic people to your home.
+Sometimes I wonder if I'm in my right mind.  Then it passes off and I'm
+as intelligent as ever.
+		-- Samuel Beckett, "Endgame"
