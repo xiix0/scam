@@ -1,2 +1,1 @@
-Q:	Why did the germ cross the microscope?
-A:	To get to the other slide.
+Afternoon very favorable for romance.  Try a single person for a change.
