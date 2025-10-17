@@ -1,4 +1,6 @@
-Swerve me?  The path to my fixed purpose is laid with iron rails,
-whereon my soul is grooved to run.  Over unsounded gorges, through
-the rifled hearts of mountains, under torrents' beds, unerringly I rush!
-		-- Captain Ahab, "Moby Dick"
+Q:	What did Tarzan say when he saw the elephants coming over the hill?
+A:	"The elephants are coming over the hill."
+
+Q:	What did he say when saw them coming over the hill wearing
+		sunglasses?
+A:	Nothing, for he didn't recognize them.
