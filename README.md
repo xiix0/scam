@@ -1,2 +1,2 @@
-You'll wish that you had done some of the hard things when they were easier
-to do.
+There is a great discovery still to be made in Literature: that of
+paying literary men by the quantity they do NOT write.
