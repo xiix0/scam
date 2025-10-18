@@ -1,2 +1,1 @@
-Too much is just enough.
-		-- Mark Twain, on whiskey
+Caution: Keep out of reach of children.
