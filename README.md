@@ -1,2 +1,2 @@
-All generalizations are false, including this one.
-		-- Mark Twain
+This was the most unkindest cut of all.
+		-- William Shakespeare, "Julius Caesar"
