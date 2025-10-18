@@ -1,3 +1,3 @@
-One of the most striking differences between a cat and a lie is that a cat has
-only nine lives.
-		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
+Q:	How many mathematicians does it take to screw in a light bulb?
+A:	One.  He gives it to six Californians, thereby reducing the problem
+	to the earlier joke.
