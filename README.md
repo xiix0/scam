@@ -1,2 +1,2 @@
-I fell asleep reading a dull book, and I dreamt that I was reading on,
-so I woke up from sheer boredom.
+English literature's performing flea.
+		-- Sean O'Casey on P. G. Wodehouse
