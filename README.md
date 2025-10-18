@@ -1,3 +1,2 @@
-A hundred years from now it is very likely that [of Twain's works] "The
-Jumping Frog" alone will be remembered.
-		-- Harry Thurston Peck (Editor of "The Bookman"), January 1901.
+Q:	How many lawyers does it take to change a light bulb?
+A:	One.  Only it's his light bulb when he's done.
