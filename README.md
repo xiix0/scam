@@ -1,1 +1,2 @@
-Avert misunderstanding by calm, poise, and balance.
+Having nothing, nothing can he lose.
+		-- William Shakespeare, "Henry VI"
