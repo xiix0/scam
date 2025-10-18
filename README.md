@@ -1,2 +1,4 @@
-English literature's performing flea.
-		-- Sean O'Casey on P. G. Wodehouse
+The holy passion of Friendship is of so sweet and steady and loyal and
+enduring a nature that it will last through a whole lifetime, if not asked to
+lend money.
+		-- Mark Twain, "Pudd'nhead Wilson's Calendar"
