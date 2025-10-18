@@ -1,1 +1,2 @@
-You are the only person to ever get this message.
+Too much is just enough.
+		-- Mark Twain, on whiskey
