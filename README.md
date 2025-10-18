@@ -1,2 +1,2 @@
-Having nothing, nothing can he lose.
-		-- William Shakespeare, "Henry VI"
+All generalizations are false, including this one.
+		-- Mark Twain
