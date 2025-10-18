@@ -1,1 +1,2 @@
-You may be recognized soon.  Hide.
+You will lose your present job and have to become a door to door mayonnaise
+salesman.
