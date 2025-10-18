@@ -1,1 +1,1 @@
-You dialed 5483.
+You're currently going through a difficult transition period called "Life."
